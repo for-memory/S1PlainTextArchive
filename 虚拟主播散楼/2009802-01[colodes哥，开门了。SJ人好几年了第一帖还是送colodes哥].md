@@ -1,6 +1,6 @@
 
 
------
+*****
 
 ####  winsloven  
 ##### 1#       楼主       发表于 2021-6-14 11:35
@@ -11,7 +11,7 @@
 colodes哥！！！萌新SJ人第一帖。谢开门！
 
 
------
+*****
 
 ####  admentus  
 ##### 2#       发表于 2021-6-14 11:37
@@ -20,7 +20,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 应该只是暂时拉权限等不会打架了就没了，别激动
 
 
------
+*****
 
 ####  nowaki  
 ##### 3#       发表于 2021-6-14 11:37
@@ -44,7 +44,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 查看全部评分
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 4#       发表于 2021-6-14 11:40
@@ -71,7 +71,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 查看全部评分
 
 
------
+*****
 
 ####  狗狗狗狗狗  
 ##### 5#       发表于 2021-6-14 11:41
@@ -82,7 +82,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 感知树快来
 
 
------
+*****
 
 ####  Troy_VoV  
 ##### 6#       发表于 2021-6-14 11:43
@@ -91,7 +91,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 什么感知树又去holo串臊皮了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Map-2  
 ##### 7#       发表于 2021-6-14 11:45
@@ -100,7 +100,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 一天不看C综我身上好比有蚂蚁在爬，C综外面好冰冷啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星の守  
 ##### 8#       发表于 2021-6-14 11:46
@@ -109,7 +109,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 玛德，冠军粉能不能给我④一④啊，真够恶心的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 9#       发表于 2021-6-14 11:48
@@ -118,7 +118,7 @@ colodes哥！！！萌新SJ人第一帖。谢开门！
 谁抱着马车杯冠军吹的啊
 
 
------
+*****
 
 ####  opersuper  
 ##### 10#       发表于 2021-6-14 11:51
@@ -142,7 +142,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 查看全部评分
 
 
------
+*****
 
 ####  nowaki  
 ##### 11#       发表于 2021-6-14 11:52
@@ -151,7 +151,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 还有露露
 
 
------
+*****
 
 ####  FCCHua  
 ##### 12#       发表于 2021-6-14 11:54
@@ -160,7 +160,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 草
 
 
------
+*****
 
 ####  弈秋  
 ##### 13#       发表于 2021-6-14 11:55
@@ -169,7 +169,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 50权限一贴，还是你比较高
 
 
------
+*****
 
 ####  雪风utopia  
 ##### 14#       发表于 2021-6-14 11:56
@@ -178,7 +178,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 这就是上不到大分的怨念吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  opersuper  
 ##### 15#       发表于 2021-6-14 12:07
@@ -187,7 +187,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 某天然上分冲大师的硬核选手为什么不去玩有death match的cod呢，那里没有靠大腿带的混子全靠自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  梅斯之围  
 ##### 16#       发表于 2021-6-14 12:11
@@ -198,7 +198,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 窗帘，你把多少人的乐子，都他妈毁了！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 17#       发表于 2021-6-14 12:11
@@ -207,7 +207,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 天然solo上大师 望周知
 
 
------
+*****
 
 ####  Nanachi  
 ##### 18#       发表于 2021-6-14 12:11
@@ -218,7 +218,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 —— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  fghc_h  
 ##### 19#       发表于 2021-6-14 12:12
@@ -227,7 +227,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 我永远记得批站crew那满屏的喷队友菜，有腿谁不想抱啊
 
 
------
+*****
 
 ####  Map-2  
 ##### 20#       发表于 2021-6-14 12:21
@@ -236,7 +236,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 大家这么在意啊夸实力的话完全可以搞一个什么艺术家crew，吟游大夸夸出来的，给夸宝炒作成虚拟大司马，以后每天中午的饭菜就指望这个了
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 21#       发表于 2021-6-14 12:30
@@ -245,7 +245,7 @@ niwaki推夸推兔推asoul，很难不是冠军粉<img src="https://static.sarab
 应该来个投票，看看是上分婊还是卖队友哪个更不得人心
 
 
------
+*****
 
 ####  Pavlova  
 ##### 22#       发表于 2021-6-14 12:33
@@ -258,7 +258,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 23#       发表于 2021-6-14 12:41
@@ -269,7 +269,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Cushaw  
 ##### 24#       发表于 2021-6-14 12:44
@@ -282,7 +282,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  星の守  
 ##### 25#       发表于 2021-6-14 12:45
@@ -291,7 +291,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 狐狸能有狐宝这样的粉丝是上辈子积的德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Leltace  
 ##### 26#       发表于 2021-6-14 12:47
@@ -300,7 +300,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 👀👀👀
 
 
------
+*****
 
 ####  nowaki  
 ##### 27#       发表于 2021-6-14 12:48
@@ -309,7 +309,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 狐宝虽然8u味太重，⛵味太重，但也引不起全楼一起喷的，在吸仇恨方面，除了ywwuyi也就树佬了。
 
 
------
+*****
 
 ####  雪风utopia  
 ##### 28#       发表于 2021-6-14 12:51
@@ -318,7 +318,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 树宝属实是同接密码了，上次在贴贴楼引发大战的事情仿佛就发生在昨天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暴走的包子  
 ##### 29#       发表于 2021-6-14 12:51
@@ -329,7 +329,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 —— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 30#       发表于 2021-6-14 13:07
@@ -346,7 +346,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 
 
 
------
+*****
 
 ####  Reimu853  
 ##### 31#       发表于 2021-6-14 13:30
@@ -355,7 +355,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是劈crew专楼吗
 
 
------
+*****
 
 ####  掉头学姐  
 ##### 32#       发表于 2021-6-14 13:32
@@ -364,7 +364,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 心机主播心机粉，也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星の守  
 ##### 33#       发表于 2021-6-14 13:33
@@ -377,7 +377,7 @@ COD没有段位机制，上不了大分<img src="https://static.saraba1st.com/im
 crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 34#       发表于 2021-6-14 13:38
@@ -388,7 +388,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  星の守  
 ##### 35#       发表于 2021-6-14 13:41
@@ -397,7 +397,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 所以都一样烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whbstc4545  
 ##### 36#       发表于 2021-6-14 13:41
@@ -406,7 +406,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 你们再骂树佬佬佬佬佬佬，又要改apex名了，还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 37#       发表于 2021-6-14 13:45
@@ -417,7 +417,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  crito  
 ##### 38#       发表于 2021-6-14 13:46
@@ -426,7 +426,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 友情提示：s1没有锁来，发展成现在的样子纯粹是s1用户的选择
 
 
------
+*****
 
 ####  シナモンロール  
 ##### 39#       发表于 2021-6-14 13:47
@@ -456,7 +456,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 查看全部评分
 
 
------
+*****
 
 ####  星の守  
 ##### 40#       发表于 2021-6-14 13:49
@@ -467,7 +467,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 明白了，我狐宝p图造谣是正义披露，crew就是逆天贵物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  肚子疼了  
 ##### 41#       发表于 2021-6-14 13:50
@@ -478,7 +478,7 @@ crew反劈就是逆天傻批毒唯<img src="https://static.saraba1st.com/image/s
 s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为上分婊，大家怎么看”，保准能钓来一堆乐子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl，去看了眼v8的标准格式，应该改成“如何评价知名crew称呼夏色祭为上分婊”，这样比较标准一点
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 42#       发表于 2021-6-14 13:55
@@ -490,7 +490,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  V版公用账号  
 ##### 43#       发表于 2021-6-14 13:59
@@ -505,7 +505,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 不止两个.jpg
 
 
------
+*****
 
 ####  星の守  
 ##### 44#       发表于 2021-6-14 14:02
@@ -514,7 +514,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 我狐宝p图不是造谣只是水经验🤣
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 45#       发表于 2021-6-14 14:04
@@ -525,7 +525,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  星の守  
 ##### 46#       发表于 2021-6-14 14:06
@@ -534,7 +534,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 狐狸那张不是你p的是吧，不是你p的，往贴吧一发就不是造谣了是吧🤣
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 47#       发表于 2021-6-14 14:06
@@ -547,7 +547,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 那为什么没人劈nowaki野兔子，因为没办法，他都是能说出兔田佩科拉是母狗，一群野兔子恨不得把他打死的存在，还能怎么劈他。有本事以后crew也劈别人之前先来句凑阿夸是母狗。想攻击nowaki建议劈露露。
 
 
------
+*****
 
 ####  1678334706  
 ##### 48#       发表于 2021-6-14 14:09
@@ -556,7 +556,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 塔塔开 塔塔开 塔塔开 好久没看到这么直接的塔塔开了
 
 
------
+*****
 
 ####  星の守  
 ##### 49#       发表于 2021-6-14 14:11
@@ -565,7 +565,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 感知树骂人劈夏哥是不对啊，我不是早说了，有啥好脱罪的，可有人借着他劈crew劈夸，那不是和他一个德行吗？所以我说一样烂没问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  katern  
 ##### 50#       发表于 2021-6-14 14:11
@@ -574,7 +574,7 @@ s1人太少，建议发到v吧，起个名字叫“知名crew竟称夏色祭为�
 ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 51#       发表于 2021-6-14 14:11
@@ -583,7 +583,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 我自己就是crew 我劈crew干嘛
 
 
------
+*****
 
 ####  真飞鸟i  
 ##### 52#       发表于 2021-6-14 14:12
@@ -592,7 +592,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有问题啊，先找事的和被弱智到的能一样吗，感知树都上分婊了还不允许别人围殴他？你只能说nowaki和感知树一样烂。
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 53#       发表于 2021-6-14 14:13
@@ -604,7 +604,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  梅斯之围  
 ##### 54#       发表于 2021-6-14 14:18
@@ -617,7 +617,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 不过人家精力可充沛了，上次六字母楼一群人跑接力赛、就他一个人跑马拉松的场景还历历在目，你们慢慢陪他玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  深渊萃取  
 ##### 55#       发表于 2021-6-14 14:19
@@ -628,7 +628,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  asd225588  
 ##### 56#       发表于 2021-6-14 14:21
@@ -637,7 +637,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 树佬还不来看as吗
 
 
------
+*****
 
 ####  肚子疼了  
 ##### 57#       发表于 2021-6-14 14:21
@@ -652,7 +652,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 “前”冠军粉<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ashen-11  
 ##### 58#       发表于 2021-6-14 14:23
@@ -661,7 +661,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 看as不得天天破防，让树宝继续祸害凑阿库娅吧
 
 
------
+*****
 
 ####  面具13  
 ##### 59#       发表于 2021-6-14 14:24
@@ -670,7 +670,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 要不来个s1管人观众比烂大赛怎样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">尾宝你别笑，也有你一份
 
 
------
+*****
 
 ####  nowaki  
 ##### 60#       发表于 2021-6-14 14:25
@@ -681,7 +681,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 
 
 
------
+*****
 
 ####  シナモンロール  
 ##### 61#       发表于 2021-6-14 14:28
@@ -692,7 +692,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 我烂我有理，我能骂破防crew就足够了，评先进这种事儿你们忙去吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  裁决之光  
 ##### 62#       发表于 2021-6-14 14:30
@@ -701,7 +701,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 哇哦，大家为了回旋预热么。回旋了以后都是这种杏人扯头花贴，我倒是想到过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 63#       发表于 2021-6-14 14:33
@@ -710,7 +710,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 尬黑，糖宝作为国v粉还是有实力一战的。
 
 
------
+*****
 
 ####  ppf  
 ##### 64#       发表于 2021-6-14 14:33
@@ -721,7 +721,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 65#       发表于 2021-6-14 14:38
@@ -732,7 +732,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  winda  
 ##### 66#       发表于 2021-6-14 14:42
@@ -741,7 +741,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">从阿希首上钻三，到懒狗solo钻石，总要论证下她们有多菜，实在是有点经典了
 
 
------
+*****
 
 ####  ppf  
 ##### 67#       发表于 2021-6-14 14:44
@@ -752,7 +752,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  提挈天地  
 ##### 68#       发表于 2021-6-14 14:51
@@ -763,7 +763,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  nulla03  
 ##### 69#       发表于 2021-6-14 14:56
@@ -789,7 +789,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 查看全部评分
 
 
------
+*****
 
 ####  梅斯之围  
 ##### 70#       发表于 2021-6-14 14:58
@@ -798,7 +798,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 没有空（指有召即来）
 
 
------
+*****
 
 ####  魔法少女大头  
 ##### 71#       发表于 2021-6-14 15:01
@@ -809,7 +809,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  nulla03  
 ##### 72#       发表于 2021-6-14 15:02
@@ -820,7 +820,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 73#       发表于 2021-6-14 15:07
@@ -829,7 +829,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 树宝的游戏id迟早改名为“S1的管人粉丝除了crew都是一群畜牲”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 74#       发表于 2021-6-14 15:09
@@ -841,7 +841,7 @@ ttk上瘾了是吧，该改标题转型劈crew专楼了<img src="https://static.
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  admentus  
 ##### 75#       发表于 2021-6-14 15:11
@@ -855,7 +855,7 @@ crew           ❌
 a➗，露信   √
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 76#       发表于 2021-6-14 15:13
@@ -885,7 +885,7 @@ a➗，露信   √</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  雪风utopia  
 ##### 77#       发表于 2021-6-14 15:30
@@ -894,7 +894,7 @@ a➗，露信   √</blockquote>
 你们取名的时候别忘了加上“他妈的”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 78#       发表于 2021-6-14 15:39
@@ -906,7 +906,7 @@ a➗，露信   √</blockquote>
 我好想回去320那段时光，好想再看到那个狐宝，可是人走的走，变的变，再也回不去了。近期hololive的桐生可可事件加上后来的白上吹雪事件中他的发帖让我感觉他变了好多，从狐gachi🌿改名ZPLUS🌿，并把他那标志性的头像改掉后，他就慢慢开始魔怔了。
 
 
------
+*****
 
 ####  nowaki  
 ##### 79#       发表于 2021-6-14 15:40
@@ -915,7 +915,7 @@ a➗，露信   √</blockquote>
 开除粉籍这套还是杏奴（此处包括crew）玩的溜捏
 
 
------
+*****
 
 ####  Map-2  
 ##### 80#       发表于 2021-6-14 15:43
@@ -926,7 +926,7 @@ a➗，露信   √</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  肥到终点  
 ##### 81#       发表于 2021-6-14 15:44
@@ -937,7 +937,7 @@ a➗，露信   √</blockquote>
 上次连体楼大型互动的时候就来了一手经典的天狗要求删视频。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 82#       发表于 2021-6-14 15:45
@@ -946,7 +946,7 @@ a➗，露信   √</blockquote>
 我寻思祭丝楼整天拐着弯骂阿希上分婊也没见谁义愤填膺啊，同样的话换了个crew说怎么就开始世界大战了捏，果然大家都是喜欢给人预设立场方便对人不对事开始顺劈啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Reimu853  
 ##### 83#       发表于 2021-6-14 15:45
@@ -955,7 +955,7 @@ a➗，露信   √</blockquote>
 从两千到感知树，魔怔浓度不知道上升了多少倍，那相较起来自然是没什么意思
 
 
------
+*****
 
 ####  admentus  
 ##### 84#       发表于 2021-6-14 15:45
@@ -981,7 +981,7 @@ a➗，露信   √</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  雪风utopia  
 ##### 85#       发表于 2021-6-14 15:49
@@ -990,7 +990,7 @@ a➗，露信   √</blockquote>
 即使有五块钱天险，不魔怔的人还是不能在s1生存，究竟是五块钱把人变成了鬼，还是说这里只有鬼才能生存<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シナモンロール  
 ##### 86#       发表于 2021-6-14 15:49
@@ -1007,7 +1007,7 @@ a➗，露信   √</blockquote>
 此乃“你是真的有点急了”
 
 
------
+*****
 
 ####  肥到终点  
 ##### 87#       发表于 2021-6-14 15:49
@@ -1020,7 +1020,7 @@ a➗，露信   √</blockquote>
 一边大喊我紫砂了，一边喊你怎么不拦着我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  シナモンロール  
 ##### 88#       发表于 2021-6-14 15:50
@@ -1035,7 +1035,7 @@ a➗，露信   √</blockquote>
 别的不说，青叶现在还没被打成小丑，每一个管人观众都有责任<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星の守  
 ##### 89#       发表于 2021-6-14 15:52
@@ -1044,7 +1044,7 @@ a➗，露信   √</blockquote>
 要是开除粉籍和骂他有用的话，我早就做了，然后就不会有人劈crew劈夸了么？想的太美了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  肥到终点  
 ##### 90#       发表于 2021-6-14 15:56
@@ -1055,7 +1055,7 @@ a➗，露信   √</blockquote>
 
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 91#       发表于 2021-6-14 15:57
@@ -1070,7 +1070,7 @@ a➗，露信   √</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  星の守  
 ##### 92#       发表于 2021-6-14 15:58
@@ -1079,7 +1079,7 @@ a➗，露信   √</blockquote>
 是啊，crew就该默默唉劈，剥夺话语权才行，早该这么做了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 93#       发表于 2021-6-14 16:02
@@ -1104,7 +1104,7 @@ a➗，露信   √</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  肥到终点  
 ##### 94#       发表于 2021-6-14 16:05
@@ -1117,7 +1117,7 @@ a➗，露信   √</blockquote>
 也是，是魔愣的脑回路
 
 
------
+*****
 
 ####  屑屑代沟尼亚  
 ##### 95#       发表于 2021-6-14 16:06
@@ -1142,7 +1142,7 @@ Screenshot_2021-06-14-16-03-47-653_com.android.browser~01.png
 <img src="https://img.saraba1st.com/forum/202106/14/160646vzzviqwk6wa2vkv0.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 96#       发表于 2021-6-14 16:07
@@ -1156,7 +1156,7 @@ crew又在装受害者了，在s1受了点小委屈就搞得好像全世界都�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  星の守  
 ##### 97#       发表于 2021-6-14 16:07
@@ -1165,7 +1165,7 @@ crew又在装受害者了，在s1受了点小委屈就搞得好像全世界都�
 先来聊聊臊皮的定义，道歉也算吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 98#       发表于 2021-6-14 16:09
@@ -1187,7 +1187,7 @@ crew又在装受害者了，在s1受了点小委屈就搞得好像全世界都�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 99#       发表于 2021-6-14 16:10
@@ -1201,7 +1201,7 @@ crew又在装受害者了，在s1受了点小委屈就搞得好像全世界都�
 我不知道也不关心这位crew以前说过什么弱智语录，但他起码看过姓夏的打A还扒了数据试图论证夏apex打的烂。你们一群人跑祭丝楼辩“你主子阿夸才打的烂，虽然我没看过但夏色祭她就是凭实力上的大师！”很怪啊
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 100#       发表于 2021-6-14 16:10
@@ -1212,7 +1212,7 @@ crew又在装受害者了，在s1受了点小委屈就搞得好像全世界都�
 被代表惹，可能说的是jp祭丝吧
 
 
------
+*****
 
 ####  Fakerの幻影  
 ##### 101#       发表于 2021-6-14 16:11
@@ -1221,7 +1221,7 @@ crew又在装受害者了，在s1受了点小委屈就搞得好像全世界都�
 一句话总结:夏色祭拿冠军上大师没有含金量
 
 
------
+*****
 
 ####  Aminor  
 ##### 102#       发表于 2021-6-14 16:11
@@ -1230,7 +1230,7 @@ crew又在装受害者了，在s1受了点小委屈就搞得好像全世界都�
 S1典中典环节之天狗+大家庭粉vsCREW
 
 
------
+*****
 
 ####  肥到终点  
 ##### 103#       发表于 2021-6-14 16:12
@@ -1239,7 +1239,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 又搁这揣着明白装糊涂是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 104#       发表于 2021-6-14 16:13
@@ -1251,7 +1251,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  雪风utopia  
 ##### 105#       发表于 2021-6-14 16:13
@@ -1262,7 +1262,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 纠正:夏色祭上钻石拿大师不如湊阿夸上钻石有含金量
 
 
------
+*****
 
 ####  肥到终点  
 ##### 106#       发表于 2021-6-14 16:15
@@ -1271,7 +1271,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 中心思想:天道酬勤
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 107#       发表于 2021-6-14 16:16
@@ -1282,7 +1282,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  OldGlory  
 ##### 108#       发表于 2021-6-14 16:18
@@ -1291,7 +1291,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 没有含金量，没有含金量！
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 109#       发表于 2021-6-14 16:19
@@ -1302,7 +1302,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Reimu853  
 ##### 110#       发表于 2021-6-14 16:20
@@ -1311,7 +1311,7 @@ S1典中典环节之天狗+大家庭粉vsCREW
 说到大亏上钻石的含金量，我就要打开我的文本了
 
 
------
+*****
 
 ####  肚子疼了  
 ##### 111#       发表于 2021-6-14 16:21
@@ -1325,7 +1325,7 @@ yysy，s1的天狗绝大多数为贴贴人出身，你总不能开除他们的cr
 此乃暗黑贴贴人（暗黑crew）+大家庭粉vs毒唯crew
 
 
------
+*****
 
 ####  梅斯之围  
 ##### 112#       发表于 2021-6-14 16:21
@@ -1336,7 +1336,7 @@ yysy，s1的天狗绝大多数为贴贴人出身，你总不能开除他们的cr
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那些crew天天aoe别人什么关我屁事，你端个屎盆子到处乱扣只会显得没说服力
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 113#       发表于 2021-6-14 16:22
@@ -1345,7 +1345,7 @@ yysy，s1的天狗绝大多数为贴贴人出身，你总不能开除他们的cr
 要劈crew就直接劈，没必要拿小肥妹当拐。在夏色祭敢直播打钻排之前，这大师的含金量确实要打个问号
 
 
------
+*****
 
 ####  狗狗狗狗狗  
 ##### 114#       发表于 2021-6-14 16:25
@@ -1379,7 +1379,7 @@ yysy，s1的天狗绝大多数为贴贴人出身，你总不能开除他们的cr
 查看全部评分
 
 
------
+*****
 
 ####  ppf  
 ##### 115#       发表于 2021-6-14 16:27
@@ -1390,7 +1390,7 @@ yysy，s1的天狗绝大多数为贴贴人出身，你总不能开除他们的cr
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  星の守  
 ##### 116#       发表于 2021-6-14 16:29
@@ -1399,7 +1399,7 @@ yysy，s1的天狗绝大多数为贴贴人出身，你总不能开除他们的cr
 各位别捧了，夸其实菜的很，最多也就个钻石守门员水平，crew先投降了🏳🏳🏳🏳🏳🏳
 
 
------
+*****
 
 ####  asd225588  
 ##### 117#       发表于 2021-6-14 16:30
@@ -1412,7 +1412,7 @@ yysy，s1的天狗绝大多数为贴贴人出身，你总不能开除他们的cr
 syl我现在看国v不代表之前的梁木消散了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 118#       发表于 2021-6-14 16:30
@@ -1423,7 +1423,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  狐言乱语  
 ##### 119#       发表于 2021-6-14 16:38
@@ -1434,7 +1434,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  星の守  
 ##### 120#       发表于 2021-6-14 16:40
@@ -1445,7 +1445,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 
 
 
------
+*****
 
 ####  nowaki  
 ##### 121#       发表于 2021-6-14 16:42
@@ -1461,7 +1461,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 杏奴果然一丘之貉，甩锅冰清玉洁一套一套的哦。
 
 
------
+*****
 
 ####  qq845629713  
 ##### 122#       发表于 2021-6-14 16:45
@@ -1470,7 +1470,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 需要高权限号私聊我
 
 
------
+*****
 
 ####  雪风utopia  
 ##### 123#       发表于 2021-6-14 16:46
@@ -1481,7 +1481,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 高权限号多少钱一次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.shelter  
 ##### 124#       发表于 2021-6-14 16:47
@@ -1490,7 +1490,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 真的有人去车夸吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，不会真就天下大泥吧
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 125#       发表于 2021-6-14 16:50
@@ -1504,7 +1504,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  FCCHua  
 ##### 126#       发表于 2021-6-14 16:55
@@ -1516,7 +1516,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 哦，还有组队拿了个比赛第一<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 127#       发表于 2021-6-14 16:56
@@ -1527,7 +1527,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  雪风utopia  
 ##### 128#       发表于 2021-6-14 16:57
@@ -1536,7 +1536,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 别的女人（指湊阿夸）上大师不香吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  holoan  
 ##### 129#       发表于 2021-6-14 16:58
@@ -1545,7 +1545,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 我寻思5ch那群人已经够弱智了然而到现在他们也没讨论过这个话题
 
 
------
+*****
 
 ####  Fakerの幻影  
 ##### 130#       发表于 2021-6-14 16:59
@@ -1554,7 +1554,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 还是没有含金量，要是是大亏上的大师，怕不是大吹特吹
 
 
------
+*****
 
 ####  nulla03  
 ##### 131#       发表于 2021-6-14 16:59
@@ -1565,7 +1565,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  Abyssmarionette  
 ##### 132#       发表于 2021-6-14 17:01
@@ -1574,7 +1574,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">祭丝大战crew是什么神必场面，这下泥了
 
 
------
+*****
 
 ####  墨白凌  
 ##### 133#       发表于 2021-6-14 17:11
@@ -1590,7 +1590,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 —— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  Hemis  
 ##### 134#       发表于 2021-6-14 17:17
@@ -1602,7 +1602,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 还是全肯定祭丝死得早，没人怼刺头，不然两边pvp祭丝日记楼可以多个二十来页KPI了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  墨白凌  
 ##### 135#       发表于 2021-6-14 17:20
@@ -1620,7 +1620,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 —— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 136#       发表于 2021-6-14 17:20
@@ -1631,7 +1631,7 @@ syl我现在看国v不代表之前的梁木消散了<img src="https://static.sar
 crew能吹硬实力，祭丝也能吹一番<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 137#       发表于 2021-6-14 17:23
@@ -1650,7 +1650,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  墨白凌  
 ##### 138#       发表于 2021-6-14 17:24
@@ -1665,7 +1665,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 —— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  梅斯之围  
 ##### 139#       发表于 2021-6-14 17:25
@@ -1674,7 +1674,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 两个人双排的话，谁更坑的问题又要成为v版kpi的源泉了
 
 
------
+*****
 
 ####  FCCHua  
 ##### 140#       发表于 2021-6-14 17:26
@@ -1683,7 +1683,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 希小姐的全肯定来了来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nowaki  
 ##### 141#       发表于 2021-6-14 17:28
@@ -1699,7 +1699,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 已经被开除了，前面有，现在是杏奴钦点的一个魂+露信捏
 
 
------
+*****
 
 ####  狗狗狗狗狗  
 ##### 142#       发表于 2021-6-14 17:29
@@ -1708,7 +1708,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">没有全肯定
 
 
------
+*****
 
 ####  Hemis  
 ##### 143#       发表于 2021-6-14 17:29
@@ -1728,7 +1728,7 @@ s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">不过要是还有这样的祭丝像我这样的早就在日记楼被怼翻了吧
 
 
------
+*****
 
 ####  holoan  
 ##### 144#       发表于 2021-6-14 17:34
@@ -1742,7 +1742,7 @@ s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017
 你平时看谁的直播
 
 
------
+*****
 
 ####  墨白凌  
 ##### 145#       发表于 2021-6-14 17:34
@@ -1757,7 +1757,7 @@ s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017
 —— 来自 Xiaomi M2002J9E, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 146#       发表于 2021-6-14 17:36
@@ -1778,7 +1778,7 @@ s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017
 苟完分后发推两人发推感谢对方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cheatdeath3  
 ##### 147#       发表于 2021-6-14 17:46
@@ -1798,7 +1798,7 @@ s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017
 单推都不介意的事祭丝怎么可能介意
 
 
------
+*****
 
 ####  admentus  
 ##### 148#       发表于 2021-6-14 17:49
@@ -1813,7 +1813,7 @@ s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017
 得自己从他历史发言得出答案，不然我和祭丝说的不是都有可能是黑屁
 
 
------
+*****
 
 ####  凛子也想要五个  
 ##### 149#       发表于 2021-6-14 17:54
@@ -1831,7 +1831,7 @@ s1祭丝都魔怔了<img src="https://static.saraba1st.com/image/smiley/face2017
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  昆西昆希昆  
 ##### 150#       发表于 2021-6-14 18:17
@@ -1846,7 +1846,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 
 
 
------
+*****
 
 ####  味增味增  
 ##### 151#       发表于 2021-6-14 19:04
@@ -1855,7 +1855,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 通过这事我了解到一件事，原来含金量真的可以钓到crew
 
 
------
+*****
 
 ####  stedckk  
 ##### 152#       发表于 2021-6-14 21:15
@@ -1868,7 +1868,7 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 
                                             
 
------
+*****
 
 ####  蒹葭公子  
 ##### 153#       发表于 2021-6-16 15:09

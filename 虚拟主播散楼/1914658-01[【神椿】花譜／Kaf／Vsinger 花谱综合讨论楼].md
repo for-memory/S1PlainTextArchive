@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2021-03-13 13:08** 
 
 
------
+*****
 
 ####  moerisa  
 ##### 1#       楼主       发表于 2020-2-19 13:21
@@ -42,7 +42,7 @@
 查看全部评分
 
 
------
+*****
 
 ####  moerisa  
 ##### 2#         楼主| 发表于 2020-2-19 13:31
@@ -53,7 +53,7 @@
  nico超会议2019 VTuber区 花譜部分 （中文字幕）  花譜　#29　「quiz」 【オリジナルMV】  花譜　#06　「糸」 【オリジナルMV】  花譜　#09　「心臓と絡繰」 【オリジナルMV】  花譜   #15　「都忘掉吧」【MV】【中文字幕】  花譜　#17　「雛鳥」 【オリジナルMV】  花譜　#22　「過去を喰らう」【オリジナルMV】（中文字幕）  花譜　#25　「夜が降り止む前に」 【オリジナルMV】  花譜　#36 「不可解」【オリジナルMV「不可解」Live Ver.】  花譜　#27 「然后成为花」  【花譜】粉雪【VTuber翻唱】  【歌ってみた】雨き声残響 covered by 花譜  【歌ってみた】君が夜の海に還るまで covered by 花譜 
 
 
------
+*****
 
 ####  神无月依  
 ##### 3#       发表于 2020-2-19 21:11
@@ -62,7 +62,7 @@
 官方号不知道为什么没有花谱翻唱的死神
 
 
------
+*****
 
 ####  xsl1099  
 ##### 4#       发表于 2020-2-20 01:49
@@ -73,7 +73,7 @@
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  moerisa  
 ##### 5#         楼主| 发表于 2020-2-20 09:18
@@ -82,7 +82,7 @@
 粉雪也没有，大概是版权问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原创曲也有几首没传
 
 
------
+*****
 
 ####  moerisa  
 ##### 6#         楼主| 发表于 2020-2-20 18:06
@@ -91,7 +91,7 @@
 啊新的橙曲……相性太好了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  嵐ステリ  
 ##### 7#       发表于 2020-2-20 19:52
@@ -100,7 +100,7 @@
 这是裸春楼还是花谱专楼？可以讨论理芽么<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moerisa  
 ##### 8#         楼主| 发表于 2020-2-24 13:28
@@ -109,7 +109,7 @@
 www都可以呀，反正裸春一家在国内讨论度都很低，情绪昨天发原创曲我还想搬一下来着
 
 
------
+*****
 
 ####  jaycearsumi  
 ##### 9#       发表于 2020-2-24 15:20
@@ -118,7 +118,7 @@ www都可以呀，反正裸春一家在国内讨论度都很低，情绪昨天�
 私伦理高强度中毒，女儿可爱
 
 
------
+*****
 
 ####  namelessy  
 ##### 10#       发表于 2020-2-24 16:03
@@ -134,7 +134,7 @@ www都可以呀，反正裸春一家在国内讨论度都很低，情绪昨天�
 这tm大概就是醍醐味吧
 
 
------
+*****
 
 ####  嵐ステリ  
 ##### 11#       发表于 2020-2-24 18:58
@@ -143,7 +143,7 @@ www都可以呀，反正裸春一家在国内讨论度都很低，情绪昨天�
 理芽的新原创的teaser出了。这个感觉和花谱重合度太高了，感觉理芽更适合那些坏坏的、酷酷的歌曲
 
 
------
+*****
 
 ####  嵐ステリ  
 ##### 12#       发表于 2020-2-27 18:10
@@ -155,7 +155,7 @@ www都可以呀，反正裸春一家在国内讨论度都很低，情绪昨天�
 果然Misumi就是不行么，毁铃人就算了还来整理芽……<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moerisa  
 ##### 13#         楼主| 发表于 2020-2-27 19:02
@@ -164,7 +164,7 @@ www都可以呀，反正裸春一家在国内讨论度都很低，情绪昨天�
 不可解再改成无观众线上配信了，该说是无可奈何的事吗……花谱的声音像要哭出来一样，我心好痛<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moerisa  
 ##### 14#         楼主| 发表于 2020-2-29 21:12
@@ -173,7 +173,7 @@ www都可以呀，反正裸春一家在国内讨论度都很低，情绪昨天�
 Flowering循环两天，越听越上头了……毕业曲这个味儿其实没啥毛病<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">希望以后原创曲风能和花谱多些差别吧，感觉现在神椿还没给理芽找清风格定位……
 
 
------
+*****
 
 ####  活活火火  
 ##### 15#       发表于 2020-2-29 22:03
@@ -187,7 +187,7 @@ Flowering循环两天，越听越上头了……毕业曲这个味儿其实没�
 我觉得msm写的新曲没问题啊，挺好听的，最后那段转换也很不错<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">关键还是理芽这声线和花谱失去区分度，难受
 
 
------
+*****
 
 ####  呀呀呀  
 ##### 16#       发表于 2020-2-29 22:44
@@ -198,7 +198,7 @@ Flowering循环两天，越听越上头了……毕业曲这个味儿其实没�
 另外情绪酱真可爱 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moerisa  
 ##### 17#         楼主| 发表于 2020-3-9 17:36
@@ -207,7 +207,7 @@ Flowering循环两天，越听越上头了……毕业曲这个味儿其实没�
 线上票7000円，油土鳖前几首免费放送。还行吧
 
 
------
+*****
 
 ####  moerisa  
 ##### 18#         楼主| 发表于 2020-3-11 12:48
@@ -216,7 +216,7 @@ Flowering循环两天，越听越上头了……毕业曲这个味儿其实没�
 エモすぎる……花谱的声音和钢琴太配了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">γ里最好的一首也是伞村remix的雏鸟，我好力
 
 
------
+*****
 
 ####  活活火火  
 ##### 19#       发表于 2020-3-15 14:32
@@ -253,7 +253,7 @@ BGM是专辑里面最后的一首纯音乐The end of prologue，意为序幕的�
 2020-3-15 14:31 上传
 
 
------
+*****
 
 ####  moerisa  
 ##### 20#         楼主| 发表于 2020-3-16 18:05
@@ -277,7 +277,7 @@ Screenshot_20200316_180655_com.huawei.browser.png
 <img src="https://img.saraba1st.com/forum/202003/16/180648sockj8pffpvopkry.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moerisa  
 ##### 21#         楼主| 发表于 2020-3-20 12:20
@@ -312,7 +312,7 @@ huapu.jpg
 <img src="https://img.saraba1st.com/forum/202003/20/122042d1ro3hrxb0ubzhxx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  namelessy  
 ##### 22#       发表于 2020-3-20 12:28
@@ -321,7 +321,7 @@ huapu.jpg
 爽了！！！！！！
 
 
------
+*****
 
 ####  moerisa  
 ##### 23#         楼主| 发表于 2020-3-20 12:36
@@ -343,7 +343,7 @@ huapu.jpg
 <img src="https://img.saraba1st.com/forum/202003/20/123628wrmjra1wy1m1z1sw.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  寒星  
 ##### 24#       发表于 2020-3-20 13:19
@@ -352,7 +352,7 @@ huapu.jpg
 有中文字幕无延时？这么劲？哪来的同传资源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他什么holo、hh动不动就延半小时
 
 
------
+*****
 
 ####  moerisa  
 ##### 25#         楼主| 发表于 2020-3-20 14:51
@@ -361,7 +361,7 @@ huapu.jpg
 可能是提前给的台本吧，看过不可解的都知道花谱语汇力有多低，这次还是无观客live，连临场发挥都不用，照着台本彩排就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moerisa  
 ##### 26#         楼主| 发表于 2020-3-23 16:00
@@ -370,7 +370,7 @@ huapu.jpg
 B站404同步待机中<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  活活火火  
 ##### 27#       发表于 2020-3-23 19:00
@@ -379,7 +379,7 @@ B站404同步待机中<img src="https://static.saraba1st.com/image/smiley/face20
 绝了，前面还说这同传音质心疼kafu，结果404环节结束音质突然变好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moerisa  
 ##### 28#         楼主| 发表于 2020-3-23 19:35
@@ -388,7 +388,7 @@ B站404同步待机中<img src="https://static.saraba1st.com/image/smiley/face20
 199我血赚，神椿血亏<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  活活火火  
 ##### 29#       发表于 2020-3-23 20:33
@@ -397,7 +397,7 @@ B站404同步待机中<img src="https://static.saraba1st.com/image/smiley/face20
 还有理芽我的妈，赚了赚了赚大了
 
 
------
+*****
 
 ####  lhawp  
 ##### 30#       发表于 2020-3-23 20:38
@@ -408,7 +408,7 @@ B站404同步待机中<img src="https://static.saraba1st.com/image/smiley/face20
 毕竟中之人也在一直成长在经历青春期，这也是这个企划的魅力吧
 
 
------
+*****
 
 ####  moerisa  
 ##### 31#         楼主| 发表于 2020-3-23 21:00
@@ -417,7 +417,7 @@ B站404同步待机中<img src="https://static.saraba1st.com/image/smiley/face20
 除了免费部分的收音和几处卡顿，真的满足了……花谱真的成长了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死去的御景柚姬  
 ##### 32#       发表于 2020-3-23 21:17
@@ -428,7 +428,7 @@ B站关闭，nico开启
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  moerisa  
 ##### 33#         楼主| 发表于 2020-4-3 11:38
@@ -450,7 +450,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 <img src="https://img.saraba1st.com/forum/202004/03/113738rhse8ieiwehl57r7.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  活活火火  
 ##### 34#       发表于 2020-6-1 00:23
@@ -511,7 +511,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 2020-6-1 00:26 上传
 
 
------
+*****
 
 ####  xsl1099  
 ##### 35#       发表于 2020-6-1 02:04
@@ -522,7 +522,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 —— 来自 Xiaomi Mi 10 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
------
+*****
 
 ####  活活火火  
 ##### 36#       发表于 2020-6-1 10:49
@@ -531,7 +531,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 又听了听特蕾莎的歌，第二首倒是正常不少，稍微大众化的futurebass。专业级的CG属实把我吓到了，这裸春请来的人不得了。特雷莎目前各个平台的粉丝量还不多，大概由于节目效果还是比较有限。希望能好好整个活，期待一波后续发展<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sylali  
 ##### 37#       发表于 2020-6-3 22:19
@@ -543,7 +543,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 今天发了宇多田光的翻唱“first love”。您再听听？和两首debut曲的曲风差别很大。
 
 
------
+*****
 
 ####  活活火火  
 ##### 38#       发表于 2020-6-7 10:16
@@ -555,7 +555,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 虽然过了好几天还是说一下想法吧。。。先说唱功，我流行人声听得不太多，但17岁这个水准应该已经非常厉害了吧，技巧，气息都有。挑宇多田光目的很明显，秀一口标准双语，还是唱的大众金曲。现在给我的感觉是神椿完全不打算让她跟另外几位二次元同台竞技（统称二次元，委屈几位）。后面要整啥活挺难说的，我觉得还是会走先锋派的路线。另外还有一个可能是现在粉丝数量属实太拉胯...运营觉得有必要这样子整点流量。所以还是要看看接下来怎么整活，现在属实差点劲。老希望工程了。
 
 
------
+*****
 
 ####  moerisa  
 ##### 39#         楼主| 发表于 2020-6-9 15:09
@@ -564,7 +564,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 特蕾莎好像就建模了一个头，每次在那晃啊晃的我有点欣赏不来……
 
 
------
+*****
 
 ####  活活火火  
 ##### 40#       发表于 2020-6-9 18:58
@@ -576,7 +576,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 晃来晃去CG味就浓了，确实单纯欣赏起来会有点怪。。
 
 
------
+*****
 
 ####  活活火火  
 ##### 41#       发表于 2020-6-9 19:01
@@ -595,7 +595,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 这他妈不是照片？
 
 
------
+*****
 
 ####  moerisa  
 ##### 42#         楼主| 发表于 2020-6-14 18:32
@@ -604,7 +604,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 开始了！
 
 
------
+*****
 
 ####  moerisa  
 ##### 43#         楼主| 发表于 2020-6-14 18:38
@@ -613,7 +613,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 耳朵溶化了……
 
 
------
+*****
 
 ####  moerisa  
 ##### 44#         楼主| 发表于 2020-7-9 18:19
@@ -622,7 +622,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 日本沉没2020最终话ED，排面.jpg
 
 
------
+*****
 
 ####  活活火火  
 ##### 45#       发表于 2020-8-8 22:08
@@ -641,7 +641,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 2020-8-8 22:00 上传
 
 
------
+*****
 
 ####  YODOboi  
 ##### 46#       发表于 2020-8-8 23:10
@@ -650,7 +650,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 这种在国内没流量的代理都是好几个打包给同一家的啦，懂得都懂，但凡神椿有点脑子和搬运组合作也好过这种拿钱不干活的投机逼
 
 
------
+*****
 
 ####  活活火火  
 ##### 47#       发表于 2020-10-9 21:05
@@ -659,7 +659,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 看完纪录片首播，花谱太可爱了。。。逐渐丧失理智，明天明天快点到来啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  呀呀呀  
 ##### 48#       发表于 2020-10-10 20:24
@@ -668,7 +668,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 今晚真是爽到 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死去的御景柚姬  
 ##### 49#       发表于 2020-10-10 20:55
@@ -679,7 +679,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  AEmpire  
 ##### 50#       发表于 2020-10-10 20:58
@@ -690,7 +690,7 @@ Screenshot_20200403_113755_com.twitter.android.png
 syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  死去的御景柚姬  
 ##### 51#       发表于 2020-10-10 21:03
@@ -701,7 +701,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  moerisa  
 ##### 52#         楼主| 发表于 2020-10-10 21:42
@@ -710,7 +710,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 后半段我tm……全程没合上嘴
 
 
------
+*****
 
 ####  欠损  
 ##### 53#       发表于 2020-10-10 22:14
@@ -719,7 +719,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 这个团队放到vtb区个子太高了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  名余竹  
 ##### 54#       发表于 2020-10-10 22:15
@@ -728,7 +728,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 总感觉这次结尾曲有点不够劲，也可能是因为再的《宣战》太劲了，可恶啊，这次live为什么没有宣战
 
 
------
+*****
 
 ####  moerisa  
 ##### 55#         楼主| 发表于 2020-10-10 23:03
@@ -737,7 +737,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 但是言灵很劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  namelessy  
 ##### 56#       发表于 2020-10-11 06:28
@@ -748,7 +748,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  死去的御景柚姬  
 ##### 57#       发表于 2020-10-11 06:53
@@ -761,7 +761,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 今天同时间有录播来着
 
 
------
+*****
 
 ####  namelessy  
 ##### 58#       发表于 2020-10-11 07:59
@@ -775,7 +775,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  活活火火  
 ##### 59#       发表于 2020-10-12 00:14
@@ -792,7 +792,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 理想预期是10分的话，整体8.5分吧，如果对神椿有兴趣的话，付费部分的199绝对不亏。希望神椿再接再厉，花谱的二专，还有不可解Q2，还有新企划速速安排上，大家可以持续专注<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  今夕何夕c  
 ##### 60#       发表于 2020-10-12 00:45
@@ -803,7 +803,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  ochikawa  
 ##### 61#       发表于 2020-10-17 19:30
@@ -812,7 +812,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 花谱和佐仓合唱的あさひ也太好听了吧 特别是近乎哭腔的唱法 我一秒沦陷了
 
 
------
+*****
 
 ####  الطائر  
 ##### 62#       发表于 2020-10-21 05:46
@@ -836,7 +836,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 ちょっと遅くなりましたが！おめでとうございました！</blockquote>
 
 
------
+*****
 
 ####  活活火火  
 ##### 63#       发表于 2020-10-29 16:23
@@ -865,7 +865,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 这样子也好，做一样做好一样，希望接下来是更光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  الطائر  
 ##### 64#       发表于 2020-10-30 05:25
@@ -880,7 +880,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 [http://thinkr.jp/ourstudio/](http://thinkr.jp/ourstudio/)
 
 
------
+*****
 
 ####  الطائر  
 ##### 65#       发表于 2020-10-30 05:40
@@ -893,7 +893,7 @@ syl 新的金丝雀形态更好看<img src="https://static.saraba1st.com/image/s
 海外的虚拟模特是这个画风（[https://www.clo3d.com/company/newsdetail/101](https://www.clo3d.com/company/newsdetail/101)）
 
 
------
+*****
 
 ####  walfeds  
 ##### 66#       发表于 2020-10-30 07:04
@@ -906,7 +906,7 @@ thinkr官网终于改完了？<img src="https://static.saraba1st.com/image/smile
 —— 来自 blackshark SKW-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  活活火火  
 ##### 67#       发表于 2020-10-31 12:12
@@ -921,7 +921,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 不过这样一来不知道影不影响后续与SSS的合作，米山舞和PALOW的画也是想要看的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  الطائر  
 ##### 68#       发表于 2020-10-31 19:20
@@ -940,7 +940,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://www.notion.so/Virtual-Hu ... 883a9517f0717b9a331](https://www.notion.so/Virtual-Human-ff450ff909b64883a9517f0717b9a331)
 
 
------
+*****
 
 ####  fore_long  
 ##### 69#       发表于 2020-11-2 23:14
@@ -949,7 +949,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 印象里面她就是京阿尼火灾后捐出自己演唱会全部收入的那位...
 
 
------
+*****
 
 ####  الطائر  
 ##### 70#       发表于 2020-11-7 15:49
@@ -975,7 +975,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1324909470623780864](https://twitter.com/KOKO__virtual/status/1324909470623780864)
 
 
------
+*****
 
 ####  الطائر  
 ##### 71#       发表于 2020-11-11 21:00
@@ -1003,7 +1003,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1326481725065629697](https://twitter.com/KOKO__virtual/status/1326481725065629697)
 
 
------
+*****
 
 ####  活活火火  
 ##### 72#       发表于 2020-11-18 16:59
@@ -1030,7 +1030,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 这要是不改，那神椿可就是真的蠢到家了。
 
 
------
+*****
 
 ####  活活火火  
 ##### 73#       发表于 2020-11-18 20:49
@@ -1067,7 +1067,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 曲子的话，编曲上没有太多新意了，黑柿子惯用的元素都在里面。可圈可点的是作曲，这次刻意收敛了一点之后，多听几遍还挺有味道，所以总的来说加分。
 
 
------
+*****
 
 ####  الطائر  
 ##### 74#       发表于 2020-11-24 16:15
@@ -1093,7 +1093,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1331116675094102016](https://twitter.com/KOKO__virtual/status/1331116675094102016)
 
 
------
+*****
 
 ####  2517君改二  
 ##### 75#       发表于 2020-11-24 19:23
@@ -1102,7 +1102,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 这个魔法专辑好多都发过单曲了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  活活火火  
 ##### 76#       发表于 2020-11-26 15:18
@@ -1113,7 +1113,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 神椿主打互联网曝光，自己做厂牌。买专本来就是厨力放出的意思了，一张5000jpy，还按两个版本卖。而且booth的运费也是直接730，国内的话到手差不多就得花四百多块钱…萌萌人的钱包真好收割<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  2517君改二  
 ##### 77#       发表于 2020-11-26 15:23
@@ -1125,7 +1125,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 别提了，该买还是会买的。反正结果还不是下个下载版听<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  الطائر  
 ##### 78#       发表于 2020-12-1 20:50
@@ -1143,7 +1143,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1333721632305598464](https://twitter.com/KOKO__virtual/status/1333721632305598464)
 
 
------
+*****
 
 ####  活活火火  
 ##### 79#       发表于 2020-12-9 00:00
@@ -1165,7 +1165,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 来年春天也是土JK（
 
 
------
+*****
 
 ####  jaycearsumi  
 ##### 80#       发表于 2020-12-28 14:29
@@ -1174,7 +1174,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 坛友们有puff live和candy live的录像吗，错过了想补一下<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  الطائر  
 ##### 81#       发表于 2020-12-30 09:04
@@ -1200,7 +1200,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1342062817982042112](https://twitter.com/KOKO__virtual/status/1342062817982042112)
 
 
------
+*****
 
 ####  الطائر  
 ##### 82#       发表于 2021-1-1 15:57
@@ -1216,7 +1216,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 2021-1-1 15:43 上传
 
 
------
+*****
 
 ####  الطائر  
 ##### 83#       发表于 2021-1-2 20:04
@@ -1245,7 +1245,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 2021-1-2 20:03 上传
 
 
------
+*****
 
 ####  الطائر  
 ##### 84#       发表于 2021-1-8 01:45
@@ -1275,7 +1275,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1347121801734721545](https://twitter.com/KOKO__virtual/status/1347121801734721545)
 
 
------
+*****
 
 ####  الطائر  
 ##### 85#       发表于 2021-1-16 11:02
@@ -1305,7 +1305,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1350020860434817026](https://twitter.com/KOKO__virtual/status/1350020860434817026)
 
 
------
+*****
 
 ####  الطائر  
 ##### 86#       发表于 2021-2-10 08:15
@@ -1333,7 +1333,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1359079977560408066](https://twitter.com/KOKO__virtual/status/1359079977560408066)
 
 
------
+*****
 
 ####  الطائر  
 ##### 87#       发表于 2021-2-23 03:52
@@ -1374,7 +1374,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 絵画：群青 (@qunqing123)</blockquote>
 
 
------
+*****
 
 ####  有机QP  
 ##### 88#       发表于 2021-2-28 20:10
@@ -1383,7 +1383,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 没想到情绪画画也这么好看，真是厉害啊。
 
 
------
+*****
 
 ####  الطائر  
 ##### 89#       发表于 2021-3-7 09:25
@@ -1410,7 +1410,7 @@ FLAT Studio也被归到一个会社下面了，好耶，想看loudraw画花谱<i
 [https://twitter.com/KOKO__virtual/status/1368128732318199808](https://twitter.com/KOKO__virtual/status/1368128732318199808)
 
 
------
+*****
 
 ####  moerisa  
 ##### 90#         楼主| 发表于 2021-3-13 18:04
@@ -1436,7 +1436,7 @@ QQ图片20210313180638.jpg
 <img src="https://img.saraba1st.com/forum/202103/13/180649bsar10vreiccsvay.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千本blur  
 ##### 91#       发表于 2021-3-13 20:05
@@ -1448,7 +1448,7 @@ QQ图片20210313180638.jpg
 神椿的这几个歌姬，唱功都是真的好。
 
 
------
+*****
 
 ####  tankai  
 ##### 92#       发表于 2021-3-13 20:22
@@ -1457,7 +1457,7 @@ QQ图片20210313180638.jpg
 这大成功啊.
 
 
------
+*****
 
 ####  千本blur  
 ##### 93#       发表于 2021-3-13 20:41

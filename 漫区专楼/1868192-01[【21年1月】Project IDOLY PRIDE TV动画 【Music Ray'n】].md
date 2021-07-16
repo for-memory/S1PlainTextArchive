@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2021-03-29 11:38** 
 
 
------
+*****
 
 ####  shadowof  
 ##### 1#       楼主       发表于 2019-11-27 10:58
@@ -68,7 +68,7 @@ Aile to Yell / TRINITYAiLE
 [https://animeanime.jp/article/2019/12/27/50635.html](https://animeanime.jp/article/2019/12/27/50635.html)
 
 
------
+*****
 
 ####  烈之斩  
 ##### 2#       发表于 2019-11-27 12:31
@@ -80,7 +80,7 @@ Aile to Yell / TRINITYAiLE
 看这char图三期也是3人?
 
 
------
+*****
 
 ####  镜hinata  
 ##### 3#       发表于 2019-11-27 15:29
@@ -92,7 +92,7 @@ Aile to Yell / TRINITYAiLE
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  shadowof  
 ##### 4#         楼主| 发表于 2019-11-28 23:43
@@ -107,7 +107,7 @@ Aile to Yell / TRINITYAiLE
 <img src="https://i.imgur.com/1m3y6wb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 5#         楼主| 发表于 2019-11-29 11:19
@@ -122,7 +122,7 @@ Aile to Yell / TRINITYAiLE
 倒计时转推可以听语音
 
 
------
+*****
 
 ####  烈之斩  
 ##### 6#       发表于 2019-11-29 13:02
@@ -131,7 +131,7 @@ Aile to Yell / TRINITYAiLE
 看来是馕天桃sphere新人的顺序
 
 
------
+*****
 
 ####  shadowof  
 ##### 7#         楼主| 发表于 2019-11-30 11:12
@@ -144,7 +144,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... 9tfJvhYT7PWmOHk.mp4](https://video.twimg.com/amplify_video/1200224100620222464/vid/1280x720/n9tfJvhYT7PWmOHk.mp4)
 
 
------
+*****
 
 ####  烈之斩  
 ##### 8#       发表于 2019-11-30 14:46
@@ -167,7 +167,7 @@ Aile to Yell / TRINITYAiLE
 <img src="https://pbs.twimg.com/media/EKcoqeqU4AEBDHl?format=jpg&amp;name=large" id="aimg_TmxDN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
------
+*****
 
 ####  shadowof  
 ##### 9#         楼主| 发表于 2019-12-1 12:18
@@ -178,7 +178,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... TkdxoQ9p9Ki0f3m.mp4](https://video.twimg.com/amplify_video/1200224072535175168/vid/1280x720/zTkdxoQ9p9Ki0f3m.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 10#         楼主| 发表于 2019-12-2 11:27
@@ -189,7 +189,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... j7Y8bMqkldQGDNy.mp4](https://video.twimg.com/amplify_video/1200224072321265664/vid/1280x720/uj7Y8bMqkldQGDNy.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 11#         楼主| 发表于 2019-12-3 11:29
@@ -199,7 +199,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... beTB5l2tjFjNJa2.mp4](https://video.twimg.com/amplify_video/1200224071692083200/vid/1280x720/qbeTB5l2tjFjNJa2.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 12#         楼主| 发表于 2019-12-4 13:07
@@ -209,7 +209,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... ESrsZzLXVAwepti.mp4](https://video.twimg.com/amplify_video/1200224071901777920/vid/1280x720/9ESrsZzLXVAwepti.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 13#         楼主| 发表于 2019-12-5 13:21
@@ -220,7 +220,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... Hf6KSyu6u0dR57p.mp4](https://video.twimg.com/amplify_video/1200224042738835456/vid/1280x720/JHf6KSyu6u0dR57p.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 14#         楼主| 发表于 2019-12-6 14:51
@@ -230,7 +230,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... OO606BZ4nkqMtF7.mp4](https://video.twimg.com/amplify_video/1200224042684256257/vid/1280x720/hOO606BZ4nkqMtF7.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 15#         楼主| 发表于 2019-12-7 13:42
@@ -240,7 +240,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... L4h1NApdLPWR01-.mp4](https://video.twimg.com/amplify_video/1200224042495512576/vid/1280x720/QL4h1NApdLPWR01-.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 16#         楼主| 发表于 2019-12-8 16:50
@@ -251,7 +251,7 @@ Aile to Yell / TRINITYAiLE
 [https://video.twimg.com/amplify_ ... lqtwCnWyhpXMNKJ.mp4](https://video.twimg.com/amplify_video/1200224042516529152/vid/1280x720/slqtwCnWyhpXMNKJ.mp4)
 
 
------
+*****
 
 ####  shadowof  
 ##### 17#         楼主| 发表于 2019-12-9 11:31
@@ -265,7 +265,7 @@ Aile to Yell / TRINITYAiLE
 スフィア和トラセ就是上来先吸一波人
 
 
------
+*****
 
 ####  shadowof  
 ##### 18#         楼主| 发表于 2019-12-9 18:29
@@ -281,7 +281,7 @@ Aile to Yell / TRINITYAiLE
 トラセ公开的组合是对手。
 
 
------
+*****
 
 ####  shadowof  
 ##### 19#         楼主| 发表于 2019-12-9 19:50
@@ -290,7 +290,7 @@ Aile to Yell / TRINITYAiLE
 1st 5月10 アンフィ
 
 
------
+*****
 
 ####  shadowof  
 ##### 20#         楼主| 发表于 2019-12-9 19:58
@@ -302,7 +302,7 @@ Aile to Yell / TRINITYAiLE
 估计是先搞一阵声优活动，弄一段时间上动画，最后再上手游
 
 
------
+*****
 
 ####  imbazdw  
 ##### 21#       发表于 2019-12-9 19:59
@@ -311,7 +311,7 @@ Aile to Yell / TRINITYAiLE
 能够逃过QP的诅咒吗。
 
 
------
+*****
 
 ####  xingenge  
 ##### 22#       发表于 2019-12-9 20:08
@@ -320,7 +320,7 @@ Aile to Yell / TRINITYAiLE
 原地宣布动画化 不知道有没有这个推力
 
 
------
+*****
 
 ####  Archlich  
 ##### 23#       发表于 2019-12-9 20:09
@@ -328,7 +328,7 @@ Aile to Yell / TRINITYAiLE
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  しろの舞  
 ##### 24#       发表于 2019-12-9 20:12
@@ -337,7 +337,7 @@ Aile to Yell / TRINITYAiLE
 kz担当了TRINITYAiLE的歌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 25#         楼主| 发表于 2019-12-9 20:16
@@ -349,7 +349,7 @@ kz担当了TRINITYAiLE的歌<img src="https://static.saraba1st.com/image/smiley/
 ミューレ3期的采访，这个连载后面还会出单人。
 
 
------
+*****
 
 ####  koodooliz  
 ##### 26#       发表于 2019-12-9 20:37
@@ -358,7 +358,7 @@ kz担当了TRINITYAiLE的歌<img src="https://static.saraba1st.com/image/smiley/
 想看的还是ts那三个<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 27#       发表于 2019-12-9 20:38
@@ -367,7 +367,7 @@ kz担当了TRINITYAiLE的歌<img src="https://static.saraba1st.com/image/smiley/
 cast里不是有sphere吗？？没看到角色啊
 
 
------
+*****
 
 ####  shadowof  
 ##### 28#         楼主| 发表于 2019-12-9 20:43
@@ -384,7 +384,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 这动画最快估计也要明年7月以后，现在公开信息都是一点一点来
 
 
------
+*****
 
 ####  terry666  
 ##### 29#       发表于 2019-12-9 20:45
@@ -398,7 +398,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">怎么感觉这么像t7s。
 
 
------
+*****
 
 ####  烈之斩  
 ##### 30#       发表于 2019-12-9 23:31
@@ -412,7 +412,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 官网还有个单人的偶像不知道是啥
 
 
------
+*****
 
 ####  稲荷直  
 ##### 31#       发表于 2019-12-10 07:25
@@ -420,7 +420,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  安广多惠子  
 ##### 32#       发表于 2019-12-10 07:52
@@ -429,7 +429,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 单说颜值这五饼确实不如别社的
 
 
------
+*****
 
 ####  hinarin  
 ##### 33#       发表于 2019-12-10 08:11
@@ -438,7 +438,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 永远喜欢日向もか
 
 
------
+*****
 
 ####  镜hinata  
 ##### 34#       发表于 2019-12-10 11:50
@@ -450,7 +450,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
------
+*****
 
 ####  unnilennium  
 ##### 35#       发表于 2019-12-10 12:58
@@ -459,7 +459,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 看了一眼最大的99年其他几个都是00后<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 36#         楼主| 发表于 2020-1-9 11:39
@@ -475,7 +475,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 スフェア的角色倒计时开始了
 
 
------
+*****
 
 ####  shadowof  
 ##### 37#         楼主| 发表于 2020-1-10 12:21
@@ -489,7 +489,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 <img src="https://i.imgur.com/AKbsoVv.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 38#         楼主| 发表于 2020-1-11 21:16
@@ -500,7 +500,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 <img src="https://i.imgur.com/tATOzdH.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 39#         楼主| 发表于 2020-1-12 11:26
@@ -510,7 +510,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 <img src="https://i.imgur.com/AIHwDX0.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 40#         楼主| 发表于 2020-1-13 20:07
@@ -529,7 +529,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 唄：LizNoir（戸松遥、高垣彩陽、寿美菜子、豊崎愛生）
 
 
------
+*****
 
 ####  千本blur  
 ##### 41#       发表于 2020-1-13 20:15
@@ -538,7 +538,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 这歌我觉得一般<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  安广多惠子  
 ##### 42#       发表于 2020-1-14 13:19
@@ -547,7 +547,7 @@ sphere下次直播全员出演的时候会公开他们的组合
 Shock out, Dance!!我觉得还挺好听的，目前三首感觉都可以
 
 
------
+*****
 
 ####  shadowof  
 ##### 43#         楼主| 发表于 2020-3-13 17:53
@@ -564,7 +564,7 @@ Shock out, Dance!!我觉得还挺好听的，目前三首感觉都可以
 这个直播应该是代替已经取消的AJ舞台
 
 
------
+*****
 
 ####  shadowof  
 ##### 44#         楼主| 发表于 2020-3-22 16:13
@@ -573,7 +573,7 @@ Shock out, Dance!!我觉得还挺好听的，目前三首感觉都可以
 <img src="https://i.imgur.com/9K5JvuY.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  shadowof  
 ##### 45#         楼主| 发表于 2020-3-22 16:13
@@ -587,7 +587,7 @@ Shock out, Dance!!我觉得还挺好听的，目前三首感觉都可以
 动画的keyvisual
 
 
------
+*****
 
 ####  xingenge  
 ##### 46#       发表于 2020-3-22 16:19
@@ -596,7 +596,7 @@ Shock out, Dance!!我觉得还挺好听的，目前三首感觉都可以
 2021年冬
 
 
------
+*****
 
 ####  shadowof  
 ##### 47#         楼主| 发表于 2020-8-30 19:34
@@ -612,7 +612,7 @@ Shock out, Dance!!我觉得还挺好听的，目前三首感觉都可以
 动画的3DMV效果不错。
 
 
------
+*****
 
 ####  xingenge  
 ##### 48#       发表于 2020-10-2 10:31
@@ -621,7 +621,7 @@ Shock out, Dance!!我觉得还挺好听的，目前三首感觉都可以
 <img src="http://wx4.sinaimg.cn/large/7489b2b9ly1gjas7rywfbj21hc0u0wml.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 49#       发表于 2020-11-14 20:31
@@ -717,7 +717,7 @@ CG制作：ラークスエンタテインメント
 アニメーション制作：Lerche
 
 
------
+*****
 
 ####  shadowof  
 ##### 50#         楼主| 发表于 2020-11-14 20:51
@@ -726,7 +726,7 @@ CG制作：ラークスエンタテインメント
 月底还要强行开live，现地票之前都没卖完还开了LV，现在这环境卖声优估计日子不好过。
 
 
------
+*****
 
 ####  shadowof  
 ##### 51#         楼主| 发表于 2020-11-29 08:49
@@ -739,7 +739,7 @@ CG制作：ラークスエンタテインメント
 总的来说就是ゴリ押し撑不起场面，具体能不能圈到粉要看动画，不过就业界现在这个饱和度，前景不怎么好。
 
 
------
+*****
 
 ####  xingenge  
 ##### 52#       发表于 2020-12-11 15:35
@@ -754,7 +754,7 @@ CG制作：ラークスエンタテインメント
 <img src="https://p.sda1.dev/0/0e2e17553a7c2419a618fe3c5afacbb8/Eo7N3QCWEAMgrXI.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  寒风夜  
 ##### 53#       发表于 2020-12-14 19:05
@@ -763,7 +763,7 @@ CG制作：ラークスエンタテインメント
 感觉歌不错，片应该叔叔拿下了
 
 
------
+*****
 
 ####  nejiang  
 ##### 54#       发表于 2020-12-15 01:46
@@ -772,7 +772,7 @@ CG制作：ラークスエンタテインメント
 有没有有趣的中之人，前两届都挺能搞事的
 
 
------
+*****
 
 ####  D-JoeII  
 ##### 55#       发表于 2021-1-10 22:28
@@ -781,7 +781,7 @@ CG制作：ラークスエンタテインメント
 草這第一話回憶部份最後的發展我只能想到2077<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  renkan119  
 ##### 56#       发表于 2021-1-10 23:00
@@ -790,7 +790,7 @@ CG制作：ラークスエンタテインメント
 这第1话什么玩意？ 隔壁僵尸偶像 你这来个幽灵偶像？
 
 
------
+*****
 
 ####  shadow001  
 ##### 57#       发表于 2021-1-10 23:01
@@ -799,7 +799,7 @@ CG制作：ラークスエンタテインメント
 幽靈是男主的妄想?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 58#       发表于 2021-1-10 23:30
@@ -808,7 +808,7 @@ CG制作：ラークスエンタテインメント
 看到中途一堆flag 加上还是倒叙就在猜女主是不是挂了 看到结尾还想说这展开太韩剧 结果最后变成幽灵是真没想到
 
 
------
+*****
 
 ####  terry666  
 ##### 59#       发表于 2021-1-10 23:30
@@ -817,7 +817,7 @@ CG制作：ラークスエンタテインメント
 看到中途一堆flag 加上还是倒叙就在猜女主是不是挂了 看到结尾还想说这展开太韩剧 结果最后变成幽灵是真没想到
 
 
------
+*****
 
 ####  6030sylar  
 ##### 60#       发表于 2021-1-11 00:01
@@ -826,7 +826,7 @@ CG制作：ラークスエンタテインメント
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这是给男主挂个幽灵女友就不怕对几个现偶像下手对吗
 
 
------
+*****
 
 ####  wsqxz  
 ##### 61#       发表于 2021-1-11 00:11
@@ -837,7 +837,7 @@ CG制作：ラークスエンタテインメント
 话说幽灵要是真的，男主这平时想DIY的时候不尴尬吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  倥偬的风  
 ##### 62#       发表于 2021-1-11 01:28
@@ -848,7 +848,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 63#       发表于 2021-1-11 01:32
@@ -857,7 +857,7 @@ CG制作：ラークスエンタテインメント
 相比幽灵更让我震惊的是一个20来岁的阿姨混在jk里演出<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  TBM107  
 ##### 64#       发表于 2021-1-11 01:36
@@ -866,7 +866,7 @@ CG制作：ラークスエンタテインメント
 幽灵她妹有个青梅竹马，然后加上天降的双马尾黄毛。这片也要扭吗
 
 
------
+*****
 
 ####  ed21）  
 ##### 65#       发表于 2021-1-11 01:50
@@ -877,7 +877,7 @@ CG制作：ラークスエンタテインメント
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  灼眼的夏娜酱  
 ##### 66#       发表于 2021-1-11 02:02
@@ -888,7 +888,7 @@ CG制作：ラークスエンタテインメント
 就想看偶像唱歌跳跳舞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来不适合我。
 
 
------
+*****
 
 ####  玉米黍  
 ##### 67#       发表于 2021-1-11 02:11
@@ -897,7 +897,7 @@ CG制作：ラークスエンタテインメント
 偶像唱歌跳舞的没啥意思。就看剧情能不能有点创新吧。
 
 
------
+*****
 
 ####  灼眼的夏娜酱  
 ##### 68#       发表于 2021-1-11 02:15
@@ -913,7 +913,7 @@ CG制作：ラークスエンタテインメント
 2021-1-11 02:15 上传
 
 
------
+*****
 
 ####  银盾长枪兵  
 ##### 69#       发表于 2021-1-11 02:20
@@ -924,7 +924,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  DarthAka  
 ##### 70#       发表于 2021-1-11 02:21
@@ -933,7 +933,7 @@ CG制作：ラークスエンタテインメント
 弹幕一闪而过——强尼银手
 
 
------
+*****
 
 ####  倥偬的风  
 ##### 71#       发表于 2021-1-11 02:25
@@ -945,7 +945,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  アーシェス  
 ##### 72#       发表于 2021-1-11 03:59
@@ -954,7 +954,7 @@ CG制作：ラークスエンタテインメント
 女鬼导师，ef 代餐吃了（
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 73#       发表于 2021-1-11 08:21
@@ -963,7 +963,7 @@ CG制作：ラークスエンタテインメント
 幽灵都来了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 74#       发表于 2021-1-11 08:25
@@ -973,7 +973,7 @@ CG制作：ラークスエンタテインメント
 这图动画前还会觉得“原来如此”，第一话后就“？？？”，感觉设定会不会有点不同<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白戸  
 ##### 75#       发表于 2021-1-11 09:28
@@ -982,7 +982,7 @@ CG制作：ラークスエンタテインメント
 出奇出新也是费尽心思。
 
 
------
+*****
 
 ####  krowbullet  
 ##### 76#       发表于 2021-1-11 09:40
@@ -993,7 +993,7 @@ CG制作：ラークスエンタテインメント
 看到变鬼：？？？追了
 
 
------
+*****
 
 ####  chenzhi11  
 ##### 77#       发表于 2021-1-11 10:13
@@ -1006,7 +1006,7 @@ CG制作：ラークスエンタテインメント
 至于改不改设定就不知道了。
 
 
------
+*****
 
 ####  寒风夜  
 ##### 78#       发表于 2021-1-11 10:21
@@ -1015,7 +1015,7 @@ CG制作：ラークスエンタテインメント
 太秀了 未闻花名偶像版是吧
 
 
------
+*****
 
 ####  寒风夜  
 ##### 79#       发表于 2021-1-11 10:22
@@ -1027,7 +1027,7 @@ CG制作：ラークスエンタテインメント
 🔒了
 
 
------
+*****
 
 ####  有口皆悲  
 ##### 80#       发表于 2021-1-11 10:28
@@ -1038,7 +1038,7 @@ CG制作：ラークスエンタテインメント
 但是死了的偶像可以谈？
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 81#       发表于 2021-1-11 10:32
@@ -1047,7 +1047,7 @@ CG制作：ラークスエンタテインメント
 虽然有点模板俗套，不过第一集这人物塑造实在是强，我相信没几个宅宅见到mana这样的女人会顶得住<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  chexk03  
 ##### 82#       发表于 2021-1-11 13:26
@@ -1059,7 +1059,7 @@ CG制作：ラークスエンタテインメント
 会继续看，希望第一支团live给力。
 
 
------
+*****
 
 ####  chexk03  
 ##### 83#       发表于 2021-1-11 13:31
@@ -1070,7 +1070,7 @@ CG制作：ラークスエンタテインメント
 这有现实根据吧，akb元A也是一堆jk jc塞进去一个20多岁的发传单妹（而且毕业后发展也是最好的几个人之一）
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 84#       发表于 2021-1-11 16:06
@@ -1081,7 +1081,7 @@ CG制作：ラークスエンタテインメント
 淦，还能这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  普通哈尼  
 ##### 85#       发表于 2021-1-11 16:43
@@ -1090,7 +1090,7 @@ CG制作：ラークスエンタテインメント
 我服了，又整阴间活
 
 
------
+*****
 
 ####  Frady燕  
 ##### 86#       发表于 2021-1-11 17:04
@@ -1099,7 +1099,7 @@ CG制作：ラークスエンタテインメント
 麻奈定位应该跟爱马仕动画里的律子差不多，追了
 
 
------
+*****
 
 ####  jianghaofan  
 ##### 87#       发表于 2021-1-11 17:18
@@ -1114,7 +1114,7 @@ CG制作：ラークスエンタテインメント
 大龄过气偶像对应的是遥子吧
 
 
------
+*****
 
 ####  Boliva  
 ##### 88#       发表于 2021-1-11 17:21
@@ -1123,7 +1123,7 @@ CG制作：ラークスエンタテインメント
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这是直接给你绑定了个老婆啊，可以安心养女儿了……
 
 
------
+*****
 
 ####  伊布桑  
 ##### 89#       发表于 2021-1-11 19:25
@@ -1136,7 +1136,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  伊布桑  
 ##### 90#       发表于 2021-1-11 19:31
@@ -1147,7 +1147,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  terry666  
 ##### 91#       发表于 2021-1-11 19:39
@@ -1158,7 +1158,7 @@ CG制作：ラークスエンタテインメント
 神田沙也加名气大 是被策划拉来客串制造话题的 这企划真正的目的是捧那10个新人 live作画的重点资源肯定在新人身上 
 
 
------
+*****
 
 ####  oznark  
 ##### 92#       发表于 2021-1-11 19:48
@@ -1169,7 +1169,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  lyz1196  
 ##### 93#       发表于 2021-1-11 21:01
@@ -1178,7 +1178,7 @@ CG制作：ラークスエンタテインメント
 开夫妻店不挺好的吗？没必要搞这么苦情吧？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黄字  
 ##### 94#       发表于 2021-1-11 21:05
@@ -1190,7 +1190,7 @@ CG制作：ラークスエンタテインメント
 这个企划就是卖用力的，他企划的官网可太用力了。
 
 
------
+*****
 
 ####  404489039  
 ##### 95#       发表于 2021-1-11 21:05
@@ -1199,7 +1199,7 @@ CG制作：ラークスエンタテインメント
 女主太惨了出道到挂掉只有一套打歌服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moooooonlight  
 ##### 96#       发表于 2021-1-11 21:22
@@ -1208,7 +1208,7 @@ CG制作：ラークスエンタテインメント
 要做的内容也太多，10个偶像+sphere trysail+人鬼情未了，还要有个好像是麻奈的妹肯定要用更多篇幅去写，但只剩下11集<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Lawliet.L  
 ##### 97#       发表于 2021-1-11 21:29
@@ -1217,7 +1217,7 @@ CG制作：ラークスエンタテインメント
 花田如果是系构，那应该会有很多坑不填，不过他只是原作之一<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 98#       发表于 2021-1-11 21:41
@@ -1228,7 +1228,7 @@ CG制作：ラークスエンタテインメント
 有手游的，估计tv故事就是围绕那10个人，其他组合故事用游戏补完
 
 
------
+*****
 
 ####  stuka1942  
 ##### 99#       发表于 2021-1-11 22:10
@@ -1241,7 +1241,7 @@ CG制作：ラークスエンタテインメント
 一开始还想男主是不是神经了，结果真是幽灵<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 100#       发表于 2021-1-11 22:31
@@ -1250,7 +1250,7 @@ CG制作：ラークスエンタテインメント
 《制作人竟是赛博精神病？！》
 
 
------
+*****
 
 ####  07579394  
 ##### 101#       发表于 2021-1-11 22:44
@@ -1259,7 +1259,7 @@ CG制作：ラークスエンタテインメント
 和也待遇
 
 
------
+*****
 
 ####  茴香蚪的马甲  
 ##### 102#       发表于 2021-1-11 22:47
@@ -1270,7 +1270,7 @@ CG制作：ラークスエンタテインメント
 水澄佳希、安达薰、花田十辉这三个人是整个企划的原案，而不单单是动画版的原案，所以就别指望花田在动画版里能有多高的参与度了，纯挂名都有可能。。
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 103#       发表于 2021-1-11 23:08
@@ -1285,7 +1285,7 @@ CG制作：ラークスエンタテインメント
 以及女主死都死了肯定算偶像毕业了，毕业的偶像当然可以谈恋爱，安逸安逸
 
 
------
+*****
 
 ####  nejiang  
 ##### 104#       发表于 2021-1-12 00:04
@@ -1294,7 +1294,7 @@ CG制作：ラークスエンタテインメント
 10个人里不是3代团的那5个新人是哪些事务所的？是不是3代团落选的？
 
 
------
+*****
 
 ####  茴香蚪的马甲  
 ##### 105#       发表于 2021-1-12 01:53
@@ -1306,7 +1306,7 @@ CG制作：ラークスエンタテインメント
 别的不说，高尾奏音都已经有好几个动画主役了吧。其他的几个的确都是真·新人，事务所分布不一。
 
 
------
+*****
 
 ####  songchen_bruce  
 ##### 106#       发表于 2021-1-12 08:16
@@ -1318,7 +1318,7 @@ CG制作：ラークスエンタテインメント
 如果剧本完全由花田来掌控，没准真会这么干。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  叛逆之双子星  
 ##### 107#       发表于 2021-1-12 08:29
@@ -1327,7 +1327,7 @@ CG制作：ラークスエンタテインメント
 会整活，有意思啊
 
 
------
+*****
 
 ####  OBW  
 ##### 108#       发表于 2021-1-12 10:30
@@ -1336,7 +1336,7 @@ CG制作：ラークスエンタテインメント
 这片走势有点像姐姐死了妹妹继承姐姐遗志这类型的。
 
 
------
+*****
 
 ####  nejiang  
 ##### 109#       发表于 2021-1-12 11:29
@@ -1348,7 +1348,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  qiqqwr  
 ##### 110#       发表于 2021-1-12 13:12
@@ -1357,7 +1357,7 @@ CG制作：ラークスエンタテインメント
 感觉拍得好水啊，讲了一整集回忆；演出也缺乏想法，明明片尾的live还挺不错的，正片讲麻奈过关斩将的时候竟然一个live都没有，全靠ppt。最后弄了个背后灵看起来新奇，但能不能用好就是另一回事儿了
 
 
------
+*****
 
 ####  hijack997  
 ##### 111#       发表于 2021-1-12 13:41
@@ -1366,7 +1366,7 @@ CG制作：ラークスエンタテインメント
 重心是10人团吧。
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 112#       发表于 2021-1-17 22:32
@@ -1376,7 +1376,7 @@ CG制作：ラークスエンタテインメント
 橘发女主是不是心脏病还是什么问题啊，有点怕<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 113#       发表于 2021-1-17 23:46
@@ -1385,7 +1385,7 @@ CG制作：ラークスエンタテインメント
 官方人物关系图里麻奈对樱的箭头有颗红心，这集又樱又疑似病弱的设定，不会是心脏移植吧？
 
 
------
+*****
 
 ####  jacklibran  
 ##### 114#       发表于 2021-1-18 01:27
@@ -1396,7 +1396,7 @@ CG制作：ラークスエンタテインメント
 感觉最后不拉跨的话可以做出合格的泣系动画？
 
 
------
+*****
 
 ####  灼眼的夏娜酱  
 ##### 115#       发表于 2021-1-18 02:04
@@ -1405,7 +1405,7 @@ CG制作：ラークスエンタテインメント
 第二集还不错，感觉可以追下去。
 
 
------
+*****
 
 ####  镜hinata  
 ##### 116#       发表于 2021-1-18 02:41
@@ -1420,7 +1420,7 @@ CG制作：ラークスエンタテインメント
 音雨三期早几年前就启动了
 
 
------
+*****
 
 ####  银盾长枪兵  
 ##### 117#       发表于 2021-1-18 03:59
@@ -1431,7 +1431,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  zhouaa  
 ##### 118#       发表于 2021-1-18 19:46
@@ -1440,7 +1440,7 @@ CG制作：ラークスエンタテインメント
 这片能不能得到我的好评就看最后麻奈会不会还愿消失了，要搞花活就负责到底啊，有种全员开萝卜上宇宙啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 119#       发表于 2021-1-18 19:59
@@ -1452,7 +1452,7 @@ CG制作：ラークスエンタテインメント
 第一集开头男主都望天了 那肯定没了啊
 
 
------
+*****
 
 ####  zhouaa  
 ##### 120#       发表于 2021-1-18 20:02
@@ -1464,7 +1464,7 @@ CG制作：ラークスエンタテインメント
 她愿望不是拿到冠军吗，一开始还没比呢，就没可能飘天上<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 121#       发表于 2021-1-18 20:07
@@ -1476,7 +1476,7 @@ CG制作：ラークスエンタテインメント
 第一集那个应该是决赛的舞台 对应她没踏上的那个决赛 至于结果都不重要了 
 
 
------
+*****
 
 ####  t222  
 ##### 122#       发表于 2021-1-18 20:47
@@ -1485,7 +1485,7 @@ CG制作：ラークスエンタテインメント
 画风不错，但是对于刚看过虹团的我来说，这质量有点。。。
 
 
------
+*****
 
 ####  鸭梨很大的路人  
 ##### 123#       发表于 2021-1-18 21:36
@@ -1493,7 +1493,7 @@ CG制作：ラークスエンタテインメント
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  404489039  
 ##### 124#       发表于 2021-1-18 21:40
@@ -1503,7 +1503,7 @@ CG制作：ラークスエンタテインメント
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 125#       发表于 2021-1-18 22:57
@@ -1512,7 +1512,7 @@ CG制作：ラークスエンタテインメント
 两人一集的话篇幅是够了，但是还是有点紧张，希望故事能讲好吧。
 
 
------
+*****
 
 ####  whzfjd  
 ##### 126#       发表于 2021-1-18 23:19
@@ -1523,7 +1523,7 @@ CG制作：ラークスエンタテインメント
 偶像挂了就可以拍BG了（
 
 
------
+*****
 
 ####  moooooonlight  
 ##### 127#       发表于 2021-1-19 00:05
@@ -1535,7 +1535,7 @@ CG制作：ラークスエンタテインメント
 期望有半个花名的水平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  米酒马路  
 ##### 128#       发表于 2021-1-19 00:16
@@ -1544,7 +1544,7 @@ CG制作：ラークスエンタテインメント
 挺有意思的，发刀毫不含糊，追了追了。看弹幕笑死，樱咲川<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stuka1942  
 ##### 129#       发表于 2021-1-19 00:27
@@ -1555,7 +1555,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  普通哈尼  
 ##### 130#       发表于 2021-1-19 00:31
@@ -1564,7 +1564,7 @@ CG制作：ラークスエンタテインメント
 这橙毛的电波神棍台词，有花田内味了
 
 
------
+*****
 
 ####  小倉朝日  
 ##### 131#       发表于 2021-1-19 14:05
@@ -1573,7 +1573,7 @@ CG制作：ラークスエンタテインメント
 樱这是移植了姐姐的心脏了吧，心的指向怕不是事务所而是事务所里的男主，加上妹妹和幽灵姐姐，四角恋吗
 
 
------
+*****
 
 ####  kos_mos  
 ##### 132#       发表于 2021-1-19 20:04
@@ -1584,7 +1584,7 @@ CG制作：ラークスエンタテインメント
 和动画不同，麻奈是先被社长给名片了。出道后live途中照明灯掉下来，牧野替挡（没大碍），不过使得麻奈唱不出歌了。
 
 
------
+*****
 
 ####  酥蕤  
 ##### 133#       发表于 2021-1-21 22:24
@@ -1594,7 +1594,7 @@ CG制作：ラークスエンタテインメント
 遥子和妹妹胸画得真挺啊 黄毛可爱<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 134#       发表于 2021-1-24 22:31
@@ -1603,7 +1603,7 @@ CG制作：ラークスエンタテインメント
 舞蹈作画好强，黑长直同学不知道会不会和女主3人扭起来，制作人和幽灵对话要是能多点就好了
 
 
------
+*****
 
 ####  蜂蜜咖啡  
 ##### 135#       发表于 2021-1-24 22:33
@@ -1612,7 +1612,7 @@ CG制作：ラークスエンタテインメント
 第三集ed好听！
 
 
------
+*****
 
 ####  DarthAka  
 ##### 136#       发表于 2021-1-25 02:12
@@ -1621,7 +1621,7 @@ CG制作：ラークスエンタテインメント
 大小姐在英国回不来了，爱生也一块摸了？
 
 
------
+*****
 
 ####  terry666  
 ##### 137#       发表于 2021-1-25 02:17
@@ -1632,7 +1632,7 @@ CG制作：ラークスエンタテインメント
 好像最开始设定就是二人组合 剩下两个应该是后期加入的
 
 
------
+*****
 
 ####  terry666  
 ##### 138#       发表于 2021-1-25 02:25
@@ -1641,7 +1641,7 @@ CG制作：ラークスエンタテインメント
 虽然有点瑕疵 但是2020了 还有人愿意画2D舞蹈就已经很感动了
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 139#       发表于 2021-1-25 12:58
@@ -1650,7 +1650,7 @@ CG制作：ラークスエンタテインメント
 敌团这俩看着眼熟，然后想起来第一集出现过，Ep.1 13:00 那里
 
 
------
+*****
 
 ####  wsqxz  
 ##### 140#       发表于 2021-1-25 13:22
@@ -1659,7 +1659,7 @@ CG制作：ラークスエンタテインメント
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">这段跳舞不错，感觉可以追下去了
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 141#       发表于 2021-1-25 13:52
@@ -1668,7 +1668,7 @@ CG制作：ラークスエンタテインメント
 这成宫家大小姐的声音快给我听吐了 
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 142#       发表于 2021-1-25 14:01
@@ -1677,7 +1677,7 @@ CG制作：ラークスエンタテインメント
 我倒是喜欢大小姐的声音，反而黑长直同学就很棒读
 
 
------
+*****
 
 ####  赛U灵  
 ##### 143#       发表于 2021-1-25 14:10
@@ -1689,7 +1689,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  赛U灵  
 ##### 144#       发表于 2021-1-25 14:12
@@ -1701,7 +1701,7 @@ CG制作：ラークスエンタテインメント
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 145#       发表于 2021-1-25 20:09
@@ -1712,7 +1712,7 @@ CG制作：ラークスエンタテインメント
 第三集ED的完整版，猫眼三姐妹好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kos_mos  
 ##### 146#       发表于 2021-1-25 20:24
@@ -1725,7 +1725,7 @@ CG制作：ラークスエンタテインメント
 Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhouaa  
 ##### 147#       发表于 2021-1-25 21:43
@@ -1738,7 +1738,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 不是很欣赏这种拿一个电波女当剧情道具的作法
 
 
------
+*****
 
 ####  酥蕤  
 ##### 148#       发表于 2021-1-25 23:47
@@ -1747,7 +1747,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 有其它队员的支线剧情吗，别看完了名字都叫不出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whzfjd  
 ##### 149#       发表于 2021-1-26 04:33
@@ -1768,7 +1768,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 信息这么流通，富婆是怎么没发现假签名的
 
 
------
+*****
 
 ####  songchen_bruce  
 ##### 150#       发表于 2021-1-26 08:17
@@ -1777,7 +1777,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 男主角这一天到晚当着其他人的面对着空气讲话的表面行为，后面肯定要专门抽出一集来彻底崩溃一下，就看到时候staff怎么表现了。
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 151#       发表于 2021-1-31 22:35
@@ -1790,7 +1790,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 把双马尾除开是为了双领队吧，期待后续，每集都能看到高水准舞蹈作画真好啊，好钢在刀刃
 
 
------
+*****
 
 ####  ky刃  
 ##### 152#       发表于 2021-1-31 23:59
@@ -1800,7 +1800,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 <img src="https://wx3.sinaimg.cn/large/8c175430gy1gn7biaqzi9g20b4069kjl.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  oyss  
 ##### 153#       发表于 2021-2-1 00:54
@@ -1818,7 +1818,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 结果完事马上就开除.虽然肯定不是真开除.
 
 
------
+*****
 
 ####  terry666  
 ##### 154#       发表于 2021-2-1 01:04
@@ -1827,7 +1827,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 感觉开除是牧野的套路，既是演给樱看，也是演给其他人看的，多半又是什么考验。
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 155#       发表于 2021-2-1 03:41
@@ -1836,7 +1836,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 这集跳舞那段比上集还顶啊，演出作画不炸裂的话就可惜了。
 
 
------
+*****
 
 ####  07579394  
 ##### 156#       发表于 2021-2-1 08:51
@@ -1849,7 +1849,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 最后开除什么的赶紧，等一个加倍奉还
 
 
------
+*****
 
 ####  whzfjd  
 ##### 157#       发表于 2021-2-1 15:54
@@ -1858,7 +1858,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 开除是心脏问题劝退吧
 
 
------
+*****
 
 ####  zhouaa  
 ##### 158#       发表于 2021-2-1 19:11
@@ -1869,7 +1869,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 剧本有想法啊
 
 
------
+*****
 
 ####  酥蕤  
 ##### 159#       发表于 2021-2-1 19:28
@@ -1882,7 +1882,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 最后这开除断章吊胃口的意味太重了，肯定不是真开除
 
 
------
+*****
 
 ####  暗黑能乐  
 ##### 160#       发表于 2021-2-1 19:39
@@ -1894,7 +1894,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 说实话，别搞这种PLOVE情节，怪恶心的，有姐姐做CP已经够出格的了，别让其他成员再掺和了
 
 
------
+*****
 
 ####  zhouaa  
 ##### 161#       发表于 2021-2-1 19:51
@@ -1903,7 +1903,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 要是这样，移植了对方的心脏看不到本人，本人看的到她，什么别扭设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  若菜  
 ##### 162#       发表于 2021-2-1 20:33
@@ -1912,7 +1912,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 这片越来越好看了，意外的黑马，这话也体现了P的重要性
 
 
------
+*****
 
 ####  oznark  
 ##### 163#       发表于 2021-2-2 04:23
@@ -1931,7 +1931,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 [https://www.youtube.com/watch?v=GE911BIuCbs](https://www.youtube.com/watch?v=GE911BIuCbs)
 
 
------
+*****
 
 ####  plazum  
 ##### 164#       发表于 2021-2-2 11:57
@@ -1940,7 +1940,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 日常剧情还挺好看的，再加上美少女们的作画也很好看，夫复何求
 
 
------
+*****
 
 ####  404489039  
 ##### 165#       发表于 2021-2-2 23:03
@@ -1951,7 +1951,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 开除是要让她单飞？然后最后妹妹带堆pk樱 争第一？
 
 
------
+*****
 
 ####  黄字  
 ##### 166#       发表于 2021-2-2 23:07
@@ -1960,7 +1960,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 是我阈值太高了吗，至今为止的剧情全是定番，连弹幕都能猜到10成的那种，细节也不是特别好。这个企划口号很响，可就这种隔靴搔痒的“正经偶像”也想大谈特谈偶像题材有点班门弄斧吧，至少diss这片的传统爱豆爱好者不一定比大先生懂得少。
 
 
------
+*****
 
 ####  terry666  
 ##### 167#       发表于 2021-2-2 23:40
@@ -1971,7 +1971,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 不知道你说的传统爱好者是三次元还是二次元 至少我所在的几个爱马仕相关群都觉得这片还行 反倒是把偶像片=百合片等同的新一代偶像片爱好者diss这片是最厉害的
 
 
------
+*****
 
 ####  黄字  
 ##### 168#       发表于 2021-2-2 23:56
@@ -1983,7 +1983,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这片的播放量撑得起你几个爱马仕群的异口同声交口称赞吗？
 
 
------
+*****
 
 ####  纯夏  
 ##### 169#       发表于 2021-2-5 00:27
@@ -1994,7 +1994,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 活泼可爱 还能给周围的人带来元气  又有PLOVE 这直戳我的好球带啊
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 170#       发表于 2021-2-8 01:12
@@ -2003,7 +2003,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 赶进度的一集，单季片这么处理也可以理解。不知道高桥亲自写这集的话观感会不会更自然。
 
 
------
+*****
 
 ####  terry666  
 ##### 171#       发表于 2021-2-8 01:23
@@ -2012,7 +2012,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 进展有点快，下集如果还是一集讲完另一组的故事的话，那就有可能一季讲完了。不过主角这样子怎么也不像练一下就能打败那俩敌团的样子，难道真要在手游里补完剧情？
 
 
------
+*****
 
 ####  07579394  
 ##### 172#       发表于 2021-2-8 19:09
@@ -2021,7 +2021,7 @@ Liz Noir太帅了<img src="https://static.saraba1st.com/image/smiley/face2017/17
 team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 173#       发表于 2021-2-8 19:29
@@ -2030,7 +2030,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 新来的怜我很喜欢 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  l⑨th_Knight  
 ##### 174#       发表于 2021-2-8 19:40
@@ -2041,7 +2041,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  猫狐  
 ##### 175#       发表于 2021-2-8 20:21
@@ -2050,7 +2050,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 这集的镜头鸡腿加的有点多，这番人物画的挺好的，剧情的话没什么意外，估计还是传统偶像番那一套
 
 
------
+*****
 
 ####  whzfjk  
 ##### 176#       发表于 2021-2-8 20:28
@@ -2059,7 +2059,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 土了，超自然成分不足
 
 
------
+*****
 
 ####  灼眼的夏娜酱  
 ##### 177#       发表于 2021-2-8 22:16
@@ -2070,7 +2070,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 幽灵镜头少些观感直线上升<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  酥蕤  
 ##### 178#       发表于 2021-2-9 18:03
@@ -2081,7 +2081,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 这种胸挺衣服下摆悬空真的太色了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  rxrx  
 ##### 179#       发表于 2021-2-9 20:42
@@ -2089,7 +2089,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  千本blur  
 ##### 180#       发表于 2021-2-11 01:27
@@ -2104,7 +2104,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 主角方妹子的人设还是要丰满一点。
 
 
------
+*****
 
 ####  千本blur  
 ##### 181#       发表于 2021-2-11 01:32
@@ -2115,7 +2115,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 1202年还有这么武德充沛的手绘Live，真是让人感动。
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 182#       发表于 2021-2-11 01:48
@@ -2128,7 +2128,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 看完5话，mana当偶像的动力完全是有男主才尽力做偶像，连妹妹的话都赢不了男主，真的恋爱漫画一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。话说这出道前单用手机音源大街唱歌就围观引起交通堵塞，出道演出坐满场500人场外还站了好几倍，真是这作品当之无愧的天花板
 
 
------
+*****
 
 ####  伊布桑  
 ##### 183#       发表于 2021-2-11 11:15
@@ -2140,7 +2140,7 @@ team a team b<img src="https://static.saraba1st.com/image/smiley/face2017/020.pn
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 184#       发表于 2021-2-11 12:22
@@ -2153,7 +2153,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 贴吧有全话，不过观看体验不怎么好，你可以去comic walker看1，2和4，5话，第3话贴吧看，不过cw是限时免费，4，5要快点看
 
 
------
+*****
 
 ####  蜂蜜咖啡  
 ##### 185#       发表于 2021-2-14 22:31
@@ -2162,7 +2162,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 这集两段舞蹈帧数能高点就好了，帧数低属实观感有点差<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YetToCome  
 ##### 186#       发表于 2021-2-14 22:44
@@ -2179,7 +2179,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  terry666  
 ##### 187#       发表于 2021-2-14 23:01
@@ -2188,7 +2188,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 帧率有点低，不过勉强能看。 看杂志访谈说下半段剧情主要就是跟对手组对决，想给所有人做个人回但是篇幅不够准备把个人剧情塞手游里，看这意思应该是一季度完结然后看手游能不能赚到钱再考虑后续了。
 
 
------
+*****
 
 ####  xingenge  
 ##### 188#       发表于 2021-2-14 23:01
@@ -2204,7 +2204,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 <img src="https://p.sda1.dev/1/33f152dd1df163b63d8893a50a561220/EuBnSTzVkAAWK6d.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YetToCome  
 ##### 189#       发表于 2021-2-14 23:15
@@ -2215,7 +2215,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  renkan119  
 ##### 190#       发表于 2021-2-14 23:21
@@ -2227,7 +2227,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 本身日本那边就在抱怨角色一个接一个完全记不住谁是谁 现在还不弄个人回了...
 
 
------
+*****
 
 ####  kos_mos  
 ##### 191#       发表于 2021-2-14 23:40
@@ -2288,7 +2288,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 <[img src="https://webnewtype.com/rsz/S1/248177/1571301.jpg/w600h450/" height="450" id="aimg_nQOTB" onclick="zoom(this, this.src, 0, 0, 0)"/)](https://webnewtype.com/report/article/248177/8/)
 
 
------
+*****
 
 ####  l⑨th_Knight  
 ##### 192#       发表于 2021-2-15 01:34
@@ -2299,7 +2299,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 193#       发表于 2021-2-15 02:06
@@ -2308,7 +2308,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 这集苦劳不小功劳不大……
 
 
------
+*****
 
 ####  镜hinata  
 ##### 194#       发表于 2021-2-15 04:10
@@ -2317,7 +2317,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这可是索尼系牵头主力打造的企划,不会那么快凉的
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 195#       发表于 2021-2-15 06:24
@@ -2328,7 +2328,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  寒风夜  
 ##### 196#       发表于 2021-2-15 11:20
@@ -2337,7 +2337,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 这不就是ll那种形式2 3d混用
 
 
------
+*****
 
 ####  dozen  
 ##### 197#       发表于 2021-2-15 11:28
@@ -2346,7 +2346,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 看op就知道制作组显然没打算坚持纯2Dlive啊
 
 
------
+*****
 
 ####  DarthAka  
 ##### 198#       发表于 2021-2-15 11:49
@@ -2355,7 +2355,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 月亮组就是三期么，三期就记住一个橘美来（爱生带的师妹），一个相川奏多（隔壁奇蛋）
 
 
------
+*****
 
 ####  猫狐  
 ##### 199#       发表于 2021-2-15 14:57
@@ -2364,7 +2364,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实这两首歌的舞台动作设计我还挺喜欢的，不过一有运镜的部分就感觉有点不适，现在麻奈的伏笔还没揭开，会不会在大赛后才急展开呢
 
 
------
+*****
 
 ####  zhouaa  
 ##### 200#       发表于 2021-2-15 20:07
@@ -2373,7 +2373,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始走正统路线我就兴致不大了啊 
 
 
------
+*****
 
 ####  黄字  
 ##### 201#       发表于 2021-2-15 20:15
@@ -2382,7 +2382,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 这集看得我眼睛疼
 
 
------
+*****
 
 ####  plazum  
 ##### 202#       发表于 2021-2-15 22:35
@@ -2393,7 +2393,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 弹幕<blockquote>（02:42）敌 我 同 源</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  plazum  
 ##### 203#       发表于 2021-2-15 22:39
@@ -2407,7 +2407,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 这图是要搞什么超级英雄大战么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  plazum  
 ##### 204#       发表于 2021-2-15 22:48
@@ -2418,7 +2418,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 刚才看见家里电视上正在播的《乘风破浪的姐姐》，突然发现，浪姐其实就是最套路的那种偶像番剧情，一群本来不熟的人（女）突然组成团体，然后艰苦训练（训练和演出的内容就是边唱边跳），然后在和别的团体的竞争中取得成绩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fmban  
 ##### 205#       发表于 2021-2-16 00:05
@@ -2431,7 +2431,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  plazum  
 ##### 206#       发表于 2021-2-16 00:17
@@ -2445,7 +2445,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 那只是因为刚好都是tempest吧
 
 
------
+*****
 
 ####  YetToCome  
 ##### 207#       发表于 2021-2-21 23:00
@@ -2456,7 +2456,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  zhouaa  
 ##### 208#       发表于 2021-2-22 19:19
@@ -2465,7 +2465,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我方搞人海战术，是真的觉得对面可怜
 
 
------
+*****
 
 ####  plazum  
 ##### 209#       发表于 2021-2-23 16:59
@@ -2474,7 +2474,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 弹幕（第七集）<blockquote>（13:13）妹妹：我怎么看，用左眼看咯</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这番虽然妹子们都画得挺好看的，但是剧情属实不行，所以吃不到多少轻百合，反倒是男主和幽灵女友的狗粮剧情非常好看，就是有点少
 
 
------
+*****
 
 ####  sakilin2013  
 ##### 210#       发表于 2021-2-23 17:14
@@ -2485,7 +2485,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hijack997  
 ##### 211#       发表于 2021-2-23 17:17
@@ -2500,7 +2500,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 我觉得有点喧宾夺主了
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 212#       发表于 2021-3-1 11:27
@@ -2509,7 +2509,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 看到现在感想只剩下mana别成佛，主角团什么的……1202年还整这种友谊魔法确实有点看多了无感了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  6030sylar  
 ##### 213#       发表于 2021-3-1 11:34
@@ -2518,7 +2518,7 @@ Nico漫画太坑了，第三话居然没了，想问问在哪能看回下架的�
 mana在阳光下没有影子的画面越来越故意了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  plazum  
 ##### 214#       发表于 2021-3-1 16:56
@@ -2527,7 +2527,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 弹幕（第八集）<blockquote>（07:34）这是产前检查的既视感！？</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  songchen_bruce  
 ##### 215#       发表于 2021-3-8 11:25
@@ -2536,7 +2536,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 成佛是肯定要成佛的，就是不知道成佛前会不会在所有相关人士面前演一出闹鬼戏。
 
 
------
+*****
 
 ####  YetToCome  
 ##### 216#       发表于 2021-3-8 14:12
@@ -2547,7 +2547,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  shadow001  
 ##### 217#       发表于 2021-3-8 14:30
@@ -2556,7 +2556,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 所以太陽組那首歌是不是MANA那首歌？
 
 
------
+*****
 
 ####  格雷殿下  
 ##### 218#       发表于 2021-3-8 14:58
@@ -2567,7 +2567,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 太正能量了，啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 219#       发表于 2021-3-8 15:41
@@ -2578,7 +2578,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 这一话的歌好听 总算有点IDOLY PRIDE的感觉了
 
 
------
+*****
 
 ####  kos_mos  
 ##### 220#       发表于 2021-3-8 20:58
@@ -2688,7 +2688,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 2021-3-8 20:57 上传
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 221#       发表于 2021-3-8 21:02
@@ -2697,7 +2697,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不愧是大小姐 六位数都来了 
 
 
------
+*****
 
 ####  格雷殿下  
 ##### 222#       发表于 2021-3-8 21:55
@@ -2706,7 +2706,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">900的裤子，这就是地摊的王吗
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 223#       发表于 2021-3-8 22:05
@@ -2718,7 +2718,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 大小姐的袜子2w 都什么材料啊 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 224#       发表于 2021-3-8 23:13
@@ -2729,7 +2729,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  kos_mos  
 ##### 225#       发表于 2021-3-9 18:28
@@ -2767,7 +2767,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 2021-3-9 18:28 上传
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 226#       发表于 2021-3-9 19:58
@@ -2776,7 +2776,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 那条狗多少钱（
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 227#       发表于 2021-3-10 11:24
@@ -2788,7 +2788,7 @@ mana在阳光下没有影子的画面越来越故意了<img src="https://static.
 song for you好汀，开始循环。
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 228#       发表于 2021-3-10 11:26
@@ -2799,7 +2799,7 @@ song for you好汀，开始循环。
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  plazum  
 ##### 229#       发表于 2021-3-11 16:30
@@ -2808,7 +2808,7 @@ song for you好汀，开始循环。
 这番的妹子们都太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  伊布桑  
 ##### 230#       发表于 2021-3-11 16:40
@@ -2819,7 +2819,7 @@ song for you好汀，开始循环。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  千本blur  
 ##### 231#       发表于 2021-3-13 03:33
@@ -2830,7 +2830,7 @@ song for you好汀，开始循环。
 是我小看了这个动画了，觉得剧中十人的两个组合并不精彩，但是事实证明索尼的音乐还是强大。
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 232#       发表于 2021-3-15 12:53
@@ -2839,7 +2839,7 @@ song for you好汀，开始循环。
 我真的受不了中西这个编剧把一段话拆给几个人说的惯用手法了。
 
 
------
+*****
 
 ####  PKVSBOSS  
 ##### 233#       发表于 2021-3-15 22:31
@@ -2847,7 +2847,7 @@ song for you好汀，开始循环。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  镜hinata  
 ##### 234#       发表于 2021-3-16 00:55
@@ -2856,7 +2856,7 @@ song for you好汀，开始循环。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期这就炮灰了,那下周岂不是随便就手刃一半死肥鸭
 
 
------
+*****
 
 ####  xjx  
 ##### 235#       发表于 2021-3-16 01:04
@@ -2867,7 +2867,7 @@ song for you好汀，开始循环。
  -- 傲娇地来自 Stage1未知客户端
 
 
------
+*****
 
 ####  kos_mos  
 ##### 236#       发表于 2021-3-16 01:22
@@ -2878,7 +2878,7 @@ song for you好汀，开始循环。
 Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 
 
------
+*****
 
 ####  狂河冰不烈  
 ##### 237#       发表于 2021-3-16 08:39
@@ -2887,7 +2887,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 我现在越来越期待麻奈成佛后staff们会怎么表现Producer崩溃的状态了。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  PKVSBOSS  
 ##### 238#       发表于 2021-3-16 09:02
@@ -2895,7 +2895,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  酥蕤  
 ##### 239#       发表于 2021-3-16 12:43
@@ -2904,7 +2904,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 虽然有点雨宫天ptsd，但还是感觉雨宫天这边live强一点
 
 
------
+*****
 
 ####  P-link  
 ##### 240#       发表于 2021-3-16 13:59
@@ -2916,7 +2916,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 你就是盗别人号的？还若无其事发帖，还要不要脸。
 
 
------
+*****
 
 ####  YetToCome  
 ##### 241#       发表于 2021-3-16 21:53
@@ -2954,7 +2954,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 2021-3-16 21:53 上传
 
 
------
+*****
 
 ####  terry666  
 ##### 242#       发表于 2021-3-17 20:33
@@ -2963,7 +2963,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 这都快完结了，怎么感觉外援团的戏份比音雨三期生还多些？
 
 
------
+*****
 
 ####  plazum  
 ##### 243#       发表于 2021-3-17 21:36
@@ -2972,7 +2972,7 @@ Liz Noir、TRINITYAiLE在CD、游戏似乎和星见的平等的。
 弹幕（第十集）<blockquote>（12:42）可汗大点兵</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kos_mos  
 ##### 244#       发表于 2021-3-17 21:49
@@ -3000,7 +3000,7 @@ Liz Noir
 2021-3-17 21:49 上传
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 245#       发表于 2021-3-18 17:52
@@ -3022,7 +3022,7 @@ Liz Noir
 2021-3-18 17:43 上传
 
 
------
+*****
 
 ####  forgetit  
 ##### 246#       发表于 2021-3-18 18:01
@@ -3031,7 +3031,7 @@ Liz Noir
 对音雨三期生的宣传不够（x）
 
 
------
+*****
 
 ####  YetToCome  
 ##### 247#       发表于 2021-3-18 18:37
@@ -3044,7 +3044,7 @@ Liz Noir
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  kos_mos  
 ##### 248#       发表于 2021-3-18 19:09
@@ -3072,7 +3072,7 @@ Liz Noir
 2021-3-18 19:09 上传
 
 
------
+*****
 
 ####  KENN  
 ##### 249#       发表于 2021-3-21 12:40
@@ -3081,7 +3081,7 @@ Liz Noir
 TRYSAIL三小只真可爱，好像第一次见momo和natsu在动画念这么多台词的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YetToCome  
 ##### 250#       发表于 2021-3-21 23:46
@@ -3093,7 +3093,7 @@ TRYSAIL三小只真可爱，好像第一次见momo和natsu在动画念这么多�
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 251#       发表于 2021-3-21 23:48
@@ -3104,7 +3104,7 @@ TRYSAIL三小只真可爱，好像第一次见momo和natsu在动画念这么多�
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  sakilin2013  
 ##### 252#       发表于 2021-3-22 10:30
@@ -3115,7 +3115,7 @@ TRYSAIL三小只真可爱，好像第一次见momo和natsu在动画念这么多�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  狂河冰不烈  
 ##### 253#       发表于 2021-3-22 10:35
@@ -3130,7 +3130,7 @@ TRYSAIL三小只真可爱，好像第一次见momo和natsu在动画念这么多�
 Producer其实不一定是木头人，他也有可能是害怕“一旦正视了自己的感情回应了麻奈的心意她就会成佛消失”，所以才故意装成木头的。
 
 
------
+*****
 
 ####  PKVSBOSS  
 ##### 254#       发表于 2021-3-22 10:58
@@ -3138,7 +3138,7 @@ Producer其实不一定是木头人，他也有可能是害怕“一旦正视了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 255#       发表于 2021-3-22 11:34
@@ -3149,7 +3149,7 @@ Producer其实不一定是木头人，他也有可能是害怕“一旦正视了
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  kos_mos  
 ##### 256#       发表于 2021-3-23 20:45
@@ -3167,7 +3167,7 @@ TVアニメ「IDOLY PRIDE -アイドリープライド-」先行上映イベン�
 [https://www.4gamer.net/games/547/G054739/20210323034/](https://www.4gamer.net/games/547/G054739/20210323034/)
 
 
------
+*****
 
 ####  AlfredXC  
 ##### 257#       发表于 2021-3-23 22:10
@@ -3178,7 +3178,7 @@ TVアニメ「IDOLY PRIDE -アイドリープライド-」先行上映イベン�
 希望最终话能发糖，看这片最大的期待就是这个了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 258#       发表于 2021-3-24 22:14
@@ -3190,7 +3190,7 @@ TVアニメ「IDOLY PRIDE -アイドリープライド-」先行上映イベン�
 mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  千本blur  
 ##### 259#       发表于 2021-3-24 22:56
@@ -3199,7 +3199,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 看到现在感觉stuff对企划缺一点爱。很多地方明明是情感爆点，却做成了流水账。第十话song for you最后的发明明是个升华的地方，曲子本身也没有问题，音监却不在线。
 
 
------
+*****
 
 ####  unnilennium  
 ##### 260#       发表于 2021-3-24 23:00
@@ -3208,7 +3208,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 终于又追上进度了，说实话这片有一些设定怎么跟爱马仕本家这么类似，包括雨宫天那个组合，你以为是trysail，结果人家是诗花<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  PKVSBOSS  
 ##### 261#       发表于 2021-3-24 23:19
@@ -3216,7 +3216,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  伊布桑  
 ##### 262#       发表于 2021-3-25 08:22
@@ -3228,7 +3228,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  PKVSBOSS  
 ##### 263#       发表于 2021-3-25 10:07
@@ -3236,7 +3236,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 264#       发表于 2021-3-25 12:37
@@ -3250,7 +3250,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 应该还是有吧，企划官网的角色介绍里有麻奈，游戏里如果没有就太奇怪了。
 
 
------
+*****
 
 ####  YetToCome  
 ##### 265#       发表于 2021-3-25 21:13
@@ -3261,7 +3261,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  404489039  
 ##### 266#       发表于 2021-3-28 16:04
@@ -3276,7 +3276,7 @@ mana，我的mana<img src="https://static.saraba1st.com/image/smiley/face2017/13
 mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kos_mos  
 ##### 267#       发表于 2021-3-28 16:21
@@ -3296,7 +3296,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 2021-3-28 16:20 上传
 
 
------
+*****
 
 ####  kos_mos  
 ##### 268#       发表于 2021-3-28 16:48
@@ -3311,7 +3311,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 [https://www.bilibili.com/video/BV1Z64y1S7a8](https://www.bilibili.com/video/BV1Z64y1S7a8)
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 269#       发表于 2021-3-28 22:34
@@ -3323,7 +3323,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  YetToCome  
 ##### 270#       发表于 2021-3-28 22:58
@@ -3334,7 +3334,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 271#       发表于 2021-3-28 23:00
@@ -3346,7 +3346,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 272#       发表于 2021-3-28 23:04
@@ -3357,7 +3357,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  YetToCome  
 ##### 273#       发表于 2021-3-28 23:06
@@ -3372,7 +3372,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 HUAWEI BKL-AL20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 274#       发表于 2021-3-28 23:11
@@ -3387,7 +3387,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 275#       发表于 2021-3-28 23:29
@@ -3398,7 +3398,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  oznark  
 ##### 276#       发表于 2021-3-28 23:40
@@ -3414,7 +3414,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 2021-3-28 23:40 上传
 
 
------
+*****
 
 ####  aaron17  
 ##### 277#       发表于 2021-3-28 23:47
@@ -3423,7 +3423,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">決賽平手也太萎了
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 278#       发表于 2021-3-29 00:16
@@ -3434,7 +3434,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  ky刃  
 ##### 279#       发表于 2021-3-29 00:18
@@ -3443,7 +3443,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  堆雪若叶  
 ##### 280#       发表于 2021-3-29 00:53
@@ -3452,7 +3452,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 刀傻了，牧野前面的木头也全部是装的，这种宣传片有必要在这种地方这么用力吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  伊布桑  
 ##### 281#       发表于 2021-3-29 01:00
@@ -3464,7 +3464,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  gzdw  
 ##### 282#       发表于 2021-3-29 01:12
@@ -3473,7 +3473,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  terry666  
 ##### 283#       发表于 2021-3-29 01:56
@@ -3482,7 +3482,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 看了下官网刚更新的手游介绍，怎么感觉是偶像大师sc加马娘那种养成游戏
 
 
------
+*****
 
 ####  千里茜  
 ##### 284#       发表于 2021-3-29 01:56
@@ -3495,7 +3495,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 尼玛死了高桥，把麻奈还回来啊！！！！要你都合的时候你开始将合理了，要你合理的时候你开始玩都合，隔壁灰姑娘卯月那段我现在还看着生理不适。
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 285#       发表于 2021-3-29 02:29
@@ -3504,7 +3504,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 快进到长濑麻奈线下追思会（做不到的）
 
 
------
+*****
 
 ####  qdaqd123  
 ##### 286#       发表于 2021-3-29 02:41
@@ -3513,7 +3513,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打平手倒是预料到了，这个刀上抹糖就过分了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  伊布桑  
 ##### 287#       发表于 2021-3-29 08:03
@@ -3525,7 +3525,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  狂河冰不烈  
 ##### 288#       发表于 2021-3-29 08:30
@@ -3534,7 +3534,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 这片子到底多少集？B站弹幕全在刷完结撒花，但是B站视频标题却没写完结两个字。
 
 
------
+*****
 
 ####  伊布桑  
 ##### 289#       发表于 2021-3-29 08:51
@@ -3546,7 +3546,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 290#       发表于 2021-3-29 09:07
@@ -3557,7 +3557,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  风雪天  
 ##### 291#       发表于 2021-3-29 09:39
@@ -3566,7 +3566,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 人鬼情未了真不错。现在讲爱情的动画不是党争就是后宫，能稳稳当当讲述两个人的爱情故事的片子不多了，最后一集歌曲配上画面感染力一下就上去了。
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 292#       发表于 2021-3-29 10:12
@@ -3582,7 +3582,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 2021-3-29 10:12 上传
 
 
------
+*****
 
 ####  支仓爱理  
 ##### 293#       发表于 2021-3-29 10:18
@@ -3591,7 +3591,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 最后那首歌也很不错啊 
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 294#       发表于 2021-3-29 11:25
@@ -3602,7 +3602,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 动画最后的表演用了很多旧画面<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 295#       发表于 2021-3-29 12:04
@@ -3621,7 +3621,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 164cm，51kg的腹肌女？这不得再重个十几斤？
 
 
------
+*****
 
 ####  Tehebe  
 ##### 296#       发表于 2021-3-29 12:51
@@ -3632,7 +3632,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  OBW  
 ##### 297#       发表于 2021-3-29 14:53
@@ -3641,7 +3641,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 这动画如果用偶像番的标准来说感觉是走偏了
 
 
------
+*****
 
 ####  灼眼的夏娜酱  
 ##### 298#       发表于 2021-3-29 17:30
@@ -3656,7 +3656,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 炸不炸不知道，不过这片的Nico好评率没高过...第一集到第十一集第一项分别是41.8、53.8、55.8、66、65.7、62.5、70.7、58.9、54.7、70.6、69.8。
 
 
------
+*****
 
 ####  若菜  
 ##### 299#       发表于 2021-3-29 18:51
@@ -3665,7 +3665,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 不过怎么说非常喜欢这片，人鬼情未了就是我的菜<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  六花自我中  
 ##### 300#       发表于 2021-3-29 19:05
@@ -3674,7 +3674,7 @@ mana变成幽灵看板娘<img src="https://static.saraba1st.com/image/smiley/fac
 nmdwsm
 
 
------
+*****
 
 ####  cat1230  
 ##### 301#       发表于 2021-3-29 19:22

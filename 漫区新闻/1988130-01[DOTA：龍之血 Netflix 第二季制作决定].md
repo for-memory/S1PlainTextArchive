@@ -2,7 +2,7 @@
 
 
 
------
+*****
 
 ####  Piano-Forest  
 ##### 1#       楼主       发表于 2021-2-17 08:38
@@ -35,7 +35,7 @@
 查看全部评分
 
 
------
+*****
 
 ####  poptopzip  
 ##### 2#       发表于 2021-2-17 09:04
@@ -44,7 +44,7 @@
 龙骑你的盾呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Litccc  
 ##### 3#       发表于 2021-2-17 09:06
@@ -70,7 +70,7 @@
 查看全部评分
 
 
------
+*****
 
 ####  NeloAngelo  
 ##### 4#       发表于 2021-2-17 10:00
@@ -86,7 +86,7 @@
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  阿卵真是牛逼  
 ##### 5#       发表于 2021-2-17 10:06
@@ -95,7 +95,7 @@
 我不需要战马（指骑马登场）
 
 
------
+*****
 
 ####  空罐子  
 ##### 6#       发表于 2021-2-17 10:06
@@ -106,7 +106,7 @@
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  kamarus  
 ##### 7#       发表于 2021-2-17 10:09
@@ -115,7 +115,7 @@
 这两队友到底是谁啊?莉娜?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  windhawind2  
 ##### 8#       发表于 2021-2-17 10:11
@@ -126,7 +126,7 @@
 右边这个是谁阿 lina？但是lina是卷发阿 而且现在脑子里都是那个头上一团火的至宝形象了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  漂灵  
 ##### 9#       发表于 2021-2-17 10:13
@@ -135,7 +135,7 @@
 这个论坛纯度有问题啊 右边很明显是风行啊
 
 
------
+*****
 
 ####  spring_VOV  
 ##### 10#       发表于 2021-2-17 10:17
@@ -144,7 +144,7 @@
 打农骑，打农骑
 
 
------
+*****
 
 ####  kamarus  
 ##### 11#       发表于 2021-2-17 10:18
@@ -155,7 +155,7 @@
 左高精右暗精，龙骑士，你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  absaki  
 ##### 12#       发表于 2021-2-17 10:29
@@ -166,7 +166,7 @@
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  zhrs456  
 ##### 13#       发表于 2021-2-17 10:31
@@ -177,7 +177,7 @@
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  格雷殿下  
 ##### 14#       发表于 2021-2-17 10:35
@@ -201,7 +201,7 @@
 查看全部评分
 
 
------
+*****
 
 ####  lancasterliang  
 ##### 15#       发表于 2021-2-17 11:09
@@ -226,7 +226,7 @@
 查看全部评分
 
 
------
+*****
 
 ####  病態極端  
 ##### 16#       发表于 2021-2-17 11:51
@@ -235,7 +235,7 @@
 龍騎的聲音跟遊戲裡完全不一樣
 
 
------
+*****
 
 ####  废都刽子手  
 ##### 17#       发表于 2021-2-17 11:52
@@ -244,7 +244,7 @@
 建议选择 龙骑士
 
 
------
+*****
 
 ####  wzq121314  
 ##### 18#       发表于 2021-2-17 11:56
@@ -256,7 +256,7 @@
 C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ml1642879  
 ##### 19#       发表于 2021-2-17 11:56
@@ -265,7 +265,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 谁在呼唤龙骑士
 
 
------
+*****
 
 ####  abctra123  
 ##### 20#       发表于 2021-2-17 12:00
@@ -276,7 +276,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 误入此贴
 
 
------
+*****
 
 ####  mazin001  
 ##### 21#       发表于 2021-2-17 12:07
@@ -285,7 +285,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 是我最爱的蓝色龙骑环节
 
 
------
+*****
 
 ####  小红莲  
 ##### 22#       发表于 2021-2-17 12:08
@@ -294,7 +294,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 最后结局是队友冲上敌方高地龙骑背后一片烟花
 
 
------
+*****
 
 ####  KozueAkimoto  
 ##### 23#       发表于 2021-2-17 13:41
@@ -303,7 +303,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 有点烂片的感jio
 
 
------
+*****
 
 ####  米德  
 ##### 24#       发表于 2021-2-17 14:47
@@ -314,7 +314,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  sandro  
 ##### 25#       发表于 2021-2-17 15:47
@@ -323,7 +323,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 卧槽，这dk怎么这么像盖伦
 
 
------
+*****
 
 ####  uponutopia  
 ##### 26#       发表于 2021-2-17 16:27
@@ -332,7 +332,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 这画风也太二刺猿了，v社也开始迎合亚洲人审美了吗  白虎风行要长这样我估计还能多玩两年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Buttercry  
 ##### 27#       发表于 2021-2-17 16:36
@@ -343,7 +343,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 破案了，这个龙骑是水人变的
 
 
------
+*****
 
 ####  dclara1  
 ##### 28#       发表于 2021-2-17 16:47
@@ -356,7 +356,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 — from Google Pixel 4a (5G), Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  lostneverland  
 ##### 29#       发表于 2021-2-17 17:45
@@ -367,7 +367,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 还是龙骑中单，莉娜辅助？
 
 
------
+*****
 
 ####  田多宇光  
 ##### 30#       发表于 2021-2-17 18:47
@@ -378,7 +378,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 
------
+*****
 
 ####  夏溪澪mio  
 ##### 31#       发表于 2021-2-17 20:05
@@ -387,7 +387,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 那是松鼠吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  风浦可符香(P.N)  
 ##### 32#       发表于 2021-2-17 20:54
@@ -396,7 +396,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 艹，眼花了以为是DOA，白高兴了
 
 
------
+*****
 
 ####  树洞专用  
 ##### 33#       发表于 2021-2-17 21:06
@@ -405,7 +405,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 第一集：永久变龙
 
 
------
+*****
 
 ####  ishikawa_k  
 ##### 34#       发表于 2021-2-17 21:17
@@ -414,7 +414,7 @@ C位是盖伦吗！<img src="https://static.saraba1st.com/image/smiley/face2017/
 dk的id是yyfyyf点康姆吗
 
 
------
+*****
 
 ####  巴德那克  
 ##### 35#       发表于 2021-2-17 21:39
@@ -423,7 +423,7 @@ dk的id是yyfyyf点康姆吗
 结果预告就打轰龙，你真的不是隔壁苍蓝星片场来的么？
 
 
------
+*****
 
 ####  TCone  
 ##### 36#       发表于 2021-2-17 22:38
@@ -432,7 +432,7 @@ dk的id是yyfyyf点康姆吗
 憋整那些有的没的，新英雄、至宝赶紧出啊
 
 
------
+*****
 
 ####  battleship64  
 ##### 37#       发表于 2021-2-18 00:01
@@ -442,7 +442,7 @@ dk的id是yyfyyf点康姆吗
 第25集 锋哥
 
 
------
+*****
 
 ####  amazarashi  
 ##### 38#       发表于 2021-2-18 00:47
@@ -451,7 +451,7 @@ dk的id是yyfyyf点康姆吗
 农骑士支配萨特的环节呢
 
 
------
+*****
 
 ####  sohryu  
 ##### 39#       发表于 2021-2-18 04:06
@@ -460,7 +460,7 @@ dk的id是yyfyyf点康姆吗
 除了客户端，哪儿都能看见刀斯林<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  五块太贵不买了  
 ##### 40#       发表于 2021-2-18 10:17
@@ -469,7 +469,7 @@ dk的id是yyfyyf点康姆吗
 出a帐永久变度拉贡
 
 
------
+*****
 
 ####  bigheadnotbig  
 ##### 41#       发表于 2021-2-18 10:24
@@ -478,7 +478,7 @@ dk的id是yyfyyf点康姆吗
 A杖莲花刃甲冲泉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pk5980  
 ##### 42#       发表于 2021-2-18 10:29
@@ -502,7 +502,7 @@ A杖莲花刃甲冲泉<img src="https://static.saraba1st.com/image/smiley/face20
 查看全部评分
 
 
------
+*****
 
 ####  kkf001  
 ##### 43#       发表于 2021-2-18 10:47
@@ -513,7 +513,7 @@ A杖莲花刃甲冲泉<img src="https://static.saraba1st.com/image/smiley/face20
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Acatv  
 ##### 44#       发表于 2021-2-18 11:01
@@ -522,7 +522,7 @@ A杖莲花刃甲冲泉<img src="https://static.saraba1st.com/image/smiley/face20
 漫区的SG浓度这么高的吗
 
 
------
+*****
 
 ####  blueflames001  
 ##### 45#       发表于 2021-2-18 11:10
@@ -533,7 +533,7 @@ A杖莲花刃甲冲泉<img src="https://static.saraba1st.com/image/smiley/face20
 你看，我们还有奶棒人啊
 
 
------
+*****
 
 ####  ckming  
 ##### 46#       发表于 2021-2-20 07:16
@@ -557,7 +557,7 @@ A杖莲花刃甲冲泉<img src="https://static.saraba1st.com/image/smiley/face20
 查看全部评分
 
 
------
+*****
 
 ####  树洞专用  
 ##### 47#       发表于 2021-2-20 08:27
@@ -568,7 +568,7 @@ A杖莲花刃甲冲泉<img src="https://static.saraba1st.com/image/smiley/face20
 https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个PV靠谱[https://www.bilibili.com/video/BV1e5411N7vy](https://www.bilibili.com/video/BV1e5411N7vy)多了
 
 
------
+*****
 
 ####  zhliiiii  
 ##### 48#       发表于 2021-2-20 08:31
@@ -577,7 +577,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 一个个都不要命了？
 
 
------
+*****
 
 ####  树洞专用  
 ##### 49#       发表于 2021-2-20 08:31
@@ -586,7 +586,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这个pom风行冲了
 
 
------
+*****
 
 ####  风鸣弦十郎  
 ##### 50#       发表于 2021-2-20 08:38
@@ -595,7 +595,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 这人设好战神精钢 要PTSD了
 
 
------
+*****
 
 ####  米德  
 ##### 51#       发表于 2021-2-20 08:41
@@ -606,7 +606,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  windhawind2  
 ##### 52#       发表于 2021-2-20 09:32
@@ -617,7 +617,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  pulotocore  
 ##### 53#       发表于 2021-2-20 10:16
@@ -629,7 +629,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 不像啊
 
 
------
+*****
 
 ####  iceplatinum  
 ##### 54#       发表于 2021-2-20 10:29
@@ -638,7 +638,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 还是风行好看，其他的都是大妈味，不过也符合年龄
 
 
------
+*****
 
 ####  iceplatinum  
 ##### 55#       发表于 2021-2-20 10:31
@@ -649,7 +649,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 这阵容怎么打啊，趁早投了算了
 
 
------
+*****
 
 ####  FBIwarning  
 ##### 56#       发表于 2021-2-20 10:38
@@ -658,7 +658,7 @@ https://www.bilibili.com/video/BV1e5411N7vy 新的预告片出来了。比上个
 V社为啥不用自家的sfm做3d动画
 
 
------
+*****
 
 ####  河水  
 ##### 57#       发表于 2021-2-20 10:51
@@ -669,7 +669,7 @@ V社为啥不用自家的sfm做3d动画
 风行看上去好妹妹
 
 
------
+*****
 
 ####  罗蒙诺索夫  
 ##### 58#       发表于 2021-2-20 10:57
@@ -678,7 +678,7 @@ V社为啥不用自家的sfm做3d动画
 主角敢不敢弄个非人非精灵？地卜师或者谜团如何
 
 
------
+*****
 
 ####  amazarashi  
 ##### 59#       发表于 2021-2-20 11:18
@@ -689,7 +689,7 @@ V社为啥不用自家的sfm做3d动画
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主角团看着快把人形的英雄用光了
 
 
------
+*****
 
 ####  LFPart  
 ##### 60#       发表于 2021-2-20 11:39
@@ -700,7 +700,7 @@ V社为啥不用自家的sfm做3d动画
 
 
 
------
+*****
 
 ####  absaki  
 ##### 61#       发表于 2021-2-20 11:50
@@ -716,7 +716,7 @@ ti阵容
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  Piano-Forest  
 ##### 62#         楼主| 发表于 2021-2-20 11:51
@@ -733,7 +733,7 @@ ti阵容
 <img src="https://p.sda1.dev/1/3e4ed049715e0d4331fc7e1a844f0192/IMG_20210220_113904.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kamarus  
 ##### 63#       发表于 2021-2-20 11:52
@@ -744,7 +744,7 @@ ti阵容
 这你得去请gw编剧来做动画<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  三角瑛一  
 ##### 64#       发表于 2021-2-20 12:02
@@ -755,7 +755,7 @@ ti阵容
 看PV就人形英雄（其实DOTA2里能露出人脸的英雄也不算多）打打大屁股尸王这个级别的菜鸡互啄
 
 
------
+*****
 
 ####  tianshangtx  
 ##### 65#       发表于 2021-2-20 14:46
@@ -771,7 +771,7 @@ ti阵容
 “好的！大哥！”
 
 
------
+*****
 
 ####  Piano-Forest  
 ##### 66#         楼主| 发表于 2021-2-24 19:54
@@ -812,7 +812,7 @@ Additionally, subtitles will be available in 30 languages.
 <img src="https://p.sda1.dev/1/326efa5c1de8b7b5473d20a2a6e2cf56/IMG_20210224_195036.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  米德  
 ##### 67#       发表于 2021-3-2 09:46
@@ -823,7 +823,7 @@ Additionally, subtitles will be available in 30 languages.
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  spring_VOV  
 ##### 68#       发表于 2021-3-2 09:54
@@ -832,7 +832,7 @@ Additionally, subtitles will be available in 30 languages.
 这TB的脸也太丑了，没钱买至宝？
 
 
------
+*****
 
 ####  超法拉  
 ##### 69#       发表于 2021-3-2 10:11
@@ -842,7 +842,7 @@ Additionally, subtitles will be available in 30 languages.
 网飞是不是找了个姓路名纳的路人男来演啊……这也差太多了
 
 
------
+*****
 
 ####  アビスこん  
 ##### 70#       发表于 2021-3-2 11:03
@@ -851,7 +851,7 @@ Additionally, subtitles will be available in 30 languages.
 论坛网友言论与本人无关<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  smkf013  
 ##### 71#       发表于 2021-3-2 11:10
@@ -860,7 +860,7 @@ Additionally, subtitles will be available in 30 languages.
 我点进这个帖子完全是看错成龙之谷，本贴内容我完全不懂，此论坛网友言论与本人无关
 
 
------
+*****
 
 ####  syndrome2032  
 ##### 72#       发表于 2021-3-2 11:41
@@ -871,7 +871,7 @@ Additionally, subtitles will be available in 30 languages.
 冰魂这设定就差没把熵字明写出来了。
 
 
------
+*****
 
 ####  amazarashi  
 ##### 73#       发表于 2021-3-2 12:14
@@ -882,7 +882,7 @@ Additionally, subtitles will be available in 30 languages.
 动画的TB确实没有本家的帅
 
 
------
+*****
 
 ####  Piano-Forest  
 ##### 74#         楼主| 发表于 2021-3-2 12:23
@@ -896,7 +896,7 @@ Additionally, subtitles will be available in 30 languages.
 <img src="https://p.sda1.dev/1/792c15639cf504516df40330c2986581/IMG_20210302_122116.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  syndrome2032  
 ##### 75#       发表于 2021-3-2 12:26
@@ -905,7 +905,7 @@ Additionally, subtitles will be available in 30 languages.
 卡尔你一个超越者陪这群凡人玩什么，该不会是吹风磁暴救救我，极速幽灵漫步吧
 
 
------
+*****
 
 ####  Sliurus  
 ##### 76#       发表于 2021-3-2 13:28
@@ -914,7 +914,7 @@ Additionally, subtitles will be available in 30 languages.
 卡尔穿的也太素了，没内味
 
 
------
+*****
 
 ####  ahoge2004  
 ##### 77#       发表于 2021-3-2 13:28
@@ -929,7 +929,7 @@ ti阵容
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  sd4442312  
 ##### 78#       发表于 2021-3-2 13:34
@@ -938,7 +938,7 @@ ti阵容
 这卡尔哪有傲世大法师的味道……
 
 
------
+*****
 
 ####  五块太贵不买了  
 ##### 79#       发表于 2021-3-2 13:52
@@ -947,7 +947,7 @@ ti阵容
 好丑啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是我要求太高了吗
 
 
------
+*****
 
 ####  有乐亭八云  
 ##### 80#       发表于 2021-3-2 15:35
@@ -958,7 +958,7 @@ ti阵容
 不过这音乐配预告倒是剪得挺燃的
 
 
------
+*****
 
 ####  wzq121314  
 ##### 81#       发表于 2021-3-2 15:48
@@ -967,7 +967,7 @@ ti阵容
 缺个混子
 
 
------
+*****
 
 ####  Cookiekira  
 ##### 82#       发表于 2021-3-25 15:07
@@ -978,7 +978,7 @@ ti阵容
  -- 傲娇地来自 Stage1未知客户端
 
 
------
+*****
 
 ####  Piano-Forest  
 ##### 83#         楼主| 发表于 2021-3-25 15:14
@@ -987,7 +987,7 @@ ti阵容
 现已上线（共8话）：[https://www.netflix.com/sg-zh/title/80994336](https://www.netflix.com/sg-zh/title/80994336)
 
 
------
+*****
 
 ####  qianoooo  
 ##### 84#       发表于 2021-3-25 15:16
@@ -996,7 +996,7 @@ ti阵容
 感觉再过两小时就有的下了
 
 
------
+*****
 
 ####  praetorian  
 ##### 85#       发表于 2021-3-25 15:33
@@ -1005,7 +1005,7 @@ ti阵容
 只要是看过网飞的恶魔城的人，应该不会对网飞这类型动画有太大期待。
 
 
------
+*****
 
 ####  火鸡味锅巴  
 ##### 86#       发表于 2021-3-25 15:37
@@ -1014,7 +1014,7 @@ ti阵容
 俊豪8年铁粉不请自来
 
 
------
+*****
 
 ####  Litccc  
 ##### 87#       发表于 2021-3-25 15:38
@@ -1023,7 +1023,7 @@ ti阵容
 奈飞自制剧是全区中文吗
 
 
------
+*****
 
 ####  夏溪澪mio  
 ##### 88#       发表于 2021-3-25 15:47
@@ -1034,7 +1034,7 @@ ti阵容
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  jy000129  
 ##### 89#       发表于 2021-3-25 15:52
@@ -1048,7 +1048,7 @@ ti阵容</blockquote>
 这个版本可以优化成WR3 LUNA5 DK1/卡尔1
 
 
------
+*****
 
 ####  夏溪澪mio  
 ##### 90#       发表于 2021-3-25 15:54
@@ -1063,7 +1063,7 @@ ti阵容</blockquote>
 
 
 
------
+*****
 
 ####  Cookiekira  
 ##### 91#       发表于 2021-3-25 15:55
@@ -1074,7 +1074,7 @@ ti阵容</blockquote>
  -- 傲娇地来自 Stage1未知客户端
 
 
------
+*****
 
 ####  kxh007458  
 ##### 92#       发表于 2021-3-25 16:05
@@ -1085,7 +1085,7 @@ ti阵容</blockquote>
 可恶魔城我觉得很不错啊，无非是某少被刚而已。另一边的吸血鬼妹子调教更是绝赞。
 
 
------
+*****
 
 ####  神之游侠  
 ##### 93#       发表于 2021-3-25 16:10
@@ -1094,7 +1094,7 @@ ti阵容</blockquote>
 来看农骑了
 
 
------
+*****
 
 ####  ak123  
 ##### 94#       发表于 2021-3-25 16:29
@@ -1115,7 +1115,7 @@ ti阵容</blockquote>
 2021-3-25 16:54 上传
 
 
------
+*****
 
 ####  火鸡味锅巴  
 ##### 95#       发表于 2021-3-25 16:31
@@ -1127,7 +1127,7 @@ ti阵容</blockquote>
 没事，反正没死英雄，死的只有狗头人和萨特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ffggty  
 ##### 96#       发表于 2021-3-25 16:34
@@ -1139,7 +1139,7 @@ ti阵容</blockquote>
 这样么
 
 
------
+*****
 
 ####  Litccc  
 ##### 97#       发表于 2021-3-25 16:35
@@ -1148,7 +1148,7 @@ ti阵容</blockquote>
 误入此贴
 
 
------
+*****
 
 ####  ak123  
 ##### 98#       发表于 2021-3-25 16:41
@@ -1163,7 +1163,7 @@ ti阵容</blockquote>
 编剧水平低下，爱搞大命题作文但是一个都收不住。喜欢搞政治正确碰瓷，还整活专和观众作对，战神金刚后面只剩卖cp都能卖炸，把所有观众群体都赛一嘴屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####   匿名
 ##### 99#        匿名   发表于 2021-3-25 17:00
@@ -1172,7 +1172,7 @@ ti阵容</blockquote>
 rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 
 
------
+*****
 
 ####  海原穹乃  
 ##### 100#       发表于 2021-3-25 17:04
@@ -1181,7 +1181,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 又吃书是吧，我记得英雄背景里达维安不是和斯耐瑞克两败俱伤融为一体的，这第一集达维安纯捡漏混子啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Cookiekira  
 ##### 101#       发表于 2021-3-25 17:08
@@ -1192,7 +1192,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
  -- 傲娇地来自 Stage1未知客户端
 
 
------
+*****
 
 ####  qianoooo  
 ##### 102#       发表于 2021-3-25 17:32
@@ -1205,7 +1205,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 卡尔英配是troy baker吧
 
 
------
+*****
 
 ####  absaki  
 ##### 103#       发表于 2021-3-25 17:35
@@ -1217,7 +1217,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 —— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  树洞专用  
 ##### 104#       发表于 2021-3-25 18:21
@@ -1226,7 +1226,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 看完了，打斗part还是很好看的，有内味，文戏一塌糊涂。后面几集感觉到明显不太行了。对我来说只会看一遍吧。主线看起来是一个普通的复仇+召唤恶魔，可惜这皮套的不太对
 
 
------
+*****
 
 ####  风真人  
 ##### 105#       发表于 2021-3-25 23:05
@@ -1237,7 +1237,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 借你吉言，已经喂了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  acejoe  
 ##### 106#       发表于 2021-3-25 23:26
@@ -1259,7 +1259,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 <img src="https://img.saraba1st.com/forum/202103/25/232553qicntay85cnz3n69.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Litccc  
 ##### 107#       发表于 2021-3-25 23:54
@@ -1270,7 +1270,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 我记得这张loading图在dota2里已经重置过一次了，没想到动画又复刻一次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ak123  
 ##### 108#       发表于 2021-3-26 00:26
@@ -1286,7 +1286,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 这片大概率会像战神金刚一样拉长线拍个七八季的样子，很不幸的接下来他们可以喂个够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cwlo  
 ##### 109#       发表于 2021-3-26 01:40
@@ -1295,7 +1295,7 @@ rarbg上传了扒源版，远鉴那边过了一道加硬字幕的二压
 LUNA也太MAN了吧
 
 
------
+*****
 
 ####  米德  
 ##### 110#       发表于 2021-3-26 01:49
@@ -1306,7 +1306,7 @@ LUNA也太MAN了吧
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  耐赫伊勒缇  
 ##### 111#       发表于 2021-3-26 03:05
@@ -1319,7 +1319,7 @@ LUNA也太MAN了吧
 等一个“主宰，应.召而来”
 
 
------
+*****
 
 ####  ckming  
 ##### 112#       发表于 2021-3-26 03:37
@@ -1328,7 +1328,7 @@ LUNA也太MAN了吧
 啊原来不是俊豪传？
 
 
------
+*****
 
 ####  市松椿  
 ##### 113#       发表于 2021-3-26 03:40
@@ -1339,7 +1339,7 @@ LUNA也太MAN了吧
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  血蹄  
 ##### 114#       发表于 2021-3-26 06:04
@@ -1350,7 +1350,7 @@ LUNA也太MAN了吧
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  火鸡味锅巴  
 ##### 115#       发表于 2021-3-26 07:40
@@ -1364,7 +1364,7 @@ LUNA也太MAN了吧
 等一个卡尔刷新十二连
 
 
------
+*****
 
 ####  食人魔法师  
 ##### 116#       发表于 2021-3-26 09:16
@@ -1372,7 +1372,7 @@ LUNA也太MAN了吧
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  清真肥皂厂  
 ##### 117#       发表于 2021-3-26 10:18
@@ -1383,7 +1383,7 @@ LUNA也太MAN了吧
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  windtrack  
 ##### 118#       发表于 2021-3-26 10:38
@@ -1392,7 +1392,7 @@ LUNA也太MAN了吧
 米拉娜的跟班有点萌<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mycNo1  
 ##### 119#       发表于 2021-3-26 10:42
@@ -1401,7 +1401,7 @@ LUNA也太MAN了吧
 看了五分钟感觉帧数有点低，是我的错觉么……
 
 
------
+*****
 
 ####  ak123  
 ##### 120#       发表于 2021-3-26 14:26
@@ -1414,7 +1414,7 @@ LUNA也太MAN了吧
 
 
 
------
+*****
 
 ####  letrain  
 ##### 121#       发表于 2021-3-26 22:58
@@ -1425,7 +1425,7 @@ LUNA也太MAN了吧
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Marcus_bardic  
 ##### 122#       发表于 2021-3-27 10:40
@@ -1434,7 +1434,7 @@ LUNA也太MAN了吧
 pom小跟班太萌了吧，赶快新英雄安排上
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 123#       发表于 2021-3-27 10:52
@@ -1445,7 +1445,7 @@ pom小跟班太萌了吧，赶快新英雄安排上
 什么时候给龙骑安排一个卡登身心？这逼格比土味龙骑强多了
 
 
------
+*****
 
 ####  救死扶伤魔力瞎  
 ##### 124#       发表于 2021-3-27 17:11
@@ -1457,7 +1457,7 @@ pom小跟班太萌了吧，赶快新英雄安排上
 —— 来自 OPPO PBAM00, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  伍佰  
 ##### 125#       发表于 2021-3-27 17:18
@@ -1465,7 +1465,7 @@ pom小跟班太萌了吧，赶快新英雄安排上
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  佛剑分说  
 ##### 126#       发表于 2021-3-27 18:26
@@ -1476,7 +1476,7 @@ pom小跟班太萌了吧，赶快新英雄安排上
 就是这故事才起了个头，后面的怕不是要等一年？
 
 
------
+*****
 
 ####  讴歌青春  
 ##### 127#       发表于 2021-3-27 19:03
@@ -1490,7 +1490,7 @@ https://b23.tv/7elbej</blockquote>
 大马哈鱼上只有个英文配音的
 
 
------
+*****
 
 ####  TheCyrodiil  
 ##### 128#       发表于 2021-3-27 21:01
@@ -1504,7 +1504,7 @@ https://b23.tv/7elbej</blockquote>
 分三季，每季8集，背靠v社起码不用担心没钱烂尾
 
 
------
+*****
 
 ####  indtability  
 ##### 129#       发表于 2021-3-27 22:10
@@ -1516,7 +1516,7 @@ https://b23.tv/7elbej</blockquote>
 V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  摩天城  
 ##### 130#       发表于 2021-3-27 22:20
@@ -1527,7 +1527,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 编辑
 
 
------
+*****
 
 ####  夏溪澪mio  
 ##### 131#       发表于 2021-3-28 00:10
@@ -1538,7 +1538,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  シルフィエット  
 ##### 132#       发表于 2021-3-28 00:41
@@ -1547,7 +1547,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 “中东王子”的谣言怎么还在传啊<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  摩天城  
 ##### 133#       发表于 2021-3-28 00:47
@@ -1558,7 +1558,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 已经确认不是了吗，我这之后是没看到过有其他消息
 
 
------
+*****
 
 ####  woshenc  
 ##### 134#       发表于 2021-3-28 00:48
@@ -1567,7 +1567,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 看完了，还挺不错的，就是这月神好弱鸡啊
 
 
------
+*****
 
 ####  hkguty  
 ##### 135#       发表于 2021-3-28 01:02
@@ -1576,7 +1576,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 感觉跟游戏里的角色印象差距很大，龙骑士又壮又爱裸奔，人设整一个格斯，桃花运还极其旺盛，我还以为欧美动画不会描写桃花运旺盛的男主角。露娜也跟游戏里的不一样感觉性格十分苦逼。不过整体来说还是十分棒的一部动画，剧情紧凑，上一部感觉很棒的网飞动画还是恶魔城第一季的时候了，希望后面几季继续保持吧。这一整个第一季感觉故事才刚刚开始，战争才刚要开始的感觉。三季真的讲得完么
 
 
------
+*****
 
 ####  火鸡味锅巴  
 ##### 136#       发表于 2021-3-28 07:54
@@ -1587,7 +1587,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 篡夺神格的二代月神被卡尔用符咒给阴了，变成血月后暂时丧失了信徒的信仰。
 
 
------
+*****
 
 ####  woshenc  
 ##### 137#       发表于 2021-3-28 19:52
@@ -1601,7 +1601,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 这个我也知道，不过神明居然在自己的神殿被暴打，实在是弱鸡233
 
 
------
+*****
 
 ####  wuzhengkai  
 ##### 138#       发表于 2021-3-28 21:06
@@ -1612,7 +1612,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 话说卡尔和tb就这么diao了 那设定里那几个四大基本元素级别的还有冰魂大牛这种怎么办
 
 
------
+*****
 
 ####  TheCyrodiil  
 ##### 139#       发表于 2021-3-29 09:03
@@ -1626,7 +1626,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 还不一定出场呢
 
 
------
+*****
 
 ####  阿木木的野望  
 ##### 140#       发表于 2021-4-3 20:04
@@ -1635,7 +1635,7 @@ V社的话确实不用担心没钱，但是能不能出第三季就很难说啊<
 玛西可爱 啥时候出dota世界观官方小说
 
 
------
+*****
 
 ####  Piano-Forest  
 ##### 141#         楼主| 发表于 2021-4-20 12:24
@@ -1646,7 +1646,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 <img src="https://p.sda1.dev/1/df27a76cc2465121ecc5eb06a37f0f6b/ef1cf322d468356663aa1af9478798ff61d089ca.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Litccc  
 ##### 142#       发表于 2021-4-20 12:31
@@ -1655,7 +1655,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 这滚滚是发福了吗？furry控震怒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nightmare902015  
 ##### 143#       发表于 2021-4-20 12:35
@@ -1664,7 +1664,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 石鳞剑士，你太沉浸于享乐了<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  救死扶伤魔力瞎  
 ##### 144#       发表于 2021-4-20 12:47
@@ -1679,7 +1679,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 —— 来自 OPPO PBAM00, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
------
+*****
 
 ####  夏溪澪mio  
 ##### 145#       发表于 2021-4-20 13:05
@@ -1692,7 +1692,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 —— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  woshenc  
 ##### 146#       发表于 2021-4-20 13:34
@@ -1701,7 +1701,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 有第二季太棒了，想继续看屑月神哭哭233
 
 
------
+*****
 
 ####  acejoe  
 ##### 147#       发表于 2021-4-20 13:44
@@ -1714,7 +1714,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 难道是酒仙？
 
 
------
+*****
 
 ####  jy000129  
 ##### 148#       发表于 2021-4-20 14:24
@@ -1725,7 +1725,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 —— 来自 HUAWEI WLZ-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  TCone  
 ##### 149#       发表于 2021-4-20 15:03
@@ -1737,7 +1737,7 @@ Book 2 is coming! The second season of DOTA: Dragon's Blood is in the works.
 sven冰火女不考虑安排一下吗？
 
 
------
+*****
 
 ####  lzxxx  
 ##### 150#       发表于 2021-4-20 15:24
@@ -1748,7 +1748,7 @@ sven冰火女不考虑安排一下吗？
 
 
 
------
+*****
 
 ####  loli炮  
 ##### 151#       发表于 2021-4-20 15:26

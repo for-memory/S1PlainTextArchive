@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2021-03-24 03:16** 
 
 
------
+*****
 
 ####  liuxl8964  
 ##### 1#       楼主       发表于 2021-3-19 12:48
@@ -10,7 +10,7 @@
 [https://www.intel.com/content/ww ... rformance/gopc.html](https://www.intel.com/content/www/us/en/products/performance/gopc.html)
 
 
------
+*****
 
 ####  bubuyu  
 ##### 2#       发表于 2021-3-19 13:04
@@ -19,7 +19,7 @@
 不跟AMD比比吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  melvin95  
 ##### 3#       发表于 2021-3-19 13:04
@@ -28,7 +28,7 @@
 牙膏的营销再次施展司马大法<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  我老婆呢  
 ##### 4#       发表于 2021-3-19 13:15
@@ -38,7 +38,7 @@
 另外文中提到m1为了续航降低峰值亮度很好奇  求确证来自: iPhone客户端
 
 
------
+*****
 
 ####  Rarity5  
 ##### 5#       发表于 2021-3-19 13:19
@@ -47,7 +47,7 @@
 牙膏怎么越来越low了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qzy741147  
 ##### 6#       发表于 2021-3-19 13:20
@@ -59,7 +59,7 @@
 Apple 于 2020 年 10 月使用试生产的配备 Apple M1 芯片 (集成 8 核图形处理器)、8GB RAM 和 512GB 固态硬盘的 MacBook Air 系统进行了此项测试。测试 Apple TV app 影片播放时的电池续航时间，是通过播放高清 1080p 内容得出的，测试时显示屏亮度从最小亮度开始点击 8 次。此类服务可能仅适用于部分地区和语言。电池续航时间依使用情况和设置的不同可能有所差异。详情请参阅 apple.com.cn/batteries。
 
 
------
+*****
 
 ####  melvin95  
 ##### 7#       发表于 2021-3-19 13:22
@@ -75,7 +75,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 — from HUAWEI HLK-L41, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  Jet.Black  
 ##### 8#       发表于 2021-3-19 13:24
@@ -86,7 +86,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  泉玲奈  
 ##### 9#       发表于 2021-3-19 13:28
@@ -98,7 +98,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 牙膏币....
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 10#       发表于 2021-3-19 13:52
@@ -107,7 +107,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 续航再长，能跑windows吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白木あえか  
 ##### 11#       发表于 2021-3-19 13:55
@@ -116,7 +116,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 他是那么普通，却又那么自信，和请女拳头子作代言人是一个营销团队吧
 
 
------
+*****
 
 ####  Nanachi  
 ##### 12#       发表于 2021-3-19 14:01
@@ -127,7 +127,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  bubuyu  
 ##### 13#       发表于 2021-3-19 14:02
@@ -139,7 +139,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 然后正常用户买不到Intel U只能转向AMD和水果吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  鸳鸳相抱  
 ##### 14#       发表于 2021-3-19 14:04
@@ -156,7 +156,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 摆脱电源线束缚    O
 
 
------
+*****
 
 ####  mcq_2  
 ##### 15#       发表于 2021-3-19 14:05
@@ -170,7 +170,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 没有需求？那就创造需求。
 
 
------
+*****
 
 ####  Realplayer  
 ##### 16#       发表于 2021-3-19 14:06
@@ -179,7 +179,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 不喜欢arm，但是支持干死膏厂
 
 
------
+*****
 
 ####  Jet.Black  
 ##### 17#       发表于 2021-3-19 14:09
@@ -191,7 +191,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 正常用户可能也用不到avx512<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nanachi  
 ##### 18#       发表于 2021-3-19 14:11
@@ -206,7 +206,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 了解不多，MacBook可以无线充电了吗？
 
 
------
+*****
 
 ####  melvin95  
 ##### 19#       发表于 2021-3-19 14:17
@@ -222,7 +222,7 @@ EVO标的11代本全低能模式跑也过不了7小时续航，m1 mba15小时起
 arm还没铺开来外野电动爹的味道就来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Sakaiyuki  
 ##### 20#       发表于 2021-3-19 14:20
@@ -237,7 +237,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 问就是在不给提供电源的地方爆肝。
 
 
------
+*****
 
 ####  Nanachi  
 ##### 21#       发表于 2021-3-19 14:22
@@ -250,7 +250,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 没看懂，电动车和笔记本电脑、手机有什么关系？都用电池？
 
 
------
+*****
 
 ####  Nanachi  
 ##### 22#       发表于 2021-3-19 14:24
@@ -262,7 +262,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 十小时无法接触到电源的工作也有点太惨了。
 
 
------
+*****
 
 ####  鸳鸳相抱  
 ##### 23#       发表于 2021-3-19 14:25
@@ -273,7 +273,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好吧是我错了，你从来没觉得插电使用笔记本是一种束缚
 
 
------
+*****
 
 ####  melvin95  
 ##### 24#       发表于 2021-3-19 14:25
@@ -291,7 +291,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 出外更不用说了，多少年了终于可以有信心地不背充电器出外找人一整天
 
 
------
+*****
 
 ####  melvin95  
 ##### 25#       发表于 2021-3-19 14:25
@@ -303,7 +303,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 全世界的销售人员：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nanachi  
 ##### 26#       发表于 2021-3-19 14:29
@@ -315,7 +315,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 能展开讲讲吗？确实对销售了解不多，需要在外一连十小时用笔记本电脑进行展示？
 
 
------
+*****
 
 ####  黄字  
 ##### 27#       发表于 2021-3-19 14:35
@@ -341,7 +341,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 查看全部评分
 
 
------
+*****
 
 ####  starash  
 ##### 28#       发表于 2021-3-19 14:36
@@ -358,7 +358,7 @@ arm还没铺开来外野电动爹的味道就来了<img src="https://static.sara
 intel的能有4-5小时就不错了。
 
 
------
+*****
 
 ####  Realplayer  
 ##### 29#       发表于 2021-3-19 14:39
@@ -387,7 +387,7 @@ intel的能有4-5小时就不错了。
 查看全部评分
 
 
------
+*****
 
 ####  远阪士郎  
 ##### 30#       发表于 2021-3-19 14:46
@@ -401,7 +401,7 @@ intel的能有4-5小时就不错了。
 续航长的话，a点到b点就可以不带充电头了
 
 
------
+*****
 
 ####  melvin95  
 ##### 31#       发表于 2021-3-19 14:46
@@ -418,7 +418,7 @@ intel的能有4-5小时就不错了。
 — from HUAWEI HLK-L41, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
------
+*****
 
 ####  Realplayer  
 ##### 32#       发表于 2021-3-19 14:48
@@ -430,7 +430,7 @@ intel的能有4-5小时就不错了。
 A/B各放一个充电头不完了
 
 
------
+*****
 
 ####  str007  
 ##### 33#       发表于 2021-3-19 14:55
@@ -439,7 +439,7 @@ A/B各放一个充电头不完了
 杠精为了黑苹果，不惜舔牙膏的**，还嘴硬续航长了没用<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  远阪士郎  
 ##### 34#       发表于 2021-3-19 14:59
@@ -451,7 +451,7 @@ A/B各放一个充电头不完了</blockquote>这成本是自己的
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Realplayer  
 ##### 35#       发表于 2021-3-19 15:05
@@ -466,7 +466,7 @@ A/B各放一个充电头不完了</blockquote>这成本是自己的
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">长续航不要成本？可选的设备还更多价格窗口也更大
 
 
------
+*****
 
 ####  ffggty  
 ##### 36#       发表于 2021-3-19 15:09
@@ -476,7 +476,7 @@ A/B各放一个充电头不完了</blockquote>这成本是自己的
 不会真的有人用带电池的笔记本吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eva02eva02  
 ##### 37#       发表于 2021-3-19 15:53
@@ -487,7 +487,7 @@ A/B各放一个充电头不完了</blockquote>这成本是自己的
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  nice女武神  
 ##### 38#       发表于 2021-3-19 16:18
@@ -498,7 +498,7 @@ A/B各放一个充电头不完了</blockquote>这成本是自己的
 确实不要啊  苹果这个本子15小时续航需要另外付费吗
 
 
------
+*****
 
 ####  星野心叶  
 ##### 39#       发表于 2021-3-19 16:34
@@ -509,7 +509,7 @@ A/B各放一个充电头不完了</blockquote>这成本是自己的
 体面些吧
 
 
------
+*****
 
 ####  Unlight  
 ##### 40#       发表于 2021-3-19 16:47
@@ -520,7 +520,7 @@ A/B各放一个充电头不完了</blockquote>这成本是自己的
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  Katkan_Ivan  
 ##### 41#       发表于 2021-3-19 16:52
@@ -538,7 +538,7 @@ A/B各放一个充电头不完了</blockquote>
 英吹真的很interesting
 
 
------
+*****
 
 ####  BallanceHZ  
 ##### 42#       发表于 2021-3-19 16:54
@@ -547,7 +547,7 @@ A/B各放一个充电头不完了</blockquote>
 黑m1mba用ssd寿命/ram杀猪/稳定性不佳黑不好吗，续航无用论是什么脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  perfaceNext  
 ##### 43#       发表于 2021-3-19 16:55
@@ -560,7 +560,7 @@ A/B各放一个充电头不完了</blockquote>
 周末在家加班，不用把电源线带回家
 
 
------
+*****
 
 ####  melvin95  
 ##### 44#       发表于 2021-3-19 16:59
@@ -575,7 +575,7 @@ A/B各放一个充电头不完了</blockquote>
 我也是没想到他们捣鼓了这么久居然不黑些实际的东西
 
 
------
+*****
 
 ####  Unlight  
 ##### 45#       发表于 2021-3-19 17:01
@@ -591,7 +591,7 @@ A/B各放一个充电头不完了</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  橋白  
 ##### 46#       发表于 2021-3-19 17:04
@@ -604,7 +604,7 @@ A/B各放一个充电头不完了</blockquote>
 结果旁边跳了个倍杀的对手来<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  melvin95  
 ##### 47#       发表于 2021-3-19 17:06
@@ -622,7 +622,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 真是向对方引用降智法多了自己也变ZZ了
 
 
------
+*****
 
 ####  CyanCloverFern  
 ##### 48#       发表于 2021-3-19 17:41
@@ -634,7 +634,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">雪花屏已经看得佛系了
 
 
------
+*****
 
 ####  enako_cosplay  
 ##### 49#       发表于 2021-3-19 17:46
@@ -647,7 +647,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 以前我也觉得续航无所谓，后来用习惯mac，surface这种超极本后发现续航，屏幕，做工实在太tm重要了    
 
 
------
+*****
 
 ####  Nanachi  
 ##### 50#       发表于 2021-3-19 17:55
@@ -660,7 +660,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  依旧ing  
 ##### 51#       发表于 2021-3-19 18:22
@@ -676,7 +676,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
------
+*****
 
 ####  银光闪耀  
 ##### 52#       发表于 2021-3-19 18:29
@@ -694,7 +694,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 不愧是牙膏 已经万策尽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nanachi  
 ##### 53#       发表于 2021-3-19 18:35
@@ -710,7 +710,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  monono  
 ##### 54#       发表于 2021-3-19 18:45
@@ -721,7 +721,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 可以
 
 
------
+*****
 
 ####  GuardHei  
 ##### 55#       发表于 2021-3-19 18:49
@@ -732,7 +732,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  nianiania  
 ##### 56#       发表于 2021-3-19 18:58
@@ -743,7 +743,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 —— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  madbird302  
 ##### 57#       发表于 2021-3-19 19:04
@@ -756,7 +756,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 [https://answers.microsoft.com/en ... 6-a73f-4770a11c86d4](https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_install/how-to-test-windows-10-arm-insider-on-m1-macs/7082dca1-f70c-4986-a73f-4770a11c86d4)
 
 
------
+*****
 
 ####  melvin95  
 ##### 58#       发表于 2021-3-19 19:28
@@ -767,7 +767,7 @@ x86游戏本谈何续航<img src="https://static.saraba1st.com/image/smiley/face
 LS还在狂跳是真的收了牙膏的钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  sirlion  
 ##### 59#       发表于 2021-3-19 19:44
@@ -776,7 +776,7 @@ LS还在狂跳是真的收了牙膏的钱吗<img src="https://static.saraba1st.c
 可能闪存贵，焊死这些阴特儿也会有，所以容易一巴掌糊到自己脸上，续航长这东西目前就m1了，所以只要黑这个肯定是黑的m1
 
 
------
+*****
 
 ####  Realplayer  
 ##### 60#       发表于 2021-3-19 20:21
@@ -785,7 +785,7 @@ LS还在狂跳是真的收了牙膏的钱吗<img src="https://static.saraba1st.c
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 擦，很荣幸我大概成膏粉了
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 61#       发表于 2021-3-19 20:24
@@ -799,7 +799,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 试验性质的东西就算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  john  
 ##### 62#       发表于 2021-3-19 20:33
@@ -811,7 +811,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 就算你们都是插电用笔记本的也要找准角度啊
 
 
------
+*****
 
 ####  madbird302  
 ##### 63#       发表于 2021-3-19 20:53
@@ -823,7 +823,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 虽然一直没更新，但确实能运行啊
 
 
------
+*****
 
 ####  不热爱讨论  
 ##### 64#       发表于 2021-3-19 20:56
@@ -836,7 +836,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 抢不到电源的自习室一整天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  SICP  
 ##### 65#       发表于 2021-3-19 21:04
@@ -847,7 +847,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 能用，速度也还行
 
 
------
+*****
 
 ####  古畑任三郎2015  
 ##### 66#       发表于 2021-3-19 21:12
@@ -857,7 +857,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 然而因为疫情根本没给我出差的机会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hein  
 ##### 67#       发表于 2021-3-19 22:09
@@ -866,7 +866,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 体面点，直接说移动设备都不需要续航好了。
 
 
------
+*****
 
 ####  aiboers110  
 ##### 68#       发表于 2021-3-20 08:40
@@ -875,7 +875,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 只能说请杨笠这个骂男人为生的来代言的intel，果然是不行了
 
 
------
+*****
 
 ####  凶手  
 ##### 69#       发表于 2021-3-20 10:05
@@ -886,7 +886,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 比起杨笠 那个rock才是... 听过他的线下就懂了
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 70#       发表于 2021-3-20 11:07
@@ -898,7 +898,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 跑不了x86游戏<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SICP  
 ##### 71#       发表于 2021-3-20 11:10
@@ -909,7 +909,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">你真装过？你要玩啥游戏？
 
 
------
+*****
 
 ####  Re.Troy  
 ##### 72#       发表于 2021-3-20 11:36
@@ -921,7 +921,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 这人每个相关帖子都要跑来撒一泡粪，劝你不要跟他浪费时间
 
 
------
+*****
 
 ####  三千珈蓝  
 ##### 73#       发表于 2021-3-20 12:00
@@ -933,7 +933,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 这人好像自带粉圈，相关微博下一副被控评的了样子
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 74#       发表于 2021-3-20 12:42
@@ -944,7 +944,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 揭你们果粉的短就叫拉粪咯？你们果粉优越感爆棚地发表高论的时候呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Re.Troy  
 ##### 75#       发表于 2021-3-20 12:55
@@ -956,7 +956,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 先扯跑不了windows，别人说虚拟机能跑又说跑得不好，别人说跑得很好又说玩不了游戏，其实玩游戏的视频一搜一大堆，继续转进啊，我倒要看看你还能转进几次拉些什么出来<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 76#       发表于 2021-3-20 13:16
@@ -971,7 +971,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 这点我是不败的<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Re.Troy  
 ##### 77#       发表于 2021-3-20 13:21
@@ -983,7 +983,7 @@ https://answers.microsoft.com/en-us/insider/forum/insider_wintp-insider_ ...</bl
 又转进啊？你继续，我就看你表演，快进到mac煮不了咖啡就是个垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 78#       发表于 2021-3-20 13:22
@@ -998,7 +998,7 @@ mac煮不了咖啡就是个垃圾
 如你所愿<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  migros  
 ##### 79#       发表于 2021-3-20 13:32
@@ -1009,7 +1009,7 @@ mac煮不了咖啡就是个垃圾
 —— 来自 samsung SM-G7810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
 
 
------
+*****
 
 ####  别叫我宅男  
 ##### 80#       发表于 2021-3-20 14:56
@@ -1020,7 +1020,7 @@ mac煮不了咖啡就是个垃圾
 没准是杨笠舔狗呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  libra1990  
 ##### 81#       发表于 2021-3-20 15:13
@@ -1029,7 +1029,7 @@ mac煮不了咖啡就是个垃圾
 其实还没期待intel的台积电工艺品的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cqkxywj  
 ##### 82#       发表于 2021-3-20 19:15
@@ -1040,7 +1040,7 @@ mac煮不了咖啡就是个垃圾
  -- 傲娇地来自 Stage1未知客户端
 
 
------
+*****
 
 ####  远阪士郎  
 ##### 83#       发表于 2021-3-20 19:57
@@ -1052,7 +1052,7 @@ mac煮不了咖啡就是个垃圾
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这都舔得瞎成啥样啊
 
 
------
+*****
 
 ####  foxlxr  
 ##### 84#       发表于 2021-3-21 04:29
@@ -1061,7 +1061,7 @@ mac煮不了咖啡就是个垃圾
 之前不了解的时候看着I粉上窜下跳黑别人A炮啥的还觉得牙膏厂又要开始发挥技术实力碾压其他了，看多了测评才发现原来小丑就是I粉啊。
 
 
------
+*****
 
 ####  すぴぱら  
 ##### 85#       发表于 2021-3-21 06:48
@@ -1072,7 +1072,7 @@ mac煮不了咖啡就是个垃圾
 安卓模拟器跟windows/hyper-v有什么关系？你的意思macos上不配有模拟器？
 
 
------
+*****
 
 ####  asuka.  
 ##### 86#       发表于 2021-3-21 07:40
@@ -1083,7 +1083,7 @@ mac煮不了咖啡就是个垃圾
 车间和办公室点对点哪怕只用10分钟我都要插电，不过现在都是type-C了，充电器我丢车间，办公室用显示器的type-C，25寸的2K干活刚刚好。
 
 
------
+*****
 
 ####  淋  
 ##### 87#       发表于 2021-3-21 08:13
@@ -1093,7 +1093,7 @@ mac煮不了咖啡就是个垃圾
 2.膏粉在楼里乱拉屎狗咬人真的太好玩儿了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
------
+*****
 
 ####  zinelune  
 ##### 88#       发表于 2021-3-21 08:33
@@ -1106,7 +1106,7 @@ mac煮不了咖啡就是个垃圾
 一直很好奇，我都买笔记本了，为什么还要被线拴着？
 
 
------
+*****
 
 ####  john  
 ##### 89#       发表于 2021-3-21 09:26
@@ -1123,7 +1123,7 @@ mac煮不了咖啡就是个垃圾
 你果用你膏CPU的型号可以在SMC里修改设置进行电池充电限制，但是Apple Silicon型号的SMC改了不能动；我还在用的MagSafe2的MacBook更加简单，一条胶带贴住MagSafe2接口中间触点就能让原厂充电器无法识别进而不会充电也不会放电，回头换Apple Silicon型号就只能跟iPad一样用了
 
 
------
+*****
 
 ####  头像测试1号机  
 ##### 90#       发表于 2021-3-21 09:50
@@ -1132,7 +1132,7 @@ mac煮不了咖啡就是个垃圾
 这广告演员喷了
 
 
------
+*****
 
 ####  Nanachi  
 ##### 91#       发表于 2021-3-21 10:23
@@ -1147,7 +1147,7 @@ mac煮不了咖啡就是个垃圾
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 92#       发表于 2021-3-21 11:08
@@ -1166,7 +1166,7 @@ Can it run Android? &lt;---New!
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Re.Troy  
 ##### 93#       发表于 2021-3-21 11:20
@@ -1180,7 +1180,7 @@ Can it run Android? &lt;---New!
 非要把脸凑上来挨打是吧，转进三次被打三次脸，转进四次被打四次脸，你继续，贱不贱啊，那可太贱了
 
 
------
+*****
 
 ####  鸳鸳相抱  
 ##### 94#       发表于 2021-3-21 11:44
@@ -1191,7 +1191,7 @@ Can it run Android? &lt;---New!
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">嘴硬也要有个限度，跑win还算是个有现实意义的需求，在Mac的win上跑安卓虚拟机是哪门子脱裤子放屁的需求？离了win不会用电脑吗？
 
 
------
+*****
 
 ####  auraria  
 ##### 95#       发表于 2021-3-21 11:52
@@ -1205,7 +1205,7 @@ Can it run Android? &lt;---New!
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  auraria  
 ##### 96#       发表于 2021-3-21 11:54
@@ -1218,7 +1218,7 @@ Can it run Android? &lt;---New!
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  ヴェルビン  
 ##### 97#       发表于 2021-3-21 12:44
@@ -1227,7 +1227,7 @@ Can it run Android? &lt;---New!
 iMac 快更新了，到时候对比下桌面端
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 98#       发表于 2021-3-21 16:10
@@ -1243,7 +1243,7 @@ iMac 快更新了，到时候对比下桌面端
 那么接下来的问题是，这玩意好用吗？<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">手游挂机那种生产力也算哦
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 99#       发表于 2021-3-21 16:11
@@ -1257,7 +1257,7 @@ iMac 快更新了，到时候对比下桌面端
 易恒泰有吗<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 100#       发表于 2021-3-21 16:11
@@ -1269,7 +1269,7 @@ iMac 快更新了，到时候对比下桌面端
 嘛，前提是直接跑在macos上的没有嘛。这波算我败了。
 
 
------
+*****
 
 ####  Unlight  
 ##### 101#       发表于 2021-3-21 17:38
@@ -1294,7 +1294,7 @@ iMac 快更新了，到时候对比下桌面端
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  mexiku  
 ##### 102#       发表于 2021-3-21 17:42
@@ -1303,7 +1303,7 @@ iMac 快更新了，到时候对比下桌面端
 丢人，英特尔你退群吧
 
 
------
+*****
 
 ####  zikimi  
 ##### 103#       发表于 2021-3-21 17:44
@@ -1312,7 +1312,7 @@ iMac 快更新了，到时候对比下桌面端
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，拿电脑模拟手机用app访问本身就是web端的网站
 
 
------
+*****
 
 ####  橋白  
 ##### 104#       发表于 2021-3-21 17:55
@@ -1321,7 +1321,7 @@ iMac 快更新了，到时候对比下桌面端
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前的帖子没看 不过这一贴深刻认识到了某楼说的著名嘴硬搅屎棍是啥样的
 
 
------
+*****
 
 ####  莫夜戎  
 ##### 105#       发表于 2021-3-21 18:18
@@ -1336,7 +1336,7 @@ iMac 快更新了，到时候对比下桌面端
 拿着笔记本，心里想的是赶紧抢个有电源的座位，和拿着笔记本随处一坐确实是不同的感受。
 
 
------
+*****
 
 ####  六尺之下  
 ##### 106#       发表于 2021-3-21 18:22
@@ -1345,7 +1345,7 @@ iMac 快更新了，到时候对比下桌面端
 太好了，越来越多人认识贵版这位臭傻逼了
 
 
------
+*****
 
 ####  Litccc  
 ##### 107#       发表于 2021-3-21 18:28
@@ -1354,7 +1354,7 @@ iMac 快更新了，到时候对比下桌面端
 ios现在有testflight以后各种app都有了，无非就是没人宣传而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qratosone  
 ##### 108#       发表于 2021-3-21 19:56
@@ -1363,7 +1363,7 @@ ios现在有testflight以后各种app都有了，无非就是没人宣传而已<
 其实现在的M1产品确实有大而无当的感觉，因为苹果偷懒直接用现成的模具。最理想的做法应该是利用M1的高能效比做出1kg级超轻薄笔记本——或者更直白的说就是复活MB12然后换上窄边框13寸屏幕
 
 
------
+*****
 
 ####  鸳鸳相抱  
 ##### 109#       发表于 2021-3-21 20:02
@@ -1376,7 +1376,7 @@ M1明摆着就是给开发者用来过渡的产品
 现在这种水平软件，一下就做得硬件吸引大批普通消费者买，才是会被黑子找到更多黑点的规划
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 110#       发表于 2021-3-21 20:29
@@ -1391,7 +1391,7 @@ M1明摆着就是给开发者用来过渡的产品
 另外，ios应用不能随便调整窗口大小啊<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 111#       发表于 2021-3-21 20:30
@@ -1403,7 +1403,7 @@ M1明摆着就是给开发者用来过渡的产品
 揭露果子的本质而已，过奖过奖<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Unlight  
 ##### 112#       发表于 2021-3-21 20:34
@@ -1418,7 +1418,7 @@ M1明摆着就是给开发者用来过渡的产品
 那Windows客户端呢？
 
 
------
+*****
 
 ####  台球论坛网友  
 ##### 113#       发表于 2021-3-21 20:38
@@ -1430,7 +1430,7 @@ M1明摆着就是给开发者用来过渡的产品
 虚拟机的窗口可以随便调啊<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Unlight  
 ##### 114#       发表于 2021-3-21 20:43
@@ -1442,7 +1442,7 @@ M1明摆着就是给开发者用来过渡的产品
 那mac也有安卓模拟器啊
 
 
------
+*****
 
 ####  Unlight  
 ##### 115#       发表于 2021-3-21 20:55
@@ -1459,7 +1459,7 @@ M1明摆着就是给开发者用来过渡的产品
 7590虽然CPU不是超低压，但电池是97Wh，想要达到10h续航就需要开比较低的亮度，然后极限锁频
 
 
------
+*****
 
 ####  江城诀丶  
 ##### 116#       发表于 2021-3-21 21:16
@@ -1470,7 +1470,7 @@ M1明摆着就是给开发者用来过渡的产品
 feh现在还能走testflight下吗？
 
 
------
+*****
 
 ####  Nanachi  
 ##### 117#       发表于 2021-3-21 21:25
@@ -1482,7 +1482,7 @@ feh现在还能走testflight下吗？</blockquote>
 走telegram分发ipa了，需要altstore
 
 
------
+*****
 
 ####  GeneralSmasher  
 ##### 118#       发表于 2021-3-21 22:12
@@ -1491,7 +1491,7 @@ feh现在还能走testflight下吗？</blockquote>
 太难看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CyanCloverFern  
 ##### 119#       发表于 2021-3-22 01:12
@@ -1505,7 +1505,7 @@ feh现在还能走testflight下吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说起模拟器，又想起metal在m1的机器的模拟器上设置MTLLoadActiion为Load结果在实机上丢了重要的资源，这模拟模到最后我是不敢用了
 
 
------
+*****
 
 ####  Redis  
 ##### 120#       发表于 2021-3-22 03:28
@@ -1520,7 +1520,7 @@ feh现在还能走testflight下吗？</blockquote>
 快进到不用mac是因为没法用Windows
 
 
------
+*****
 
 ####  starash  
 ##### 121#       发表于 2021-3-22 12:50
@@ -1529,7 +1529,7 @@ feh现在还能走testflight下吗？</blockquote>
 不，我怎么感觉这位台球论坛用户是个以喷代撩的水果用户啊。
 
 
------
+*****
 
 ####  zinelune  
 ##### 122#       发表于 2021-3-22 14:16
@@ -1549,7 +1549,7 @@ feh现在还能走testflight下吗？</blockquote>
 希望这次能刺激win本搞出个长续航的来，苹果我是真不会用。
 
 
------
+*****
 
 ####  ㄟ(￣▽￣ㄟ)  
 ##### 123#       发表于 2021-3-22 23:50
@@ -1561,7 +1561,7 @@ feh现在还能走testflight下吗？</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  john  
 ##### 124#       发表于 2021-3-23 00:34
@@ -1579,7 +1579,7 @@ feh现在还能走testflight下吗？</blockquote>
 管你软件问题还是硬件问题，做不到就是做不到，我当玩具买都心里疙瘩，更别说拿来办公了
 
 
------
+*****
 
 ####  zinelune  
 ##### 125#       发表于 2021-3-23 08:40
@@ -1591,7 +1591,7 @@ feh现在还能走testflight下吗？</blockquote>
 大哥，我们讨论的是轻薄本，我也没成天地铁的需求，但是我想在床上写写稿，玩玩小游戏吃饭的时候扔边上看看剧，又不想半天冲一次电，这是非常现实的需求，也是大多数个人轻薄本用户的需求吧。
 
 
------
+*****
 
 ####  zinelune  
 ##### 126#       发表于 2021-3-23 08:41
@@ -1603,7 +1603,7 @@ feh现在还能走testflight下吗？</blockquote>
 再说我连iPhone都没用过，你干嘛非逮着我当果粉攥啊？
 
 
------
+*****
 
 ####  diohanmilton  
 ##### 127#       发表于 2021-3-23 11:02
@@ -1620,7 +1620,7 @@ feh现在还能走testflight下吗？</blockquote>
 —— 来自 HUAWEI TNY-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  loslandy  
 ##### 128#       发表于 2021-3-23 11:16
@@ -1629,7 +1629,7 @@ feh现在还能走testflight下吗？</blockquote>
 我司一众基本在外跑业务的销售表示，能用十多个小时出门不用拖个充电器的笔记本就是棒。有的开始换成M1笔记本有的也产生极大兴趣
 
 
------
+*****
 
 ####  john  
 ##### 129#       发表于 2021-3-23 11:28
@@ -1644,7 +1644,7 @@ feh现在还能走testflight下吗？</blockquote>
 要么充电五分钟满载十小时，要么充一晚上顶一星期，不然管你续航十几二十个小时，办公的还是该插电插电，你觉得手机平板可以不插电用是因为你不会拿来上班工作开满八小时，不然一样拖着电源线离不开
 
 
------
+*****
 
 ####  john  
 ##### 130#       发表于 2021-3-23 11:29
@@ -1656,7 +1656,7 @@ feh现在还能走testflight下吗？</blockquote>
 我一没说过你怎样怎样，二没说过果粉怎样怎样，建议找个三甲医院看一下受迫害妄想症
 
 
------
+*****
 
 ####  zinelune  
 ##### 131#       发表于 2021-3-23 12:39
@@ -1672,7 +1672,7 @@ feh现在还能走testflight下吗？</blockquote>
 然后你前面回复我的帖子用的 你果 这个词，我理解你把我当果粉不是很正常？你怎么还人身攻击起来了？
 
 
------
+*****
 
 ####  john  
 ##### 132#       发表于 2021-3-23 12:52
@@ -1687,7 +1687,7 @@ feh现在还能走testflight下吗？</blockquote>
 到公司上班的肯定是工作，你在家码字谁知道你是不是在工作，我在家码字还是写blog和知乎专栏呢
 
 
------
+*****
 
 ####  catazshadow  
 ##### 133#       发表于 2021-3-23 12:59
@@ -1701,7 +1701,7 @@ Intel O
 先把别人名字写对行不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zinelune  
 ##### 134#       发表于 2021-3-23 13:34
@@ -1736,7 +1736,7 @@ Intel O
 查看全部评分
 
 
------
+*****
 
 ####  zinelune  
 ##### 135#       发表于 2021-3-23 13:36
@@ -1749,7 +1749,7 @@ Intel O</blockquote>
 随便啦，我又没信仰，大家能看懂就行，要是冒犯到谁了，那算我的，我道歉。
 
 
------
+*****
 
 ####  john  
 ##### 136#       发表于 2021-3-23 15:37
@@ -1774,7 +1774,7 @@ Intel O</blockquote>
 笔记本插线用很不正常吗？等续航数字加个0我们再来讨论是不是平时要一直插着电源线这个问题好不好？
 
 
------
+*****
 
 ####  zinelune  
 ##### 137#       发表于 2021-3-23 16:35
@@ -1804,7 +1804,7 @@ Intel O</blockquote>
   
 
 
------
+*****
 
 ####  zinelune  
 ##### 138#       发表于 2021-3-23 17:13
@@ -1818,7 +1818,7 @@ Intel O</blockquote>
     办公室常年都是人很多很嘈杂的，我们需要编写重要文件的时候经常都是等下班，或者躲到空会议室之类的地方，会议室你随时可能被撵走，你肯定也不想带着一堆电源线在楼道里乱窜不是，下班国企又没人加班，坐到半夜也没领导看见，很多时候还不如回家写，回家的话超长时间码字当然希望有个相对舒适的使用环境，所以回家窝在沙发上，靠在床上写东西查资料是经常的事，更有时候，卧室写不出来了到客厅蹲会儿，客厅呆累了去阳台坐会儿，就很希望不用每次都动电源。然后，我们写好的东西，做的PPT ，经常是需要开小会给领导和同事看进行修改的，并不是每个地方都方便你拉条电源线不是？另外我们还时常要到本市各处或者临近城市的分支机构检查，一天走好几个点，查看资料，跟各种人核对、连续开会，你不能保证每个地方都方便充电，整天都在到处找插销也很烦，而且你带着充电器也沉啊。所以你看，一个可以一整天使用不用充电的轻薄笔记本是不是对我们这种工作很重要呢？也许你说现在的本子基本上也够满足这个要求了，的确，我之前就用过一段surface，但是续航还是有点短，而且有时候也不知道什么在后台就一直耗电，撂在一边一上午，下午要开会了发现开不了机了，就很恼火。
 
 
------
+*****
 
 ####  john  
 ##### 139#       发表于 2021-3-23 17:27
@@ -1843,7 +1843,7 @@ Intel O</blockquote>
 2021-3-23 17:18 上传
 
 
------
+*****
 
 ####  john  
 ##### 140#       发表于 2021-3-23 18:15
@@ -1875,7 +1875,7 @@ Intel O</blockquote>
 2021-3-23 18:16 上传
 
 
------
+*****
 
 ####  凶手  
 ##### 141#       发表于 2021-3-23 18:25
@@ -1891,7 +1891,7 @@ Intel O</blockquote>
 [https://www.google.com/search?q= ... C5CHFA_enHK881HK882](https://www.google.com/search?q=xps+swollen+battery&amp;tbm=isch&amp;ved=2ahUKEwiH58TGmcbvAhUEKqYKHcRRC_AQ2-cCegQIABAA&amp;oq=xps+swollen+battery&amp;gs_lcp=CgNpbWcQAzIGCAAQCBAeMgQIABAYOggIABAHEAUQHjoICAAQCBAHEB46BggAEAUQHlCPfliRgAFgqYIBaABwAHgAgAFriAG5ApIBAzAuM5gBAKABAaoBC2d3cy13aXotaW1nwAEB&amp;sclient=img&amp;ei=BsJZYIfMBITUmAXEo62ADw&amp;bih=796&amp;biw=1440&amp;rlz=1C5CHFA_enHK881HK882)
 
 
------
+*****
 
 ####  john  
 ##### 142#       发表于 2021-3-23 18:33
@@ -1911,7 +1911,7 @@ https://www.google.com/search?q=surface+swollen+battery&amp;newwindow=1&amp;rlz=
 你果Apple Silicon笔记本是不可以
 
 
------
+*****
 
 ####  凶手  
 ##### 143#       发表于 2021-3-23 18:46
@@ -1925,7 +1925,7 @@ Manage battery longevity
 这个选项好像 m1 是不能关掉 而不是没有？
 
 
------
+*****
 
 ####  john  
 ##### 144#       发表于 2021-3-23 18:56
@@ -1947,7 +1947,7 @@ WuSiYu   75 天前
 不过这个帖子里一个月前的回复说有个叫AlDente的工具最近更新了可以做到，我先拿老MBP装一个玩玩
 
 
------
+*****
 
 ####  serial  
 ##### 145#       发表于 2021-3-23 19:06
@@ -1958,7 +1958,7 @@ WuSiYu   75 天前
 —— 来自 Meizu 16th, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  john  
 ##### 146#       发表于 2021-3-23 19:52
@@ -1990,7 +1990,7 @@ rMBP 2013试验成功了，设定48%停在49%，电源灯亮橙色而不是充�
 2021-3-23 19:50 上传
 
 
------
+*****
 
 ####  Silencieuse  
 ##### 147#       发表于 2021-3-23 20:24
@@ -1999,7 +1999,7 @@ rMBP 2013试验成功了，设定48%停在49%，电源灯亮橙色而不是充�
 本铁杆果黑拿着10%电量的win轻薄本逛泥潭，看了这贴心情复杂<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zinelune  
 ##### 148#       发表于 2021-3-24 08:38
@@ -2013,7 +2013,7 @@ rMBP 2013试验成功了，设定48%停在49%，电源灯亮橙色而不是充�
 你第一次回复有你果也有你膏。所以我第一次也没说你说我是果粉啊？我不是还专门说了我不想买苹果想等win本？你是看什么非得带着气看吗？
 
 
------
+*****
 
 ####  zinelune  
 ##### 149#       发表于 2021-3-24 08:40
@@ -2029,7 +2029,7 @@ rMBP 2013试验成功了，设定48%停在49%，电源灯亮橙色而不是充�
 我就不劝你出去找找工作了，你找怕是还是这种。
 
 
------
+*****
 
 ####  melvin95  
 ##### 150#       发表于 2021-3-24 09:24
@@ -2038,7 +2038,7 @@ rMBP 2013试验成功了，设定48%停在49%，电源灯亮橙色而不是充�
 果黑退场后居然轮到了认真侠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  モナド  
 ##### 151#       发表于 2021-3-24 10:37

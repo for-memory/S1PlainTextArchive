@@ -2,7 +2,7 @@
 
 
 
------
+*****
 
 ####  混沌大陆  
 ##### 1#       楼主       发表于 2021-5-20 22:01
@@ -44,7 +44,7 @@
 这就和现代英美人都不会说但是国内依然教的“how do you do? ”一样，已经成为中国初级英语教材的娱乐梗了……
 
 
------
+*****
 
 ####  混沌大陆  
 ##### 2#         楼主| 发表于 2021-5-20 22:02
@@ -53,7 +53,7 @@
 还有类似于“what's the problem?”这种也是不能轻易说的
 
 
------
+*****
 
 ####  巨灵巴谛魔  
 ##### 3#       发表于 2021-5-20 22:04
@@ -62,7 +62,7 @@
 whats your problem？
 
 
------
+*****
 
 ####  搜索  
 ##### 4#       发表于 2021-5-20 22:04
@@ -71,7 +71,7 @@ whats your problem？
 给举中文的例子吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  泉玲奈  
 ##### 5#       发表于 2021-5-20 22:06
@@ -83,7 +83,7 @@ whats your problem？
 要溺死了，要溺死了
 
 
------
+*****
 
 ####  すぴぱら  
 ##### 6#       发表于 2021-5-20 22:08
@@ -92,7 +92,7 @@ whats your problem？
 所以how do you do到底是个什么用法，为什么从没见白皮用过
 
 
------
+*****
 
 ####  loadinglab  
 ##### 7#       发表于 2021-5-20 22:14
@@ -101,7 +101,7 @@ whats your problem？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">how do you do 就和老北京说您吃了吗一个意思 年轻人已经不用这个打招呼了
 
 
------
+*****
 
 ####  放大镜  
 ##### 8#       发表于 2021-5-20 22:16
@@ -110,7 +110,7 @@ whats your problem？
 what's wrong with you在影视台词里不还挺常见的？一般说完就准备干架了。
 
 
------
+*****
 
 ####  lokken  
 ##### 9#       发表于 2021-5-20 22:16
@@ -122,7 +122,7 @@ what's wrong with you在影视台词里不还挺常见的？一般说完就准�
 英式正式场合，王冠里忘了皇室的谁说过。最早国内也是新概念里有的
 
 
------
+*****
 
 ####  sauron.j  
 ##### 10#       发表于 2021-5-20 22:17
@@ -137,7 +137,7 @@ what's wrong with you在影视台词里不还挺常见的？一般说完就准�
 在一些治安不太好的地方说这句话可以当作掏出米利坚传武的前摇
 
 
------
+*****
 
 ####  回忆and无语  
 ##### 11#       发表于 2021-5-20 22:17
@@ -146,7 +146,7 @@ what's wrong with you在影视台词里不还挺常见的？一般说完就准�
 how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  烦死了  
 ##### 12#       发表于 2021-5-20 22:18
@@ -157,7 +157,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 这个我就波洛探案里头看到黑斯廷斯经常说
 
 
------
+*****
 
 ####  24k纯帅  
 ##### 13#       发表于 2021-5-20 22:19
@@ -168,7 +168,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 有看到考据说这是很久以前的流行语，
 
 
------
+*****
 
 ####  京騒戯画  
 ##### 14#       发表于 2021-5-20 22:21
@@ -180,7 +180,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 英国人在很正式的场合还是会用，回答也同样是how do you do，类似日语的お初にお目にかかります，普通日常生活用不到
 
 
------
+*****
 
 ####  拣尽寒枝  
 ##### 15#       发表于 2021-5-20 22:21
@@ -189,7 +189,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">我读书的时候英语老师倒是提过，后面我同学有段时间都喜欢互相说“There is something wrong with you!”
 
 
------
+*****
 
 ####  sandro  
 ##### 16#       发表于 2021-5-20 22:22
@@ -198,7 +198,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 感觉这些比还是没有文化自信，讲英文人家老外已经感恩戴德了，强行融入不如保留自己的特色
 
 
------
+*****
 
 ####  本异末同  
 ##### 17#       发表于 2021-5-20 22:22
@@ -209,7 +209,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 《窈窕淑女》里面女主经过贵族式教育之后就会这么说。
 
 
------
+*****
 
 ####  拣尽寒枝  
 ##### 18#       发表于 2021-5-20 22:23
@@ -218,7 +218,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我初中教材就有一段“What’s wrong with you, Baby Monkey? -I can’t find my way home！”
 
 
------
+*****
 
 ####  博丽神社的物语  
 ##### 19#       发表于 2021-5-20 22:24
@@ -229,7 +229,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 问题在于用法和课本不对。本来用法类似于“你有啥毛病？”的对骂句式，在课本里变成日用句式……
 
 
------
+*****
 
 ####  zmny  
 ##### 20#       发表于 2021-5-20 22:26
@@ -238,7 +238,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 我之前绝对见过这贴
 
 
------
+*****
 
 ####  koodooliz  
 ##### 21#       发表于 2021-5-20 22:29
@@ -249,7 +249,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 这也能叫保留自己特色？这又不是Chinglish有啥特色可言的。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ESAKA!!!!  
 ##### 22#       发表于 2021-5-20 22:30
@@ -258,7 +258,7 @@ how are you? I'm fine, thank you. And you? <img src="https://static.saraba1st.co
 how do you do还是有人说的，只不过比较正式而且上年纪的人用的比较多而已
 
 
------
+*****
 
 ####  Unlight  
 ##### 23#       发表于 2021-5-20 22:31
@@ -267,7 +267,7 @@ how do you do还是有人说的，只不过比较正式而且上年纪的人用�
 所以应该怎么打招呼呢？
 
 
------
+*****
 
 ####  ouba  
 ##### 24#       发表于 2021-5-20 22:32
@@ -276,7 +276,7 @@ how do you do还是有人说的，只不过比较正式而且上年纪的人用�
 Long time no see！
 
 
------
+*****
 
 ####  朔方原的星MK.2  
 ##### 25#       发表于 2021-5-20 22:32
@@ -285,7 +285,7 @@ Long time no see！
 欧美介绍汉语也老教您吃了吗，彼此彼此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大哀之君  
 ##### 26#       发表于 2021-5-20 22:33
@@ -299,7 +299,7 @@ Long time no see！
 少管闲事
 
 
------
+*****
 
 ####  Rocinante  
 ##### 27#       发表于 2021-5-20 22:37
@@ -312,7 +312,7 @@ yo wassup<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" r
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  Redis  
 ##### 28#       发表于 2021-5-20 22:37
@@ -324,7 +324,7 @@ yo wassup<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" r
 how are you feeling today
 
 
------
+*****
 
 ####  sandro  
 ##### 29#       发表于 2021-5-20 22:38
@@ -335,7 +335,7 @@ how are you feeling today
 中国人用多了就是chinglish
 
 
------
+*****
 
 ####  张元英  
 ##### 30#       发表于 2021-5-20 22:38
@@ -346,7 +346,7 @@ how are you feeling today
 
 
 
------
+*****
 
 ####  京騒戯画  
 ##### 31#       发表于 2021-5-20 22:39
@@ -363,7 +363,7 @@ What’s up/How’s it going/How are you doing/How’s things/How’s it hanging
 遇到过打招呼how are you doing被回doing what的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  永远喜欢刘人语  
 ##### 32#       发表于 2021-5-20 22:39
@@ -374,7 +374,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 这句话只有and you老外不说吧
 
 
------
+*****
 
 ####  escape  
 ##### 33#       发表于 2021-5-20 22:40
@@ -383,7 +383,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 说What’s up感觉有点尬。
 
 
------
+*****
 
 ####  anubis_s08  
 ##### 34#       发表于 2021-5-20 22:44
@@ -396,7 +396,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 —— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
 
 
------
+*****
 
 ####  京騒戯画  
 ##### 35#       发表于 2021-5-20 22:44
@@ -409,7 +409,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 hey up mate感觉怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">Yorkshire这疙瘩就这么尬
 
 
------
+*****
 
 ####  Jet.Black  
 ##### 36#       发表于 2021-5-20 22:45
@@ -422,7 +422,7 @@ Howdy!
 Good day!
 
 
------
+*****
 
 ####  边缘中心  
 ##### 37#       发表于 2021-5-20 22:47
@@ -433,7 +433,7 @@ Good day!
 how are you啊
 
 
------
+*****
 
 ####  赤备传承  
 ##### 38#       发表于 2021-5-20 22:48
@@ -463,7 +463,7 @@ Stay a while and listen
 查看全部评分
 
 
------
+*****
 
 ####  战狼PTSD  
 ##### 39#       发表于 2021-5-20 22:48
@@ -476,7 +476,7 @@ Stay a while and listen
 Yo wass up nigga<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  焚舟  
 ##### 40#       发表于 2021-5-20 22:48
@@ -485,7 +485,7 @@ Yo wass up nigga<img src="https://static.saraba1st.com/image/smiley/face2017/047
 英语本来就是东拼西凑起来的，吸收点流行用法n年后也就成习惯用语了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mimic  
 ##### 41#       发表于 2021-5-20 22:49
@@ -497,7 +497,7 @@ whats your problem？</blockquote>
 /抹掉头上的水
 
 
------
+*****
 
 ####  呼和浩特  
 ##### 42#       发表于 2021-5-20 22:51
@@ -509,7 +509,7 @@ whats your problem？</blockquote>
 hi guys，we need to talk<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aithinkso  
 ##### 43#       发表于 2021-5-20 22:54
@@ -524,7 +524,7 @@ Oh Hi there
 —— 来自 Xiaomi Redmi K30 5G, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  武の炽羽  
 ##### 44#       发表于 2021-5-20 22:56
@@ -536,7 +536,7 @@ Oh Hi there
 那就干脆sup吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yxch  
 ##### 45#       发表于 2021-5-20 22:56
@@ -545,7 +545,7 @@ Oh Hi there
 一转眼到了罗格营地了
 
 
------
+*****
 
 ####  maxwell_goblin  
 ##### 46#       发表于 2021-5-20 22:58
@@ -554,7 +554,7 @@ Oh Hi there
 [https://www.bilibili.com/video/BV1aC4y1a76M](https://www.bilibili.com/video/BV1aC4y1a76M)
 
 
------
+*****
 
 ####  maxwell_goblin  
 ##### 47#       发表于 2021-5-20 23:00
@@ -568,7 +568,7 @@ Stay a while and listen</blockquote>
 I'm impressed, mortal
 
 
------
+*****
 
 ####  ESAKA!!!!  
 ##### 48#       发表于 2021-5-20 23:00
@@ -579,7 +579,7 @@ I'm impressed, mortal
 sup?
 
 
------
+*****
 
 ####  美人希  
 ##### 49#       发表于 2021-5-20 23:02
@@ -592,7 +592,7 @@ long time no see<img src="https://static.saraba1st.com/image/smiley/face2017/065
 — from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
------
+*****
 
 ####  拉格朗日乘数法  
 ##### 50#       发表于 2021-5-20 23:07
@@ -604,7 +604,7 @@ long time no see<img src="https://static.saraba1st.com/image/smiley/face2017/065
 大学里就是天天跟人说我擦
 
 
------
+*****
 
 ####  不存在的骑士  
 ##### 51#       发表于 2021-5-20 23:11
@@ -613,7 +613,7 @@ long time no see<img src="https://static.saraba1st.com/image/smiley/face2017/065
 只要这么用的人够多，迟早会变成纯正的英语，long time no see笑而不语……
 
 
------
+*****
 
 ####  zeroed  
 ##### 52#       发表于 2021-5-20 23:15
@@ -624,7 +624,7 @@ long time no see<img src="https://static.saraba1st.com/image/smiley/face2017/065
 我上次看到这图的时候还是民国年间了
 
 
------
+*****
 
 ####  革萌  
 ##### 53#       发表于 2021-5-20 23:18
@@ -636,7 +636,7 @@ long time no see<img src="https://static.saraba1st.com/image/smiley/face2017/065
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这恐怕真不会，更大可能性是过一段又有一种新的招呼方式流行了起来
 
 
------
+*****
 
 ####  oyss  
 ##### 54#       发表于 2021-5-20 23:20
@@ -648,7 +648,7 @@ long time no see<img src="https://static.saraba1st.com/image/smiley/face2017/065
 what are you looking at?
 
 
------
+*****
 
 ####  Tr火药味  
 ##### 55#       发表于 2021-5-20 23:23
@@ -659,7 +659,7 @@ what are you looking at?
 -G'day mate.
 
 
------
+*****
 
 ####  εRemastered  
 ##### 56#       发表于 2021-5-20 23:25
@@ -671,7 +671,7 @@ what are you looking at?
 其实在医院里还挺合适的 就跟你什么垃圾一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  liu_tianyi  
 ##### 57#       发表于 2021-5-20 23:27
@@ -682,7 +682,7 @@ what are you looking at?
 按图里的看医生的时候说"What's wrong with you?"类似于中国医生问你："你有病嘛？"。医生确实可以这么问，但是你要克制住揍他的冲动。
 
 
------
+*****
 
 ####  CALPISSODA  
 ##### 58#       发表于 2021-5-20 23:29
@@ -691,7 +691,7 @@ what are you looking at?
 没事，全民学英语的情况下中国就有世界上最大的英语人口，用词习惯什么的直接给它扭转成中国标准就行了，就像long time no see一样
 
 
------
+*****
 
 ####  sdhf028397  
 ##### 59#       发表于 2021-5-20 23:31
@@ -702,7 +702,7 @@ what are you looking at?
 美式口语一般会说“How's it going?”，标准回答是“it's great”or“good”，但这种回答就像别人问你“吃了么”你回“嗯吃了”一样会把天聊死，通常后面跟一些描述性的句子比如经典美式废话“糟糕透了，我现在的心情就像隔壁汤姆叔叔的臭抹布一样，你无法想象我早上碰到了什么”会让人觉得你没有想拒绝聊天。
 
 
------
+*****
 
 ####  全斗焕  
 ##### 60#       发表于 2021-5-20 23:32
@@ -714,7 +714,7 @@ what are you looking at?
 
 
 
------
+*****
 
 ####  vigilance  
 ##### 61#       发表于 2021-5-20 23:37
@@ -725,7 +725,7 @@ what are you looking at?
 老美一般不说fine了，fine基本就是不太好、一般般的意思，语意弱化。回答great，terrific，perfect。
 
 
------
+*****
 
 ####  nukejoker  
 ##### 62#       发表于 2021-5-20 23:37
@@ -738,7 +738,7 @@ what are you looking at?
 现在不用了而已。
 
 
------
+*****
 
 ####  vviosonia  
 ##### 63#       发表于 2021-5-20 23:48
@@ -747,7 +747,7 @@ what are you looking at?
 Yo,homi, u gud?
 
 
------
+*****
 
 ####  battleship64  
 ##### 64#       发表于 2021-5-20 23:55
@@ -758,7 +758,7 @@ how are you feeling today</blockquote>
 Nice 2 meet u. How r u today.
 
 
------
+*****
 
 ####  泪指环  
 ##### 65#       发表于 2021-5-20 23:55
@@ -769,7 +769,7 @@ How do 以前英剧里起码看到不少
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  dlboy2000  
 ##### 66#       发表于 2021-5-20 23:59
@@ -778,7 +778,7 @@ How do 以前英剧里起码看到不少
 和日本一样年轻人打招呼的方式经常变？
 
 
------
+*****
 
 ####  ramiel  
 ##### 67#       发表于 2021-5-21 00:29
@@ -787,7 +787,7 @@ How do 以前英剧里起码看到不少
 how you doin'（
 
 
------
+*****
 
 ####  yuki-0014  
 ##### 68#       发表于 2021-5-21 00:35
@@ -798,7 +798,7 @@ Are you OK?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png"
 I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AIDSL  
 ##### 69#       发表于 2021-5-21 00:44
@@ -807,7 +807,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 我看谁说的whom这个词已经在口语中被who全面替代了，即便语法错误也要用who
 
 
------
+*****
 
 ####  stmule  
 ##### 70#       发表于 2021-5-21 00:53
@@ -821,7 +821,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  上海大姨妈  
 ##### 71#       发表于 2021-5-21 00:59
@@ -830,7 +830,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 我读书的时候一般说cheers 
 
 
------
+*****
 
 ####  饭来张口  
 ##### 72#       发表于 2021-5-21 01:05
@@ -839,7 +839,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">要是有个老外开口跟你说您好今儿吃了吗你反应会是哎呀这老外学的什么破中文现在哪还有这么打招呼的还是卧槽这你都会，非得一开口就老铁666才是会说中文吗
 
 
------
+*****
 
 ####  whzfjk  
 ##### 73#       发表于 2021-5-21 01:08
@@ -852,7 +852,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 这么一看虽然不会运用，但是机器翻译确实很有道理。
 
 
------
+*****
 
 ####  smdzh2  
 ##### 74#       发表于 2021-5-21 01:16
@@ -863,7 +863,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 “你有什么毛病？”
 
 
------
+*****
 
 ####  血满沙场  
 ##### 75#       发表于 2021-5-21 01:39
@@ -875,7 +875,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 罗马假日
 
 
------
+*****
 
 ####  smy20011  
 ##### 76#       发表于 2021-5-21 01:39
@@ -884,7 +884,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 那啥，学语言不是为了出去挑衅的，long time no see好歹英语之前没这个表达。
 
 
------
+*****
 
 ####  lexi  
 ##### 77#       发表于 2021-5-21 01:56
@@ -893,7 +893,7 @@ I'm very OK.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 roxette有首歌就叫how do you do，应该是曾经流行过的打招呼方式吧。
 
 
------
+*****
 
 ####  mengjunren  
 ##### 78#       发表于 2021-5-21 02:06
@@ -902,7 +902,7 @@ roxette有首歌就叫how do you do，应该是曾经流行过的打招呼方式
 语文也教网络流行语吗？
 
 
------
+*****
 
 ####  lalala德玛西亚  
 ##### 79#       发表于 2021-5-21 02:11
@@ -911,7 +911,7 @@ roxette有首歌就叫how do you do，应该是曾经流行过的打招呼方式
 这人是左耳朵耗子吧
 
 
------
+*****
 
 ####  amgryn  
 ##### 80#       发表于 2021-5-21 02:14
@@ -920,7 +920,7 @@ roxette有首歌就叫how do you do，应该是曾经流行过的打招呼方式
 感觉就想中文中的，你这人啥毛病啊？
 
 
------
+*****
 
 ####  奈奈未喵  
 ##### 81#       发表于 2021-5-21 02:26
@@ -929,7 +929,7 @@ roxette有首歌就叫how do you do，应该是曾经流行过的打招呼方式
 好油肚ing
 
 
------
+*****
 
 ####  HOIHOISAN  
 ##### 82#       发表于 2021-5-21 02:47
@@ -946,7 +946,7 @@ How are you doing
 形式很自由自由发挥都行
 
 
------
+*****
 
 ####  机翻猫  
 ##### 83#       发表于 2021-5-21 02:51
@@ -955,7 +955,7 @@ How are you doing
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议推广一波倪哥俚语
 
 
------
+*****
 
 ####  etnf2  
 ##### 84#       发表于 2021-5-21 02:57
@@ -968,7 +968,7 @@ How are you doing
 类似的还有，把okay替换成cool。
 
 
------
+*****
 
 ####  ARCtrooper  
 ##### 85#       发表于 2021-5-21 03:16
@@ -977,7 +977,7 @@ How are you doing
 我拿半吊子英语在国外问路没人纠正我语法。
 
 
------
+*****
 
 ####  etnf2  
 ##### 86#       发表于 2021-5-21 03:56
@@ -988,7 +988,7 @@ How are you doing
 如果是出去旅游的话，大家都能理解这人可能语言水平有限，不会纠结于是否地道，只要能听懂个大约意思就好。但是大家学英语出来，很多时候是用于工作。商务交流，或是网上的文化交流，最好还是稍微讲究一点，至少不要说话像骂人(故意地另说)，否则可能让人觉得不太靠谱。
 
 
------
+*****
 
 ####  nekkihs  
 ##### 87#       发表于 2021-5-21 04:28
@@ -999,7 +999,7 @@ How are you doing
 想學口語化的就去看美劇
 
 
------
+*****
 
 ####  gutzz  
 ##### 88#       发表于 2021-5-21 04:56
@@ -1012,7 +1012,7 @@ How are you doing
 口音不论，三哥口语语法可比中国人讲究多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大把中国人说起话来时态介词全靠蒙的 (我也是半个
 
 
------
+*****
 
 ####  windzz  
 ##### 89#       发表于 2021-5-21 06:35
@@ -1023,7 +1023,7 @@ how are you keeping yourself?
 — from Xiaomi MI 6, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
------
+*****
 
 ####  飞霞精灵  
 ##### 90#       发表于 2021-5-21 06:37
@@ -1038,7 +1038,7 @@ MV拍得也很福利。
 
 
 
------
+*****
 
 ####  lokibear  
 ##### 91#       发表于 2021-5-21 06:38
@@ -1051,7 +1051,7 @@ ym和ypm里我记得也就汉弗莱说过一次how do u do（哈克女儿闹动�
 其他影视作品里更看不到了
 
 
------
+*****
 
 ####  不是橘子皮  
 ##### 92#       发表于 2021-5-21 07:29
@@ -1063,7 +1063,7 @@ ym和ypm里我记得也就汉弗莱说过一次how do u do（哈克女儿闹动�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
------
+*****
 
 ####  自由1号  
 ##### 93#       发表于 2021-5-21 08:01
@@ -1072,7 +1072,7 @@ ym和ypm里我记得也就汉弗莱说过一次how do u do（哈克女儿闹动�
 我记得有次看新闻英国首相访问起手也是how do you do
 
 
------
+*****
 
 ####  第八协奏曲  
 ##### 94#       发表于 2021-5-21 08:01
@@ -1083,7 +1083,7 @@ ym和ypm里我记得也就汉弗莱说过一次how do u do（哈克女儿闹动�
 —— 来自 Meizu 16th Plus, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  野比康夫  
 ##### 95#       发表于 2021-5-21 08:04
@@ -1092,7 +1092,7 @@ ym和ypm里我记得也就汉弗莱说过一次how do u do（哈克女儿闹动�
 QQ空间时期有首歌就叫howdoyoudo还挺火的
 
 
------
+*****
 
 ####  cxn  
 ##### 96#       发表于 2021-5-21 08:06
@@ -1101,7 +1101,7 @@ QQ空间时期有首歌就叫howdoyoudo还挺火的
 多大点事，君不见long time no see和people mountain people sea都转正了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  imba419  
 ##### 97#       发表于 2021-5-21 08:09
@@ -1110,7 +1110,7 @@ QQ空间时期有首歌就叫howdoyoudo还挺火的
 hello还有人用吗
 
 
------
+*****
 
 ####  队长是我别开枪  
 ##### 98#       发表于 2021-5-21 08:16
@@ -1119,7 +1119,7 @@ hello还有人用吗
 李雷和韩梅梅那个版本是和英国佬合作编写的，你们要教英国佬说英语吗？
 
 
------
+*****
 
 ####  Bizango  
 ##### 99#       发表于 2021-5-21 08:17
@@ -1133,7 +1133,7 @@ Stay a while and listen</blockquote>
 老大菠萝了！<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  混沌大陆  
 ##### 100#         楼主| 发表于 2021-5-21 08:20
@@ -1144,7 +1144,7 @@ Stay a while and listen</blockquote>
 你还别说，好久不见这个，现在大家考证出来这个最开始用法出处很可能是十九世纪的印第安人，而且很多文献记录里也是早就有了，可能真的和中国人没什么关系。而且早就融入英美人日常生活了
 
 
------
+*****
 
 ####  蒼木冬史  
 ##### 101#       发表于 2021-5-21 08:24
@@ -1155,7 +1155,7 @@ long time no see，是大臣里就有了<img src="https://static.saraba1st.com/i
 —— 来自 HUAWEI BND-AL10, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  pockem  
 ##### 102#       发表于 2021-5-21 08:27
@@ -1164,7 +1164,7 @@ long time no see，是大臣里就有了<img src="https://static.saraba1st.com/i
 不懂英语 只会说 bobo ka
 
 
------
+*****
 
 ####  lexi  
 ##### 103#       发表于 2021-5-21 08:27
@@ -1199,7 +1199,7 @@ how do you do, do you do, the things that you do, no one i know could ever keep 
 how do you do到过billboard hot100榜首的。
 
 
------
+*****
 
 ####  lexi  
 ##### 104#       发表于 2021-5-21 08:30
@@ -1208,7 +1208,7 @@ how do you do到过billboard hot100榜首的。
 roxette的《tourism》是我最喜欢的歌曲类专辑，没有之一，读书的时候听过上千遍，里面每首歌的歌词都倒背如流。
 
 
------
+*****
 
 ####  真贝尔奈普斯  
 ##### 105#       发表于 2021-5-21 08:37
@@ -1220,7 +1220,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 这个我看日本人也当梗的，好像他们教科书也是这鸟样❓
 
 
------
+*****
 
 ####  绕指流光  
 ##### 106#       发表于 2021-5-21 08:38
@@ -1235,7 +1235,7 @@ https://b23.tv/N0M5Xy
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  混沌大陆  
 ##### 107#         楼主| 发表于 2021-5-21 08:40
@@ -1244,7 +1244,7 @@ https://b23.tv/N0M5Xy
 话说有没有在英美实际生活过得，那边人打招呼真的从来不见“how do you do”吗?”
 
 
------
+*****
 
 ####  vuder  
 ##### 108#       发表于 2021-5-21 08:40
@@ -1253,7 +1253,7 @@ https://b23.tv/N0M5Xy
 没去过美国医院，美国医生护士是怎么问你有啥问题的？
 
 
------
+*****
 
 ####  foxpat  
 ##### 109#       发表于 2021-5-21 08:41
@@ -1262,7 +1262,7 @@ https://b23.tv/N0M5Xy
 你要是高兴，也可以用greetings
 
 
------
+*****
 
 ####  飞霞精灵  
 ##### 110#       发表于 2021-5-21 08:41
@@ -1276,7 +1276,7 @@ https://b23.tv/N0M5Xy
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">同名，我搞错了，我说那个是大概10来年前烂大街的甜腻口水歌
 
 
------
+*****
 
 ####  nice女武神  
 ##### 111#       发表于 2021-5-21 08:42
@@ -1285,7 +1285,7 @@ https://b23.tv/N0M5Xy
 用多了就行   本来就无所谓
 
 
------
+*****
 
 ####  f15  
 ##### 112#       发表于 2021-5-21 08:42
@@ -1295,7 +1295,7 @@ https://b23.tv/N0M5Xy
 “你有什么毛病？”
 
 
------
+*****
 
 ####  f15  
 ##### 113#       发表于 2021-5-21 08:43
@@ -1306,7 +1306,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 这句倒是真的常用句式，跟英国人一起上班的话天天都得说
 
 
------
+*****
 
 ####  绕指流光  
 ##### 114#       发表于 2021-5-21 08:44
@@ -1320,7 +1320,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  nice女武神  
 ##### 115#       发表于 2021-5-21 08:44
@@ -1329,7 +1329,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 其实纠结这个就是自卑  其实吧  如果觉得能讲你们的鸟语就是给你们面子  会在乎一句话你们用不用的？  
 
 
------
+*****
 
 ####  RinQ0326  
 ##### 116#       发表于 2021-5-21 08:45
@@ -1341,7 +1341,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">日语也这样，或者说活下来的语言都是大乱炖
 
 
------
+*****
 
 ####  alex2092  
 ##### 117#       发表于 2021-5-21 08:45
@@ -1350,7 +1350,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">how u doing?
 
 
------
+*****
 
 ####  膛线  
 ##### 118#       发表于 2021-5-21 08:47
@@ -1362,7 +1362,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 您要添饭吗？====》你要饭吗？
 
 
------
+*****
 
 ####  3Psm  
 ##### 119#       发表于 2021-5-21 08:49
@@ -1375,7 +1375,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 按这个人的逻辑，那文言文别教了，早就不用一百多年、不流行几百年了。
 
 
------
+*****
 
 ####  飞霞精灵  
 ##### 120#       发表于 2021-5-21 08:57
@@ -1395,7 +1395,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 
 
 
------
+*****
 
 ####  周处长  
 ##### 121#       发表于 2021-5-21 09:01
@@ -1408,7 +1408,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 —— 来自 Xiaomi Redmi K30, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  听剑客  
 ##### 122#       发表于 2021-5-21 09:03
@@ -1423,7 +1423,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 —— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  Guildenstern  
 ##### 123#       发表于 2021-5-21 09:03
@@ -1435,7 +1435,7 @@ what's wrong with you 从一开始就不太对吧？感觉倒退40年也没有�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
------
+*****
 
 ####  烽火连城  
 ##### 124#       发表于 2021-5-21 09:05
@@ -1444,7 +1444,7 @@ what's wrong with you 从一开始就不太对吧？感觉倒退40年也没有�
 how you doing？
 
 
------
+*****
 
 ####  拣尽寒枝  
 ##### 125#       发表于 2021-5-21 09:06
@@ -1459,7 +1459,7 @@ how you doing？
 是的<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Redis  
 ##### 126#       发表于 2021-5-21 09:06
@@ -1474,7 +1474,7 @@ how you doing？</blockquote>
 耗～啊釉度～硬～～
 
 
------
+*****
 
 ####  小仓  
 ##### 127#       发表于 2021-5-21 09:13
@@ -1491,7 +1491,7 @@ Hail to you，champion！
 Is there any right potion can cure?
 
 
------
+*****
 
 ####  NPCNPC  
 ##### 128#       发表于 2021-5-21 09:15
@@ -1508,7 +1508,7 @@ Is there any right potion can cure?
 你听这中文也不舒服吧。
 
 
------
+*****
 
 ####  tttabc1  
 ##### 129#       发表于 2021-5-21 09:17
@@ -1518,7 +1518,7 @@ Is there any right potion can cure?
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  barry.allen  
 ##### 130#       发表于 2021-5-21 09:22
@@ -1539,7 +1539,7 @@ Good day Sir
 说这话的不是酒店前台就是进了60年代
 
 
------
+*****
 
 ####  真田丸  
 ##### 131#       发表于 2021-5-21 09:23
@@ -1550,7 +1550,7 @@ what's wrong with you在影视台词里不还挺常见的？一般说完就准�
 这话应该对应娘炮弯弯国语吧，“你怎么可以这样”
 
 
------
+*****
 
 ####  真田丸  
 ##### 132#       发表于 2021-5-21 09:23
@@ -1561,7 +1561,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 少了个imfinetoo
 
 
------
+*****
 
 ####  真田丸  
 ##### 133#       发表于 2021-5-21 09:26
@@ -1572,7 +1572,7 @@ how are you? I'm fine, thank you. And you?</blockquote>
 May Force Be With You.
 
 
------
+*****
 
 ####  barry.allen  
 ##### 134#       发表于 2021-5-21 09:31
@@ -1584,7 +1584,7 @@ May Force Be With You.
 不，我们这是在教自命不凡的英国匪徒讲美语<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  flyzzhj  
 ##### 135#       发表于 2021-5-21 09:36
@@ -1595,7 +1595,7 @@ how do you do
 原来不是初次见面的问候语吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  普通军转  
 ##### 136#       发表于 2021-5-21 09:38
@@ -1611,7 +1611,7 @@ long time no see
 good good study, day day up
 
 
------
+*****
 
 ####  pharos  
 ##### 137#       发表于 2021-5-21 09:42
@@ -1623,7 +1623,7 @@ May Force Be With You.</blockquote>
 the force
 
 
------
+*****
 
 ####  cherry111  
 ##### 138#       发表于 2021-5-21 09:42
@@ -1632,7 +1632,7 @@ the force
 所以外国大夫正确是怎样问诊？
 
 
------
+*****
 
 ####  flyzzhj  
 ##### 139#       发表于 2021-5-21 09:43
@@ -1650,7 +1650,7 @@ good good study, day day up</blockquote>
 我当时笑出声了
 
 
------
+*****
 
 ####  yichengyu  
 ##### 140#       发表于 2021-5-21 09:54
@@ -1659,7 +1659,7 @@ good good study, day day up</blockquote>
 how can i help you？
 
 
------
+*****
 
 ####  GMJ  
 ##### 141#       发表于 2021-5-21 09:57
@@ -1671,7 +1671,7 @@ how can i help you？
 怎么肥事儿啊，小老弟？
 
 
------
+*****
 
 ####  中已矣  
 ##### 142#       发表于 2021-5-21 10:01
@@ -1680,7 +1680,7 @@ how can i help you？
 人家不用不代表我不能用，用多了让人家只能跟着用不好？
 
 
------
+*****
 
 ####  lexi  
 ##### 143#       发表于 2021-5-21 10:22
@@ -1689,7 +1689,7 @@ how can i help you？
 long time no see是标准的分析语表达方式，理解其奥妙对学习汉语有好处，不可以不品尝。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  普通军转  
 ##### 144#       发表于 2021-5-21 10:48
@@ -1705,7 +1705,7 @@ long time no see, amigo
 中墨混合双打
 
 
------
+*****
 
 ####  hipper  
 ##### 145#       发表于 2021-5-21 10:50
@@ -1714,7 +1714,7 @@ long time no see, amigo
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  奈奈未喵  
 ##### 146#       发表于 2021-5-21 10:52
@@ -1723,7 +1723,7 @@ long time no see, amigo
 要不学学雷总 are u ok
 
 
------
+*****
 
 ####  volanta  
 ##### 147#       发表于 2021-5-21 10:58
@@ -1732,7 +1732,7 @@ long time no see, amigo
 我在青旅被白人搭讪过，他说的是How you doing
 
 
------
+*****
 
 ####  eternity0079  
 ##### 148#       发表于 2021-5-21 11:26
@@ -1756,7 +1756,7 @@ Who’s next?
 It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  古代人皮克  
 ##### 149#       发表于 2021-5-21 11:26
@@ -1774,7 +1774,7 @@ It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/fa
 难道你去看医生 医生开口一句“你什么毛病” 你觉得很舒服？
 
 
------
+*****
 
 ####  语文j教师  
 ##### 150#       发表于 2021-5-21 11:43
@@ -1786,7 +1786,7 @@ It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/fa
 
 
 
------
+*****
 
 ####  语文j教师  
 ##### 151#       发表于 2021-5-21 11:44
@@ -1796,7 +1796,7 @@ It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/fa
 他名字是不是joey?来自: iPhone客户端
 
 
------
+*****
 
 ####  volanta  
 ##### 152#       发表于 2021-5-21 11:47
@@ -1823,7 +1823,7 @@ It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/fa
 查看全部评分
 
 
------
+*****
 
 ####  空当接龙  
 ##### 153#       发表于 2021-5-21 11:48
@@ -1834,7 +1834,7 @@ It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/fa
 “ni hao”
 
 
------
+*****
 
 ####  takami  
 ##### 154#       发表于 2021-5-21 12:17
@@ -1846,7 +1846,7 @@ It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/fa
 印第安人就是殷人，怎么会没关系呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  takami  
 ##### 155#       发表于 2021-5-21 12:26
@@ -1861,7 +1861,7 @@ You want to piss offme, boy?
 Excellent！
 
 
------
+*****
 
 ####  若闲  
 ##### 156#       发表于 2021-5-21 12:28
@@ -1873,7 +1873,7 @@ Excellent！
 "你啥毛病？"<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  smy20011  
 ##### 157#       发表于 2021-5-21 12:30
@@ -1889,7 +1889,7 @@ Excellent！
 全美医生起头说what's wrong with you估计少于10家
 
 
------
+*****
 
 ####  陆柒捌  
 ##### 158#       发表于 2021-5-21 13:12
@@ -1901,7 +1901,7 @@ Excellent！
 how's it going
 
 
------
+*****
 
 ####  nvis  
 ##### 159#       发表于 2021-5-21 13:20
@@ -1912,7 +1912,7 @@ how's it going
 你搞啥？你有毛病？
 
 
------
+*****
 
 ####  放大镜  
 ##### 160#       发表于 2021-5-21 13:34
@@ -1931,7 +1931,7 @@ how's it going
 史泰龙（眼前一黑）：Away！Blow this guy AWAY！<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wbtsy  
 ##### 161#       发表于 2021-5-21 13:40
@@ -1940,7 +1940,7 @@ how's it going
 说what’s up 和 how is going的，也只是适合非正式场合或者有关系的人、熟悉的人。你要是和不常见面的长辈打招呼，还是how are you稳妥。这句话也没有过时到不能说的程度。
 
 
------
+*****
 
 ####  3Psm  
 ##### 162#       发表于 2021-5-21 13:41
@@ -1961,7 +1961,7 @@ how's it going
 谁会学文言文古诗词的时候计较医生问诊是“最近有什么不舒服”还是“今贵恙乎？”
 
 
------
+*****
 
 ####  serial  
 ##### 163#       发表于 2021-5-21 13:42
@@ -1972,7 +1972,7 @@ how's it going
 Good day/morning 就完事了……
 
 
------
+*****
 
 ####  上将郝萌  
 ##### 164#       发表于 2021-5-21 13:56
@@ -1983,7 +1983,7 @@ Good day/morning 就完事了……
 就记得my fair lady里面教授给卖花女高强度训练how~do you do，除了两句绕口令外就这句贼有用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Lozs  
 ##### 165#       发表于 2021-5-21 14:29
@@ -1992,7 +1992,7 @@ Good day/morning 就完事了……
 how dare you
 
 
------
+*****
 
 ####  Garterbelt  
 ##### 166#       发表于 2021-5-21 15:43
@@ -2001,7 +2001,7 @@ how dare you
 我比较在意主楼图里说的“世界上优秀的教科书"是指什么。难道还能直接拿英国的教科书来用吗？
 
 
------
+*****
 
 ####  RPG-7  
 ##### 167#       发表于 2021-5-21 15:51
@@ -2012,7 +2012,7 @@ May Force Be With You.</blockquote>
 应该先问候hello there
 
 
------
+*****
 
 ####  oopsoops  
 ##### 168#       发表于 2021-5-21 15:57
@@ -2024,7 +2024,7 @@ May Force Be With You.</blockquote>
 看看希区柯克，上世纪还是很常用的
 
 
------
+*****
 
 ####  山下野人  
 ##### 169#       发表于 2021-5-21 15:58
@@ -2033,7 +2033,7 @@ May Force Be With You.</blockquote>
 现在流行的是不是 how dear you
 
 
------
+*****
 
 ####  古代人皮克  
 ##### 170#       发表于 2021-5-21 16:20
@@ -2050,7 +2050,7 @@ May Force Be With You.</blockquote>
 —— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  cloudian  
 ##### 171#       发表于 2021-5-21 16:40
@@ -2061,7 +2061,7 @@ May Force Be With You.</blockquote>
 —— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  真田丸  
 ##### 172#       发表于 2021-5-21 17:54
@@ -2073,7 +2073,7 @@ May Force Be With You.</blockquote>
 看成how dare you
 
 
------
+*****
 
 ####  liaoguom  
 ##### 173#       发表于 2021-5-21 18:19
@@ -2085,7 +2085,7 @@ May Force Be With You.</blockquote>
 朗文出版社，百度了下还是历史挺悠久的英国公司，用这些不奇怪
 
 
------
+*****
 
 ####  婉兮  
 ##### 174#       发表于 2021-5-21 23:59
@@ -2094,7 +2094,7 @@ May Force Be With You.</blockquote>
 不加with you的话，what's wrong 或者what's the matter其实还好，相当于一句咋滴啦
 
 
------
+*****
 
 ####  婉兮  
 ##### 175#       发表于 2021-5-22 00:09
@@ -2107,7 +2107,7 @@ May Force Be With You.</blockquote>
 日常会用how r u/how u doin/how's ur day/what's up等，看熟悉程度。
 
 
------
+*****
 
 ####  Richardsw  
 ##### 176#       发表于 2021-5-22 01:11
@@ -2122,7 +2122,7 @@ May Force Be With You.</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  億万千  
 ##### 177#       发表于 2021-5-22 01:14
@@ -2135,7 +2135,7 @@ what's wrong with you ？ 你有病啊？
 字面含义都是那个含义，但是说出来意思就变了
 
 
------
+*****
 
 ####  3Psm  
 ##### 178#       发表于 2021-5-23 07:23
@@ -2152,7 +2152,7 @@ what's wrong with you ？ 你有病啊？
 当然，你感觉要给英文准官方语言待遇般的教育投入，这确实差得很远。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nokazusa  
 ##### 179#       发表于 2021-5-23 07:28
@@ -2163,7 +2163,7 @@ what's wrong with you ？ 你有病啊？
 —— 来自 HUAWEI JEF-AN20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
------
+*****
 
 ####  萧观澜  
 ##### 180#       发表于 2021-5-23 11:08
@@ -2174,7 +2174,7 @@ what's wrong with you ？ 你有病啊？
 
 
 
------
+*****
 
 ####  鵝  
 ##### 181#       发表于 2021-5-24 09:05
@@ -2190,7 +2190,7 @@ what's wrong with you ？ 你有病啊？
 —— 来自 Xiaomi M2003J15SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  鵝  
 ##### 182#       发表于 2021-5-24 09:10

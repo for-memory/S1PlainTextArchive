@@ -2,7 +2,7 @@
 
 
 
------
+*****
 
 ####  bigice  
 ##### 1#       楼主       发表于 2021-5-1 19:58
@@ -26,7 +26,7 @@ Apple Music还将在《无损音频》中提供超过7500万首歌曲的目录�
 要开始收听无损音频，使用最新版本的Apple Music的订阅者可以在“设置”&gt;“音乐”&gt;“音频质量”中打开它。在这里，他们可以为不同的连接选择不同的分辨率，例如蜂窝、Wi-Fi或下载。Apple Music的无损层从CD质量开始，在44.1千赫（千赫兹）时为16位，在48千赫时最高可达24位，可以在苹果设备上原生播放。对于真正的音频爱好者，Apple Music还提供高达24位的高分辨率无损，最高可达192千赫
 
 
------
+*****
 
 ####  ziyo  
 ##### 2#       发表于 2021-5-1 20:04
@@ -35,7 +35,7 @@ Apple Music还将在《无损音频》中提供超过7500万首歌曲的目录�
 不涨价就是好文明
 
 
------
+*****
 
 ####  千化万变式  
 ##### 3#       发表于 2021-5-1 20:05
@@ -46,7 +46,7 @@ Apple Music还将在《无损音频》中提供超过7500万首歌曲的目录�
 —— 来自 samsung SM-N9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  男中音钢琴家  
 ##### 4#       发表于 2021-5-1 20:21
@@ -60,7 +60,7 @@ Apple Music还将在《无损音频》中提供超过7500万首歌曲的目录�
 HiFi的是Apple Music，不是AirPods。AirPods3那种非入耳式设计哪有音质可言。
 
 
------
+*****
 
 ####  404489039  
 ##### 5#       发表于 2021-5-1 20:36
@@ -69,7 +69,7 @@ HiFi的是Apple Music，不是AirPods。AirPods3那种非入耳式设计哪有�
 估计是会员涨价 可以听高音质
 
 
------
+*****
 
 ####  无字仓颉  
 ##### 6#       发表于 2021-5-1 20:38
@@ -78,7 +78,7 @@ HiFi的是Apple Music，不是AirPods。AirPods3那种非入耳式设计哪有�
 itunes store的万年aac什么时候升级alac？<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bubuyu  
 ##### 7#       发表于 2021-5-1 20:53
@@ -87,7 +87,7 @@ itunes store的万年aac什么时候升级alac？<img src="https://static.saraba
 没有耳机接口的Hi-Fi
 
 
------
+*****
 
 ####  黄字  
 ##### 8#       发表于 2021-5-1 20:57
@@ -98,7 +98,7 @@ itunes store的万年aac什么时候升级alac？<img src="https://static.saraba
 这三代升级了点啥？
 
 
------
+*****
 
 ####  112zero  
 ##### 9#       发表于 2021-5-1 23:00
@@ -107,7 +107,7 @@ itunes store的万年aac什么时候升级alac？<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">hifi
 
 
------
+*****
 
 ####  有优越感的人mk2  
 ##### 10#       发表于 2021-5-1 23:02
@@ -116,7 +116,7 @@ itunes store的万年aac什么时候升级alac？<img src="https://static.saraba
 果粉不需要hifi
 
 
------
+*****
 
 ####  孤蜀安安  
 ##### 11#       发表于 2021-5-2 11:08
@@ -125,7 +125,7 @@ itunes store的万年aac什么时候升级alac？<img src="https://static.saraba
 Apple One 订阅用户在此，希望可以免费升级<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  melvin95  
 ##### 12#       发表于 2021-5-2 11:17
@@ -133,7 +133,7 @@ Apple One 订阅用户在此，希望可以免费升级<img src="https://static.
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  starash  
 ##### 13#       发表于 2021-5-2 11:24
@@ -142,7 +142,7 @@ Apple One 订阅用户在此，希望可以免费升级<img src="https://static.
 以apple的音源库品质，上alac直接就是Hifi了。
 
 
------
+*****
 
 ####  equion  
 ##### 14#       发表于 2021-5-2 11:42
@@ -152,7 +152,7 @@ aac还能算HiFi？
 终于要开始推alac了吗
 
 
------
+*****
 
 ####  GeneralSmasher  
 ##### 15#       发表于 2021-5-2 11:52
@@ -161,7 +161,7 @@ aac还能算HiFi？
 这次学乖了，不出AirPods pro2，坚决不出手
 
 
------
+*****
 
 ####  白银の心  
 ##### 16#       发表于 2021-5-2 12:03
@@ -170,7 +170,7 @@ aac还能算HiFi？
 AAC不升级怎么也HiFi不起来。。。
 
 
------
+*****
 
 ####  rak1  
 ##### 17#       发表于 2021-5-2 12:35
@@ -179,7 +179,7 @@ AAC不升级怎么也HiFi不起来。。。
 坛友确实蛮厉害的，这么多人都能听出itunes aac和无损的差别<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  奇迹之巅  
 ##### 18#       发表于 2021-5-2 12:50
@@ -189,7 +189,7 @@ AAC不升级怎么也HiFi不起来。。。
 然而事实上我99%听音乐的时候都做不到这个环境…
 
 
------
+*****
 
 ####  melvin95  
 ##### 19#       发表于 2021-5-2 13:04
@@ -197,7 +197,7 @@ AAC不升级怎么也HiFi不起来。。。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
------
+*****
 
 ####  ziyo  
 ##### 20#       发表于 2021-5-2 13:16
@@ -206,7 +206,7 @@ AAC不升级怎么也HiFi不起来。。。
 iPhone上的满血aac能听出来和无损的差别？算了我假装信你们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  geminixxf  
 ##### 21#       发表于 2021-5-2 13:26
@@ -217,7 +217,7 @@ iPhone上的满血aac能听出来和无损的差别？算了我假装信你们<i
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
------
+*****
 
 ####  翼宿一  
 ##### 22#       发表于 2021-5-2 15:38
@@ -226,7 +226,7 @@ iPhone上的满血aac能听出来和无损的差别？算了我假装信你们<i
 aac 好歹比 mp3 强点，对手机来说也够用了。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Diabolosis  
 ##### 23#       发表于 2021-5-2 16:42
@@ -238,7 +238,7 @@ aac 好歹比 mp3 强点，对手机来说也够用了。<img src="https://stati
 —— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  zhrs456  
 ##### 24#       发表于 2021-5-2 17:20
@@ -249,7 +249,7 @@ aac 好歹比 mp3 强点，对手机来说也够用了。<img src="https://stati
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  nalanchen  
 ##### 25#       发表于 2021-5-2 17:25
@@ -258,7 +258,7 @@ aac 好歹比 mp3 强点，对手机来说也够用了。<img src="https://stati
 就苹果的软硬件？？？
 
 
------
+*****
 
 ####  AliceMilky  
 ##### 26#       发表于 2021-5-2 22:26
@@ -267,7 +267,7 @@ aac 好歹比 mp3 强点，对手机来说也够用了。<img src="https://stati
 希望iTunes能支持flac
 
 
------
+*****
 
 ####  bubuyu  
 ##### 27#       发表于 2021-5-2 22:45
@@ -278,7 +278,7 @@ aac 好歹比 mp3 强点，对手机来说也够用了。<img src="https://stati
 Mac上都没iTunes了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Re.Troy  
 ##### 28#       发表于 2021-5-3 04:47
@@ -287,7 +287,7 @@ Mac上都没iTunes了<img src="https://static.saraba1st.com/image/smiley/face201
 flac用xld转成alac，能直接倒进库里也不麻烦
 
 
------
+*****
 
 ####  Fuero  
 ##### 29#       发表于 2021-5-3 10:26
@@ -296,7 +296,7 @@ flac用xld转成alac，能直接倒进库里也不麻烦
 hifi版am应该和AirPods用户无关吧？感觉是给接耳放当音源的apple设备（包括mac）用的
 
 
------
+*****
 
 ####  9-11-2001  
 ##### 30#       发表于 2021-5-3 10:28
@@ -307,7 +307,7 @@ airpods pro的强制升级是无法避免的吗？
 
 
 
------
+*****
 
 ####  GuardHei  
 ##### 31#       发表于 2021-5-3 10:54
@@ -318,7 +318,7 @@ hifi版am又不是说就一定是给airpods设计的...不过既然价格一样�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
------
+*****
 
 ####  septer  
 ##### 32#       发表于 2021-5-3 12:05
@@ -327,7 +327,7 @@ hifi版am又不是说就一定是给airpods设计的...不过既然价格一样�
 提高音源质量也要喷？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  eden0412  
 ##### 33#       发表于 2021-5-17 13:39
@@ -336,7 +336,7 @@ hifi版am又不是说就一定是给airpods设计的...不过既然价格一样�
 应该是实锤了，Apple Music app中已经放出预告“Get Ready — music is about to change forever”
 
 
------
+*****
 
 ####  SICP  
 ##### 34#       发表于 2021-5-17 17:02
@@ -348,7 +348,7 @@ hifi版am又不是说就一定是给airpods设计的...不过既然价格一样�
 之前为了听无损，开了TIDAL，后面发现一些老唱片没有无损，又退了
 
 
------
+*****
 
 ####  ky怪  
 ##### 35#       发表于 2021-5-17 17:41
@@ -357,7 +357,7 @@ hifi版am又不是说就一定是给airpods设计的...不过既然价格一样�
 iPhone做转盘usb输出到万元解码，怎么听不出来（）
 
 
------
+*****
 
 ####  septer  
 ##### 36#       发表于 2021-5-17 20:00
@@ -366,7 +366,7 @@ iPhone做转盘usb输出到万元解码，怎么听不出来（）
 希望苹果能整点新活
 
 
------
+*****
 
 ####  bigice  
 ##### 37#         楼主| 发表于 2021-5-17 21:12
@@ -388,7 +388,7 @@ Apple Music还将在《无损音频》中提供超过7500万首歌曲的目录�
 以上来自苹果英文官网机翻
 
 
------
+*****
 
 ####  BallanceHZ  
 ##### 38#       发表于 2021-5-17 21:27
@@ -397,7 +397,7 @@ Apple Music还将在《无损音频》中提供超过7500万首歌曲的目录�
 wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SICP  
 ##### 39#       发表于 2021-5-17 21:29
@@ -409,7 +409,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 这些新功能将于下个月开始提供给Apple Music订阅者，无需额外费用。<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  -lilipeipei-  
 ##### 40#       发表于 2021-5-17 21:30
@@ -418,7 +418,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个节骨眼Airpods Pro丢了，水果赶紧出Airpods3吧
 
 
------
+*****
 
 ####  bubuyu  
 ##### 41#       发表于 2021-5-17 21:32
@@ -428,7 +428,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 如果WWDC不搞个新的无线音频协议，那无损除了浪费流量感觉毫无用处，水果肯定不是为了推广别家hifi耳机搞这个。
 
 
------
+*****
 
 ####  SICP  
 ##### 42#       发表于 2021-5-17 21:41
@@ -437,7 +437,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 另外补充一点，Lossless是48KHz采样率，Hi-Res Lossless是48KHz-192KHz采样率，后者需要额外的外设比如USB数字转模拟才能正常收听
 
 
------
+*****
 
 ####  SICP  
 ##### 43#       发表于 2021-5-17 21:42
@@ -446,7 +446,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 中国页面也上了：[https://www.apple.com.cn/apple-music/](https://www.apple.com.cn/apple-music/)
 
 
------
+*****
 
 ####  结夜野棠.  
 ##### 44#       发表于 2021-5-17 21:50
@@ -455,7 +455,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 无需额外付费 苹果牛逼
 
 
------
+*****
 
 ####  FerMonster  
 ##### 45#       发表于 2021-5-17 21:50
@@ -467,7 +467,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 苹果连3.5都干掉了，99.999都不用hifi耳机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fuero  
 ##### 46#       发表于 2021-5-17 21:51
@@ -476,7 +476,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 不用另算钱太爽了，看看AirPods3怎么样
 
 
------
+*****
 
 ####  eden0412  
 ##### 47#       发表于 2021-5-17 21:54
@@ -485,7 +485,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 听说明天没有airpods3
 
 
------
+*****
 
 ####  Heliko  
 ##### 48#       发表于 2021-5-17 21:55
@@ -494,7 +494,7 @@ wwdc会不会顺势推出新的无线音频协议啊<img src="https://static.sar
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">iTunes Store 会不会有 Lossless 卖？
 
 
------
+*****
 
 ####  BallanceHZ  
 ##### 49#       发表于 2021-5-17 22:00
@@ -505,7 +505,7 @@ iTunes Store 会不会有 Lossless 卖？</blockquote>
 loseless不额外收费<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  404489039  
 ##### 50#       发表于 2021-5-17 22:04
@@ -514,7 +514,7 @@ loseless不额外收费<img src="https://static.saraba1st.com/image/smiley/face2
 现在就更新了？
 
 
------
+*****
 
 ####  eden0412  
 ##### 51#       发表于 2021-5-17 22:08
@@ -526,7 +526,7 @@ loseless不额外收费<img src="https://static.saraba1st.com/image/smiley/face2
 随 iOS 14.6 推送
 
 
------
+*****
 
 ####  SICP  
 ##### 52#       发表于 2021-5-17 22:11
@@ -538,7 +538,7 @@ loseless不额外收费<img src="https://static.saraba1st.com/image/smiley/face2
 下个月随14.6系统更新，需要在设置额外打开
 
 
------
+*****
 
 ####  zikimi  
 ##### 53#       发表于 2021-5-17 22:15
@@ -547,7 +547,7 @@ loseless不额外收费<img src="https://static.saraba1st.com/image/smiley/face2
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">配合上这个才是AirPods Max的完全体？
 
 
------
+*****
 
 ####  SICP  
 ##### 54#       发表于 2021-5-17 22:19
@@ -559,7 +559,7 @@ loseless不额外收费<img src="https://static.saraba1st.com/image/smiley/face2
 AirPods Max使用蓝牙5.0连接，带宽远远不够…等新款的AirPods看看
 
 
------
+*****
 
 ####  结夜野棠.  
 ##### 55#       发表于 2021-5-17 22:20
@@ -572,7 +572,7 @@ AirPods Max使用蓝牙5.0连接，带宽远远不够…等新款的AirPods看�
 苹果还是老实的说无损音乐最好用有线设备
 
 
------
+*****
 
 ####  eden0412  
 ##### 56#       发表于 2021-5-17 22:32
@@ -586,7 +586,7 @@ AirPods Max使用蓝牙5.0连接，带宽远远不够…等新款的AirPods看�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  SICP  
 ##### 57#       发表于 2021-5-17 22:33
@@ -596,7 +596,7 @@ AirPods Max使用蓝牙5.0连接，带宽远远不够…等新款的AirPods看�
 打起来打起来
 
 
------
+*****
 
 ####  SICP  
 ##### 58#       发表于 2021-5-17 22:35
@@ -608,7 +608,7 @@ AirPods Max使用蓝牙5.0连接，带宽远远不够…等新款的AirPods看�
 测能不能听出高频的网站：[http://www.ultrasonic-ringtones.com/](http://www.ultrasonic-ringtones.com/)
 
 
------
+*****
 
 ####  chaos7  
 ##### 59#       发表于 2021-5-17 22:38
@@ -617,7 +617,7 @@ AirPods Max使用蓝牙5.0连接，带宽远远不够…等新款的AirPods看�
 airpods max能不能出个lite版，卖2000元左右。
 
 
------
+*****
 
 ####  Fuero  
 ##### 60#       发表于 2021-5-17 22:42
@@ -628,7 +628,7 @@ airpods max能不能出个lite版，卖2000元左右。
 
 
 
------
+*****
 
 ####  银光闪耀  
 ##### 61#       发表于 2021-5-17 23:00
@@ -648,7 +648,7 @@ airpods max随便能收到3000块的
 样子的真的难看
 
 
------
+*****
 
 ####  结夜野棠.  
 ##### 62#       发表于 2021-5-17 23:17
@@ -664,7 +664,7 @@ airpods max随便能收到3000块的
 为什么跳水这么厉害，太多人买了接受不了？
 
 
------
+*****
 
 ####  银光闪耀  
 ##### 63#       发表于 2021-5-17 23:54
@@ -680,7 +680,7 @@ airpods max随便能收到3000块的
 习惯就好了
 
 
------
+*****
 
 ####  zhrs456  
 ##### 64#       发表于 2021-5-18 00:08
@@ -689,7 +689,7 @@ airpods max随便能收到3000块的
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">搞了半天就Apple Music啊 iTunes的专辑怎么不更新呢 之前iTunes movie都免费更4k了
 
 
------
+*****
 
 ####  404489039  
 ##### 65#       发表于 2021-5-18 00:13
@@ -700,7 +700,7 @@ airpods max随便能收到3000块的
 天气这么热谁带这玩意出街<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  _47  
 ##### 66#       发表于 2021-5-18 01:18
@@ -709,7 +709,7 @@ airpods max随便能收到3000块的
 日区还没推
 
 
------
+*****
 
 ####  战狼PTSD  
 ##### 67#       发表于 2021-5-18 02:15
@@ -718,7 +718,7 @@ airpods max随便能收到3000块的
 airpods3呢？
 
 
------
+*****
 
 ####  mashav  
 ##### 68#       发表于 2021-5-18 08:24
@@ -727,7 +727,7 @@ airpods3呢？
 看了看新闻，高解析度无损自家的几个AirPods都不支持<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  结夜野棠.  
 ##### 69#       发表于 2021-5-18 09:04
@@ -738,7 +738,7 @@ airpods3呢？
 嗯 苹果官网也说了 想体验无损建议自己接DAC和有线耳机
 
 
------
+*****
 
 ####  lyz1196  
 ##### 70#       发表于 2021-5-18 09:15
@@ -747,7 +747,7 @@ airpods3呢？
 好像不关iTunes的事？
 
 
------
+*****
 
 ####  孤蜀安安  
 ##### 71#       发表于 2021-5-18 09:46
@@ -759,7 +759,7 @@ airpods3呢？
 homepod可支持吗
 
 
------
+*****
 
 ####  eden0412  
 ##### 72#       发表于 2021-5-18 09:55
@@ -772,7 +772,7 @@ homepod可支持吗
 也就是说无损音频目前需要有线耳机，高解析无损音频需要有线耳机+DAC解码器<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  平井姨夫  
 ##### 73#       发表于 2021-5-18 10:00
@@ -781,7 +781,7 @@ homepod可支持吗
 目前的耳机都不支持这个无损格式，以后的耳机能支持的话，应该是用了新的传输协议吧？
 
 
------
+*****
 
 ####  黄字  
 ##### 74#       发表于 2021-5-18 10:04
@@ -795,7 +795,7 @@ homepod可支持吗
 最大的问题还是太重了。
 
 
------
+*****
 
 ####  bubuyu  
 ##### 75#       发表于 2021-5-18 10:05
@@ -807,7 +807,7 @@ homepod可支持吗</blockquote>
 不支持<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FerMonster  
 ##### 76#       发表于 2021-5-18 10:24
@@ -819,7 +819,7 @@ homepod可支持吗</blockquote>
 最高支持到48可以了，再高无线传输搞不定的。
 
 
------
+*****
 
 ####  ml1642879  
 ##### 77#       发表于 2021-5-18 10:28
@@ -828,7 +828,7 @@ homepod可支持吗</blockquote>
 重新定义hifi
 
 
------
+*****
 
 ####  madbird302  
 ##### 78#       发表于 2021-5-18 10:30
@@ -840,7 +840,7 @@ homepod可支持吗</blockquote>
 主要问题是在蓝牙上，只要是蓝牙设备都不支持
 
 
------
+*****
 
 ####  fukc  
 ##### 79#       发表于 2021-5-18 10:37
@@ -851,7 +851,7 @@ homepod可支持吗</blockquote>
 和耳塞几乎是刚需不一样，头戴耳机本来就小众，这次基佬定的价格就是卖一台算一台的策略，开卖早期还可以通过不给授权店放样品和根据订单数下单生产的无现货方式来维持价格不崩，人在小地方到现在为止我见过戴着玩意出街的人数为0…
 
 
------
+*****
 
 ####  孤蜀安安  
 ##### 80#       发表于 2021-5-18 12:05
@@ -866,7 +866,7 @@ homepod可支持吗</blockquote>
 下代iphone改把先进耳机孔加回来了
 
 
------
+*****
 
 ####  银光闪耀  
 ##### 81#       发表于 2021-5-18 12:13
@@ -880,7 +880,7 @@ homepod可支持吗</blockquote>
 等来的是这个的升级版<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  孤蜀安安  
 ##### 82#       发表于 2021-5-18 12:19
@@ -892,7 +892,7 @@ homepod可支持吗</blockquote>
 关键是很多人的评价都是说丑
 
 
------
+*****
 
 ####  孤蜀安安  
 ##### 83#       发表于 2021-5-18 12:30
@@ -904,7 +904,7 @@ homepod可支持吗</blockquote>
 一个猜想，会不会新出的airpods3就会支持？
 
 
------
+*****
 
 ####  煉獄の羊  
 ##### 84#       发表于 2021-5-18 12:36
@@ -913,7 +913,7 @@ homepod可支持吗</blockquote>
 无线hifi时代来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
------
+*****
 
 ####  mashav  
 ##### 85#       发表于 2021-5-18 12:37
@@ -924,7 +924,7 @@ homepod可支持吗</blockquote>
 大概是无损需要耳机支持ALAC格式，AirPods3的芯片不知道支不支持
 
 
------
+*****
 
 ####  zikimi  
 ##### 86#       发表于 2021-5-18 12:37
@@ -933,7 +933,7 @@ homepod可支持吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">加回耳机孔你想靠iPhone推得动hifi耳机？白日做梦
 
 
------
+*****
 
 ####  eden0412  
 ##### 87#       发表于 2021-5-18 12:41
@@ -944,7 +944,7 @@ homepod可支持吗</blockquote>
 我更好奇如果据传闻苹果取消充电口该咋办，那连转接线都没地方插<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  男中音钢琴家  
 ##### 88#       发表于 2021-5-18 12:43
@@ -955,7 +955,7 @@ homepod可支持吗</blockquote>
 无线还是通过蓝牙就不可能
 
 
------
+*****
 
 ####  kardan_winkel  
 ##### 89#       发表于 2021-5-18 12:48
@@ -964,7 +964,7 @@ homepod可支持吗</blockquote>
 earpod可以么
 
 
------
+*****
 
 ####  强尼高达  
 ##### 90#       发表于 2021-5-18 12:53
@@ -977,7 +977,7 @@ earpod可以么
 
 
 
------
+*****
 
 ####  sun119108  
 ##### 91#       发表于 2021-5-18 13:03
@@ -986,7 +986,7 @@ earpod可以么
 开放通用格式不加密下载才是造福大众，不过苹果是不会做慈善的，所以现在期待解密和格式转换才是应该的
 
 
------
+*****
 
 ####  BallanceHZ  
 ##### 92#       发表于 2021-5-18 13:04
@@ -998,7 +998,7 @@ iTunes store都是通用格式啊<img src="https://static.saraba1st.com/image/sm
 Apple Music这种流媒开放不现实
 
 
------
+*****
 
 ####  zikimi  
 ##### 93#       发表于 2021-5-18 13:17
@@ -1009,7 +1009,7 @@ Apple Music这种流媒开放不现实
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，那到时安卓终端和pc mac反而是Apple music最佳体验平台
 
 
------
+*****
 
 ####  费老师  
 ##### 94#       发表于 2021-5-18 15:58
@@ -1018,7 +1018,7 @@ Apple Music这种流媒开放不现实
 HIFI? AIPI.
 
 
------
+*****
 
 ####  Litccc  
 ##### 95#       发表于 2021-5-18 16:03
@@ -1027,7 +1027,7 @@ HIFI? AIPI.
 话说现在pc有好看点的套壳apple music吗？找了一圈全是网页版<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fukc  
 ##### 96#       发表于 2021-5-18 16:05
@@ -1038,7 +1038,7 @@ HIFI? AIPI.
 受害者现身说法，果机的magsafe，在那个价格下的充电效率和发热都令人发指，尤其到了夏天，是纯粹的花钱找虐，下代能改进到什么程度都很难说，厨子大凡还有点脑子都不会在当下直接取消物理接口。
 
 
------
+*****
 
 ####  404489039  
 ##### 97#       发表于 2021-5-18 16:10
@@ -1051,7 +1051,7 @@ HIFI? AIPI.
 想想就不可能了
 
 
------
+*****
 
 ####  rp1993  
 ##### 98#       发表于 2021-5-18 16:33
@@ -1060,7 +1060,7 @@ HIFI? AIPI.
 怎么只有hifi音源，硬件跟上啊，新airpods呢？
 
 
------
+*****
 
 ####  cat339  
 ##### 99#       发表于 2021-5-18 16:44
@@ -1069,7 +1069,7 @@ HIFI? AIPI.
 大法的那个360音效是不是又要凉凉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FerMonster  
 ##### 100#       发表于 2021-5-18 16:48
@@ -1081,7 +1081,7 @@ HIFI? AIPI.
 拼计算音频不是针对谁，其他厂商连耳机的通透模式都搞不定，拿头跟苹果比<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  FerMonster  
 ##### 101#       发表于 2021-5-18 16:49
@@ -1093,7 +1093,7 @@ HIFI? AIPI.
 你购买了专辑是可以随便下载的，apple music本质上是租赁，当然要防着你下载啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  孤蜀安安  
 ##### 102#       发表于 2021-5-19 06:24
@@ -1107,7 +1107,7 @@ HIFI? AIPI.
 因为大家都太恨lightening了，宁可连usbc都不要了也不愿意要lightening
 
 
------
+*****
 
 ####  用户名已注册  
 ##### 103#       发表于 2021-5-19 10:02
@@ -1116,7 +1116,7 @@ HIFI? AIPI.
 之前卖掉了MU3X，看来可以买回来。
 
 
------
+*****
 
 ####  eden0412  
 ##### 104#       发表于 2021-5-22 21:51
@@ -1125,7 +1125,7 @@ HIFI? AIPI.
 苹果最新公布的苹果支持文件，HomePod 和 HomePod mini 将在未来的软件更新中获得对播放 Apple Music 无损音频的支持，但 AirPods 和 AirPods Pro 将不会获得支持。
 
 
------
+*****
 
 ####  Sorastlos  
 ##### 105#       发表于 2021-5-22 21:58
@@ -1139,7 +1139,7 @@ HIFI? AIPI.
 你是说spotify?
 
 
------
+*****
 
 ####  Litccc  
 ##### 106#       发表于 2021-5-22 22:19
@@ -1154,7 +1154,7 @@ HIFI? AIPI.
 [https://github.com/cryptofyre/Apple-Music-Electron](https://github.com/cryptofyre/Apple-Music-Electron)
 
 
------
+*****
 
 ####  Diabolosis  
 ##### 107#       发表于 2021-5-23 00:22
@@ -1165,7 +1165,7 @@ HIFI? AIPI.
 —— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
------
+*****
 
 ####  eden0412  
 ##### 108#       发表于 2021-5-23 00:56
@@ -1178,7 +1178,7 @@ HIFI? AIPI.
 苹果的意思就是以目前蓝牙协议就不要想无损了，想要无损就老老实实插耳机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  孤蜀安安  
 ##### 109#       发表于 2021-5-23 04:35
@@ -1192,7 +1192,7 @@ HIFI? AIPI.
 不过真的能听出来区别么
 
 
------
+*****
 
 ####  Fuero  
 ##### 110#       发表于 2021-5-23 06:47
@@ -1201,7 +1201,7 @@ HIFI? AIPI.
 看到一个很有趣的观点，虽然实际听感估计没差别，但真能搞成就很好玩。  A new leak from Jon Prosser claims that Apple is planning a massive software update for AirPods that will allow users to wirelessly stream lossless audio via AirPlay, rather than Bluetooth  Prosser states that he has been told that "with a simple update" Apple is planning on making its AirPods compatible with AirPlay. According to Prosser, you would still use Bluetooth to discover AirPods using something like an iPhone, before creating a "personal Wi-Fi connection" that would allow audio streaming between devices through AirPlay. Prosser states that "just like that" AirPods would be the first wireless headphones capable of streaming lossless audio.
 
 
------
+*****
 
 ####  Niceday  
 ##### 111#       发表于 2021-5-23 07:57
@@ -1213,7 +1213,7 @@ HIFI? AIPI.
 你说靠改底层协议靠蓝牙，那还不如直接魔改蓝牙协议呢。
 
 
------
+*****
 
 ####  结夜野棠.  
 ##### 112#       发表于 2021-5-23 09:46
@@ -1241,7 +1241,7 @@ HIFI? AIPI.
 原文链接：[https://support.apple.com/en-us/HT212183](https://support.apple.com/en-us/HT212183)
 
 
------
+*****
 
 ####  bubuyu  
 ##### 113#       发表于 2021-5-23 09:51
@@ -1254,7 +1254,7 @@ HIFI? AIPI.
 HomePod Mini那音质能听出来才见鬼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  星野心叶  
 ##### 114#       发表于 2021-5-23 10:03
@@ -1266,7 +1266,7 @@ HomePod Mini那音质能听出来才见鬼了<img src="https://static.saraba1st.
 好耶
 
 
------
+*****
 
 ####  zikimi  
 ##### 115#       发表于 2021-5-23 10:33
@@ -1277,7 +1277,7 @@ HomePod Mini那音质能听出来才见鬼了<img src="https://static.saraba1st.
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">虽然买AirPods就不是冲着无损来但你果一贯吹软硬结合，还能软件硬件不对板，AirPods和Pro也就算了，max和AM无损发布间隔才差多久
 
 
------
+*****
 
 ####  结夜野棠.  
 ##### 116#       发表于 2021-5-23 10:36
@@ -1289,7 +1289,7 @@ HomePod Mini那音质能听出来才见鬼了<img src="https://static.saraba1st.
 我现在给发烧友提供了无损音乐，发烧友肯定有自己的设备 我就不班门弄斧了 
 
 
------
+*****
 
 ####  zikimi  
 ##### 117#       发表于 2021-5-23 10:39
@@ -1301,7 +1301,7 @@ HomePod Mini那音质能听出来才见鬼了<img src="https://static.saraba1st.
 我感觉新耳机估计要有新传输协议支持无损，帮别人卖设备还是不符合苹果风格
 
 
------
+*****
 
 ####  eden0412  
 ##### 118#       发表于 2021-5-23 22:53
@@ -1315,7 +1315,7 @@ HomePod Mini那音质能听出来才见鬼了<img src="https://static.saraba1st.
 而且发烧友设备的销量苹果也看不上，对于绝大多数Airpods用户来说无损不无损真听不出来<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  YuKin  
 ##### 119#       发表于 2021-5-23 23:02
@@ -1324,7 +1324,7 @@ HomePod Mini那音质能听出来才见鬼了<img src="https://static.saraba1st.
 APP无所谓无损不无损吧，上周五换了个电池盒，再战一年咯。
 
 
------
+*****
 
 ####  bigheadnotbig  
 ##### 120#       发表于 2021-5-23 23:33
@@ -1335,7 +1335,7 @@ APP无所谓无损不无损吧，上周五换了个电池盒，再战一年咯�
 
 
 
------
+*****
 
 ####  404489039  
 ##### 121#       发表于 2021-5-23 23:42
