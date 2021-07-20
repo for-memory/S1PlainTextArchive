@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2020-02-29 00:59** 
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6001#       发表于 2018-7-16 14:18
@@ -10,7 +10,7 @@
 真的连死蝈蝈都不放过吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6002#       发表于 2018-7-16 15:03
@@ -19,7 +19,7 @@
 漫画还在连载，圆盘和四格还待发售，访谈、设定、评论音轨，还没结束呢~
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6003#       发表于 2018-7-16 15:29
@@ -28,7 +28,7 @@
 想起恶魔城早期的设定，德库拉在宅子里自闭默默诅咒上帝（jz）
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6004#       发表于 2018-7-16 15:34
@@ -37,7 +37,7 @@
 这是virm的意志
 
 
------
+*****
 
 ####  9α  
 ##### 6005#       发表于 2018-7-16 16:29
@@ -50,7 +50,7 @@
 你们人类赶紧把这楼摇到iota16页，让它走好吧
 
 
------
+*****
 
 ####  youngkinglong  
 ##### 6006#       发表于 2018-7-16 16:32
@@ -59,7 +59,7 @@
 你谭蝈蝈真爱,烂尾了一个礼拜了讨论量还吊打夏季新番
 
 
------
+*****
 
 ####  阿卡林型不语  
 ##### 6007#       发表于 2018-7-16 16:54
@@ -68,7 +68,7 @@
 真是挫骨扬灰了
 
 
------
+*****
 
 ####  Meteors  
 ##### 6008#       发表于 2018-7-16 17:23
@@ -79,7 +79,7 @@
 编辑
 
 
------
+*****
 
 ####  PLD  
 ##### 6009#       发表于 2018-7-16 17:55
@@ -88,7 +88,7 @@
 这篇和《四月是你的谎言》比差远啦。
 
 
------
+*****
 
 ####  human  
 ##### 6010#       发表于 2018-7-16 18:06
@@ -101,7 +101,7 @@ K记新品超像9a本a发色 实物更像了
 情不禁p了个沙雕图 试试放专楼刷个楼吧...
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6011#       发表于 2018-7-16 18:11
@@ -122,7 +122,7 @@ K记新品超像9a本a发色 实物更像了
 起名是cp的巨大负面buff……
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6012#       发表于 2018-7-16 18:35
@@ -131,7 +131,7 @@ K记新品超像9a本a发色 实物更像了
 我觉得起名者对于被起名者是“父”，被起名者对起名者的情感与其说是爱不如说是崇拜，而ditf追求的是男女地位的平等，嗯，就是“扯平了”，而崇拜这种情感就是和平等相饽的。216开局的时候02占据了优势地位，在各种15及15pro下算是扯平了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6013#       发表于 2018-7-16 19:46
@@ -142,7 +142,7 @@ K记新品超像9a本a发色 实物更像了
 只有扯平了才能相爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6014#       发表于 2018-7-16 22:11
@@ -154,7 +154,7 @@ K记新品超像9a本a发色 实物更像了
 16没扯平啊，节奏带了太差了。
 
 
------
+*****
 
 ####  luyifuif  
 ##### 6015#       发表于 2018-7-16 23:11
@@ -163,7 +163,7 @@ K记新品超像9a本a发色 实物更像了
 国家队对泥潭的最大贡献，大概就是在这半年里带来了巨大的流量，同时还吸引力一批萌新进场（例如我）<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EN5  
 ##### 6016#       发表于 2018-7-16 23:22
@@ -172,7 +172,7 @@ K记新品超像9a本a发色 实物更像了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">名为灵魂之物又要回到古老肉体的牢笼之中了吗
 
 
------
+*****
 
 ####  soulife7  
 ##### 6017#       发表于 2018-7-16 23:31
@@ -183,7 +183,7 @@ K记新品超像9a本a发色 实物更像了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  free  
 ##### 6018#       发表于 2018-7-17 00:01
@@ -197,7 +197,7 @@ K记新品超像9a本a发色 实物更像了
 17话有个避难所没算吧，一共应该是6034页，可以去看那个论坛热帖选里边有统计
 
 
------
+*****
 
 ####  xyau  
 ##### 6019#       发表于 2018-7-17 00:44
@@ -218,7 +218,7 @@ K记新品超像9a本a发色 实物更像了
 朋友吐槽56证件照像中年人哈哈哈
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 6020#       发表于 2018-7-17 03:07
@@ -229,7 +229,7 @@ K记新品超像9a本a发色 实物更像了
 投了五郎，博士那张照片感觉不够wuzikuxi
 
 
------
+*****
 
 ####  xyau  
 ##### 6021#       发表于 2018-7-17 08:02
@@ -238,7 +238,7 @@ K记新品超像9a本a发色 实物更像了
 要死，天狼这个16不仅有02的身手还有02的嗅觉，还有个博士在边上叨叨……
 
 
------
+*****
 
 ####  magicz2  
 ##### 6022#       发表于 2018-7-17 08:26
@@ -247,7 +247,7 @@ K记新品超像9a本a发色 实物更像了
 56看来出线难保，可能要进复活赛了。
 
 
------
+*****
 
 ####  9α  
 ##### 6023#       发表于 2018-7-17 08:52
@@ -259,7 +259,7 @@ K记新品超像9a本a发色 实物更像了
 <img src="https://i.loli.net/2018/07/17/5b4d3dc520d7e.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6024#       发表于 2018-7-17 08:56
@@ -272,7 +272,7 @@ K记新品超像9a本a发色 实物更像了
 到216之前是不会放弃的
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6025#       发表于 2018-7-17 08:57
@@ -281,7 +281,7 @@ K记新品超像9a本a发色 实物更像了
 蝈蝈男性角色估计也就阿广能出线了
 
 
------
+*****
 
 ####  EN5  
 ##### 6026#       发表于 2018-7-17 09:12
@@ -292,7 +292,7 @@ K记新品超像9a本a发色 实物更像了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xyau  
 ##### 6027#       发表于 2018-7-17 09:24
@@ -305,7 +305,7 @@ b萌怎么没virm，还想投它几票
 非人无性不收录啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不然当初是可以补遗的，β应该就是补遗补漏了
 
 
------
+*****
 
 ####  magicz2  
 ##### 6028#       发表于 2018-7-17 12:19
@@ -314,7 +314,7 @@ b萌怎么没virm，还想投它几票
 56还是被被架进复活赛了
 
 
------
+*****
 
 ####  02016  
 ##### 6029#       发表于 2018-7-17 12:25
@@ -333,7 +333,7 @@ b萌怎么没virm，还想投它几票
 <img src="http://wx1.sinaimg.cn/large/0060lm7Tly1ftcqq5ndb4j30rs0xc4g8.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6030#       发表于 2018-7-17 13:07
@@ -367,7 +367,7 @@ P号69724280
 2018-7-17 13:06 上传
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6031#       发表于 2018-7-17 13:54
@@ -381,7 +381,7 @@ P号69724280
 (๑&gt;؂&lt;๑）
 
 
------
+*****
 
 ####  Meteors  
 ##### 6032#       发表于 2018-7-17 14:01
@@ -391,7 +391,7 @@ P号69724280
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xyau  
 ##### 6033#       发表于 2018-7-17 14:09
@@ -402,7 +402,7 @@ P号69724280
 确实7月以前还没强吻过的56不善独走<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6034#       发表于 2018-7-17 14:17
@@ -449,7 +449,7 @@ RirakkumaKaito@RirakkumaKaito
 查看全部评分
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6035#       发表于 2018-7-17 14:17
@@ -458,7 +458,7 @@ RirakkumaKaito@RirakkumaKaito
 众人眼里的best boy竟比不过齐木的变态跟班，真是世态炎凉<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6036#       发表于 2018-7-17 14:34
@@ -470,7 +470,7 @@ RirakkumaKaito@RirakkumaKaito
 #24之后 best boy 的地位还在吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6037#       发表于 2018-7-17 14:42
@@ -480,7 +480,7 @@ RirakkumaKaito@RirakkumaKaito
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6038#       发表于 2018-7-17 14:44
@@ -494,7 +494,7 @@ RirakkumaKaito@RirakkumaKaito
 加油吧，（本战）就靠你了，我们都在地球上（进不了本战）种地等着呢。
 
 
------
+*****
 
 ####  syqs  
 ##### 6039#       发表于 2018-7-17 15:22
@@ -508,7 +508,7 @@ RirakkumaKaito@RirakkumaKaito
 果然本站是要上宇宙去月球<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  それは奇跡です  
 ##### 6040#       发表于 2018-7-17 15:28
@@ -519,7 +519,7 @@ RirakkumaKaito@RirakkumaKaito
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  timepro  
 ##### 6041#       发表于 2018-7-17 16:07
@@ -530,7 +530,7 @@ RirakkumaKaito@RirakkumaKaito
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  626704053  
 ##### 6042#       发表于 2018-7-17 16:15
@@ -542,7 +542,7 @@ RirakkumaKaito@RirakkumaKaito
 我们会好好生活，一切要尽情享受，偶然要有点反抗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6043#       发表于 2018-7-17 16:16
@@ -556,7 +556,7 @@ RirakkumaKaito@RirakkumaKaito
 #24是明年的收录期了，到时候可能能欣赏个黄金鹤望兰自爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6044#       发表于 2018-7-17 16:31
@@ -567,7 +567,7 @@ RirakkumaKaito@RirakkumaKaito
 不要停下啊
 
 
------
+*****
 
 ####  soulife7  
 ##### 6045#       发表于 2018-7-17 16:31
@@ -578,7 +578,7 @@ RirakkumaKaito@RirakkumaKaito
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  funo3355411  
 ##### 6046#       发表于 2018-7-17 18:43
@@ -589,7 +589,7 @@ RirakkumaKaito@RirakkumaKaito
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6047#       发表于 2018-7-17 20:04
@@ -604,7 +604,7 @@ RirakkumaKaito@RirakkumaKaito
 叫龙公主啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6048#       发表于 2018-7-17 20:06
@@ -613,7 +613,7 @@ RirakkumaKaito@RirakkumaKaito
 国楼永不停<img src="https://static.saraba1st.com/image/smiley/carton2017/198.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  syqs  
 ##### 6049#       发表于 2018-7-17 20:08
@@ -622,7 +622,7 @@ RirakkumaKaito@RirakkumaKaito
 摇到216<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6050#       发表于 2018-7-17 20:32
@@ -631,7 +631,7 @@ RirakkumaKaito@RirakkumaKaito
 专楼外的蝈蝈贴也还在摇晃<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6051#       发表于 2018-7-17 20:46
@@ -640,7 +640,7 @@ RirakkumaKaito@RirakkumaKaito
 反攻倒算ing
 
 
------
+*****
 
 ####  EN5  
 ##### 6052#       发表于 2018-7-17 21:28
@@ -649,7 +649,7 @@ RirakkumaKaito@RirakkumaKaito
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">距离分锅会还有3天
 
 
------
+*****
 
 ####  xyau  
 ##### 6053#       发表于 2018-7-17 21:40
@@ -663,7 +663,7 @@ RirakkumaKaito@RirakkumaKaito
 = 男A: [9α](https://www.bilibili.com/moe/2018/jp/roles/1454) [八](https://www.bilibili.com/moe/2018/jp/roles/1452)
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6054#       发表于 2018-7-17 21:40
@@ -685,7 +685,7 @@ RirakkumaKaito@RirakkumaKaito
 <img src="https://img.saraba1st.com/forum/201807/17/214004mh6dwged42keehof.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6055#       发表于 2018-7-18 00:17
@@ -694,7 +694,7 @@ RirakkumaKaito@RirakkumaKaito
 大家来给韭黄投一票
 
 
------
+*****
 
 ####  ud_terry  
 ##### 6056#       发表于 2018-7-18 01:19
@@ -703,7 +703,7 @@ RirakkumaKaito@RirakkumaKaito
 什么，还有后续？
 
 
------
+*****
 
 ####  EN5  
 ##### 6057#       发表于 2018-7-18 08:05
@@ -714,7 +714,7 @@ RirakkumaKaito@RirakkumaKaito
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这周的蝈蝈漫画大概可以定命了
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6058#       发表于 2018-7-18 09:26
@@ -726,7 +726,7 @@ RirakkumaKaito@RirakkumaKaito
 定命的漫画永远在下一回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新年才醒  
 ##### 6059#       发表于 2018-7-18 10:03
@@ -741,7 +741,7 @@ RirakkumaKaito@RirakkumaKaito
 只要广不摇摆   02注定会被广攻略变成傻白甜    国15以后什么狗屁大家都懂
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6060#       发表于 2018-7-18 10:28
@@ -756,7 +756,7 @@ RirakkumaKaito@RirakkumaKaito
 儿子呢
 
 
------
+*****
 
 ####  xingenge  
 ##### 6061#       发表于 2018-7-18 11:37
@@ -796,7 +796,7 @@ TVアニメ『ダーリン・イン・ザ・フランキス』からヒロとゼ
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftdv146kcaj20go0m8go6.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hagiwara  
 ##### 6062#       发表于 2018-7-18 11:49
@@ -805,7 +805,7 @@ TVアニメ『ダーリン・イン・ザ・フランキス』からヒロとゼ
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完结局都没有买鹤望兰的欲望了
 
 
------
+*****
 
 ####  xingenge  
 ##### 6063#       发表于 2018-7-18 12:37
@@ -822,7 +822,7 @@ TVアニメ『ダーリン・イン・ザ・フランキス』からヒロとゼ
 <img src="http://wx2.sinaimg.cn/large/bcfcde0agy1ftdwpf0bgej217c1kw7cb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6064#       发表于 2018-7-18 12:37
@@ -834,7 +834,7 @@ TVアニメ『ダーリン・イン・ザ・フランキス』からヒロとゼ
 在背后，露出一只手和两条腿<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6065#       发表于 2018-7-18 12:38
@@ -852,7 +852,7 @@ CONTINUE Preview
 <img src="https://wx2.sinaimg.cn/mw1024/bcfcde0agy1ftdwpf0bgej217c1kw7cb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EN5  
 ##### 6066#       发表于 2018-7-18 12:40
@@ -864,7 +864,7 @@ CONTINUE Preview</blockquote>
 很美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6067#       发表于 2018-7-18 13:09
@@ -873,7 +873,7 @@ CONTINUE Preview</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6068#       发表于 2018-7-18 13:23
@@ -884,7 +884,7 @@ CONTINUE Preview</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  pissca  
 ##### 6069#       发表于 2018-7-18 14:26
@@ -899,7 +899,7 @@ CONTINUE Preview</blockquote>
 杂志，做了个特辑
 
 
------
+*****
 
 ####  magicz2  
 ##### 6070#       发表于 2018-7-18 14:46
@@ -908,7 +908,7 @@ CONTINUE Preview</blockquote>
 我要人的手办，寿屋的那个02脸部太抽象。
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6071#       发表于 2018-7-18 16:18
@@ -922,7 +922,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 买！！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EN5  
 ##### 6072#       发表于 2018-7-18 16:20
@@ -931,7 +931,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 不要停下来啊（指买买买）
 
 
------
+*****
 
 ####  626704053  
 ##### 6073#       发表于 2018-7-18 16:46
@@ -943,7 +943,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  asuka02  
 ##### 6074#       发表于 2018-7-18 16:53
@@ -954,7 +954,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  pissca  
 ##### 6075#       发表于 2018-7-18 17:00
@@ -969,7 +969,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 日亚有实体和kindle电子版，1080日元，不过老哥还是等网上扫图吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6076#       发表于 2018-7-18 18:52
@@ -981,7 +981,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6077#       发表于 2018-7-18 22:03
@@ -993,7 +993,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 9α和前面那一位差了640票 可惜啊
 
 
------
+*****
 
 ####  magicz2  
 ##### 6078#       发表于 2018-7-18 22:20
@@ -1002,7 +1002,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 这组都是咸鱼
 
 
------
+*****
 
 ####  elflie  
 ##### 6079#       发表于 2018-7-19 00:40
@@ -1011,7 +1011,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 拼装鹤望兰还行，至少便宜不是吗
 
 
------
+*****
 
 ####  Meteors  
 ##### 6080#       发表于 2018-7-19 01:24
@@ -1022,7 +1022,7 @@ http://www.goodsmile.info/ja/product/7444/MODEROID+%E3%82%B9%E3%83%88%E3%8 ...</
 编辑
 
 
------
+*****
 
 ####  xyau  
 ##### 6081#       发表于 2018-7-19 03:21
@@ -1037,7 +1037,7 @@ APE的情操调整似乎可以阻断此死亡链的传递，参见78。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6082#       发表于 2018-7-19 03:23
@@ -1051,7 +1051,7 @@ APE的情操调整似乎可以阻断此死亡链的传递，参见78。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6083#       发表于 2018-7-19 11:15
@@ -1070,7 +1070,7 @@ APE的情操调整似乎可以阻断此死亡链的传递，参见78。
 顺便13队最后结局时应该也死光了，所以可以修正为最强的非寿终正寝死旗。
 
 
------
+*****
 
 ####  02016  
 ##### 6084#       发表于 2018-7-19 12:49
@@ -1101,7 +1101,7 @@ B5/28P/黑白內頁 NT.150
 <img src="http://wx1.sinaimg.cn/large/0060lm7Tly1ftf2mmknocj30nn0xck2i.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6085#       发表于 2018-7-19 13:36
@@ -1113,7 +1113,7 @@ B5/28P/黑白內頁 NT.150
 本子也没法帮砖楼摇起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6086#       发表于 2018-7-19 13:38
@@ -1125,7 +1125,7 @@ B5/28P/黑白內頁 NT.150
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6087#       发表于 2018-7-19 15:54
@@ -1146,7 +1146,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 另外我提到了情操调整对78的作用，VIRM本身就是调整的方向和目标，自当免疫。
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6088#       发表于 2018-7-19 16:00
@@ -1160,7 +1160,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 好像很有道理的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EN5  
 ##### 6089#       发表于 2018-7-19 16:35
@@ -1169,7 +1169,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">明天就是分锅会了
 
 
------
+*****
 
 ####  xyau  
 ##### 6090#       发表于 2018-7-19 17:18
@@ -1246,7 +1246,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 皆さまからのご応募お待ちしています。
 
 
------
+*****
 
 ####  xyau  
 ##### 6091#       发表于 2018-7-19 17:27
@@ -1262,7 +1262,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 原来锦织没有会社所属
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6092#       发表于 2018-7-19 17:31
@@ -1277,7 +1277,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 记得多带点鸡蛋白菜西红柿什么的送给JZDS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EN5  
 ##### 6093#       发表于 2018-7-19 17:51
@@ -1286,7 +1286,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现场埋伏刀斧手砍死锦织
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 6094#       发表于 2018-7-19 17:58
@@ -1295,7 +1295,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 鹤卷和哉也去？会聊一聊蝈蝈吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6095#       发表于 2018-7-19 18:02
@@ -1316,7 +1316,7 @@ virm到底怎么存在的还是不明，比如最后出现很多四芒星是一�
 P号68713265
 
 
------
+*****
 
 ####  Kokichi  
 ##### 6096#       发表于 2018-7-19 18:11
@@ -1325,7 +1325,7 @@ P号68713265
 鹤卷当场处刑锦织
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6097#       发表于 2018-7-19 18:14
@@ -1338,7 +1338,7 @@ P号68713265</blockquote>
 有点像把国15那张加进0216的
 
 
------
+*****
 
 ####  skives  
 ##### 6098#       发表于 2018-7-19 18:21
@@ -1347,7 +1347,7 @@ P号68713265</blockquote>
 鹤卷现场清理门户
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 6099#       发表于 2018-7-19 18:42
@@ -1356,7 +1356,7 @@ P号68713265</blockquote>
 当时还觉得锦织去和Khara合作一下，拍新世纪impacts肯定很好，现在感觉人设都不敢给他做了。。。。。
 
 
------
+*****
 
 ####  集合酱  
 ##### 6100#       发表于 2018-7-19 19:55
@@ -1365,7 +1365,7 @@ P号68713265</blockquote>
 请问设定基础了么
 
 
------
+*****
 
 ####  magicz2  
 ##### 6101#       发表于 2018-7-19 20:38
@@ -1374,7 +1374,7 @@ P号68713265</blockquote>
 就由鹤卷介错。。。。
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6102#       发表于 2018-7-19 21:51
@@ -1383,7 +1383,7 @@ P号68713265</blockquote>
 兄弟会来人啊 有任务<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6103#       发表于 2018-7-19 21:57
@@ -1395,7 +1395,7 @@ P号68713265</blockquote>
 BD1、3分别附了一本设定册子吧
 
 
------
+*****
 
 ####  02016  
 ##### 6104#       发表于 2018-7-19 22:08
@@ -1404,7 +1404,7 @@ BD1、3分别附了一本设定册子吧
 轻松一下，这个视频有趣【TV2】中二吹吹吹：为什么国家队继承了业界悠久的传统美德
 
 
------
+*****
 
 ####  02016  
 ##### 6105#       发表于 2018-7-19 22:16
@@ -1416,7 +1416,7 @@ BD1、3分别附了一本设定册子吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6106#       发表于 2018-7-19 23:07
@@ -1425,7 +1425,7 @@ BD1、3分别附了一本设定册子吧
 明天分锅大会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6107#       发表于 2018-7-19 23:31
@@ -1440,7 +1440,7 @@ BD1、3分别附了一本设定册子吧
 锦织敦史不是A1的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，层主你在日本吗
 
 
------
+*****
 
 ####  xyau  
 ##### 6108#       发表于 2018-7-19 23:39
@@ -1449,7 +1449,7 @@ BD1、3分别附了一本设定册子吧
 BD4下个礼拜了
 
 
------
+*****
 
 ####  xyau  
 ##### 6109#       发表于 2018-7-19 23:40
@@ -1464,7 +1464,7 @@ BD4下个礼拜了
 不在日本，但记得楼里有人在<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6110#       发表于 2018-7-20 00:50
@@ -1473,7 +1473,7 @@ BD4下个礼拜了
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6111#       发表于 2018-7-20 01:44
@@ -1483,7 +1483,7 @@ BD4下个礼拜了
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  Meteors  
 ##### 6112#       发表于 2018-7-20 01:45
@@ -1494,7 +1494,7 @@ BD4下个礼拜了
 编辑
 
 
------
+*****
 
 ####  Meteors  
 ##### 6113#       发表于 2018-7-20 02:01
@@ -1505,7 +1505,7 @@ BD4下个礼拜了
 编辑
 
 
------
+*****
 
 ####  magicz2  
 ##### 6114#       发表于 2018-7-20 02:07
@@ -1527,7 +1527,7 @@ BD4下个礼拜了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6115#       发表于 2018-7-20 02:16
@@ -1538,7 +1538,7 @@ BD4下个礼拜了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Meteors  
 ##### 6116#       发表于 2018-7-20 03:38
@@ -1549,7 +1549,7 @@ BD4下个礼拜了
 编辑
 
 
------
+*****
 
 ####  杜庶仁  
 ##### 6117#       发表于 2018-7-20 03:57
@@ -1560,7 +1560,7 @@ BD4下个礼拜了
 这个本子真是太有趣了
 
 
------
+*****
 
 ####  magicz2  
 ##### 6118#       发表于 2018-7-20 05:17
@@ -1574,7 +1574,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6119#       发表于 2018-7-20 07:26
@@ -1584,7 +1584,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6120#       发表于 2018-7-20 08:12
@@ -1595,7 +1595,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 6121#       发表于 2018-7-20 09:27
@@ -1604,7 +1604,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 嗯哼～审判日快到了吗？
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6122#       发表于 2018-7-20 10:10
@@ -1615,7 +1615,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 还在坚持不懈的摇楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6123#       发表于 2018-7-20 10:26
@@ -1627,7 +1627,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 要不到216誓不罢休<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6124#       发表于 2018-7-20 12:07
@@ -1636,7 +1636,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 今天有料吗？
 
 
------
+*****
 
 ####  EN5  
 ##### 6125#       发表于 2018-7-20 12:27
@@ -1645,7 +1645,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">貌似明天才有料
 
 
------
+*****
 
 ####  02016  
 ##### 6126#       发表于 2018-7-20 13:28
@@ -1659,7 +1659,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我前几天不是发了一个刚发售的纯爱本实物照片，是想表达一个又看到一个本子的预告，才意识到那个回复确实有语病
 
 
------
+*****
 
 ####  02016  
 ##### 6127#       发表于 2018-7-20 13:29
@@ -1679,7 +1679,7 @@ CloverWorks@CloverWorks
 <img src="http://ww1.sinaimg.cn/large/006CqqeKgy1ftg9jbititj318g0xc44a.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6128#       发表于 2018-7-20 13:30
@@ -1693,7 +1693,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6129#       发表于 2018-7-20 13:34
@@ -1703,7 +1703,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 讲道理 这本子看完我感觉十分不适<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 6130#       发表于 2018-7-20 13:36
@@ -1714,7 +1714,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 6131#       发表于 2018-7-20 13:48
@@ -1726,7 +1726,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 那个人间失格吗，真实强大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6132#       发表于 2018-7-20 14:29
@@ -1738,7 +1738,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 第一个H场景我就崩殂了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6133#       发表于 2018-7-20 14:36
@@ -1749,7 +1749,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 应该就是～
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6134#       发表于 2018-7-20 14:36
@@ -1758,7 +1758,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 被你们说的...不敢看
 
 
------
+*****
 
 ####  02016  
 ##### 6135#       发表于 2018-7-20 14:41
@@ -1770,7 +1770,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">接受了之后看里面台词还挺好玩的
 
 
------
+*****
 
 ####  02016  
 ##### 6136#       发表于 2018-7-20 14:51
@@ -1786,7 +1786,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="http://ww1.sinaimg.cn/large/006CqqeKgy1ftgbwxqgsxj30cf0ewn06.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6137#       发表于 2018-7-20 14:52
@@ -1800,7 +1800,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=69764260
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6138#       发表于 2018-7-20 18:04
@@ -1820,7 +1820,7 @@ b萌明天3人出战
 = 男B: [太](https://www.bilibili.com/moe/2018/jp/roles/1449)
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6139#       发表于 2018-7-20 18:06
@@ -1834,7 +1834,7 @@ b萌明天3人出战
 莓怎么知道大小的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6140#       发表于 2018-7-20 18:19
@@ -1848,7 +1848,7 @@ b萌明天3人出战
 我竟然觉得漫画比锦织拍的有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我没救了
 
 
------
+*****
 
 ####  02016  
 ##### 6141#       发表于 2018-7-20 19:07
@@ -1865,7 +1865,7 @@ b萌明天3人出战
 <img src="http://ww1.sinaimg.cn/large/006CqqeKgy1ftgj8xfz6zj30kb0sgdm4.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6142#       发表于 2018-7-20 19:08
@@ -1877,7 +1877,7 @@ b萌明天3人出战
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这篇确实很有趣，作者很有才
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6143#       发表于 2018-7-20 20:40
@@ -1892,7 +1892,7 @@ b萌明天3人出战
 与其这样，还不如让它寿终正寝算了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6144#       发表于 2018-7-20 21:42
@@ -1902,7 +1902,7 @@ b萌明天3人出战
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  magicz2  
 ##### 6145#       发表于 2018-7-20 22:15
@@ -1916,7 +1916,7 @@ b萌明天3人出战
 等分锅会呢
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6146#       发表于 2018-7-20 22:16
@@ -1925,7 +1925,7 @@ b萌明天3人出战
 已购买，还剩45分钟解锁
 
 
------
+*****
 
 ####  EN5  
 ##### 6147#       发表于 2018-7-20 23:26
@@ -1934,7 +1934,7 @@ b萌明天3人出战
 死刑不可避
 
 
------
+*****
 
 ####  winoros  
 ##### 6148#       发表于 2018-7-20 23:52
@@ -1943,7 +1943,7 @@ b萌明天3人出战
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这访谈
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6149#       发表于 2018-7-20 23:57
@@ -1963,7 +1963,7 @@ b萌明天3人出战
 lofter上有存档，不过贴吧没抽的话贴吧人多点。
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6150#       发表于 2018-7-21 00:02
@@ -1972,7 +1972,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 这访谈 真是没救了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6151#       发表于 2018-7-21 00:06
@@ -1983,7 +1983,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6152#       发表于 2018-7-21 00:10
@@ -1998,7 +1998,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 病友裙有访谈翻译 已经炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pissca  
 ##### 6153#       发表于 2018-7-21 00:12
@@ -2010,7 +2010,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 6154#       发表于 2018-7-21 00:12
@@ -2019,7 +2019,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 有人转一份翻译吗？我现在除了分锅访谈，其他什么都不想看.jpg
 
 
------
+*****
 
 ####  Meteors  
 ##### 6155#       发表于 2018-7-21 00:15
@@ -2030,7 +2030,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  winoros  
 ##### 6156#       发表于 2018-7-21 00:18
@@ -2042,7 +2042,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 很零散 要人整理，我要去bml所以周末没法整理。。不知道有群友整理没<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EN5  
 ##### 6157#       发表于 2018-7-21 00:21
@@ -2051,7 +2051,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 简单的总结一下就是锦织敦史几把毛都不懂就开始自嗨然后自我感觉还十分良好。然后两个脑子和三观都有问题的弱智一起把一桌好菜炖出一锅屎来笑嘻嘻的分给观众吃<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6158#       发表于 2018-7-21 00:26
@@ -2061,7 +2061,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 <img src="https://i.imgur.com/HSCezVe.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  timepro  
 ##### 6159#       发表于 2018-7-21 00:28
@@ -2072,7 +2072,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6160#       发表于 2018-7-21 00:35
@@ -2081,7 +2081,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 病人们都疯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 6161#       发表于 2018-7-21 00:37
@@ -2090,7 +2090,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 感谢国家队给了我不少笑料。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6162#       发表于 2018-7-21 00:37
@@ -2099,7 +2099,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 矢吹老师哭了，我也哭了，你们呢？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winoros  
 ##### 6163#       发表于 2018-7-21 00:39
@@ -2120,7 +2120,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 鸟羽：最锦织的应该就是16 17 18话了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iamthegodthego  
 ##### 6164#       发表于 2018-7-21 00:41
@@ -2129,7 +2129,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">说得我更想看了，到底怎样才能大言不惭地这样说出口啊
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6165#       发表于 2018-7-21 00:43
@@ -2138,7 +2138,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 锦织你和你的staff们是真的牛逼！
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6166#       发表于 2018-7-21 00:45
@@ -2154,7 +2154,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 2018-7-21 00:45 上传
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6167#       发表于 2018-7-21 01:20
@@ -2398,7 +2398,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 查看全部评分
 
 
------
+*****
 
 ####  EN5  
 ##### 6168#       发表于 2018-7-21 01:22
@@ -2413,7 +2413,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 呼 伦 贝 尔 大 草 原
 
 
------
+*****
 
 ####  9α  
 ##### 6169#       发表于 2018-7-21 01:23
@@ -2422,7 +2422,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的很欢乐呢~
 
 
------
+*****
 
 ####  magicz2  
 ##### 6170#       发表于 2018-7-21 01:23
@@ -2437,7 +2437,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6171#       发表于 2018-7-21 01:33
@@ -2448,7 +2448,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  ゼロツー  
 ##### 6172#       发表于 2018-7-21 01:40
@@ -2485,7 +2485,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 查看全部评分
 
 
------
+*****
 
 ####  9α  
 ##### 6173#       发表于 2018-7-21 01:42
@@ -2503,7 +2503,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 <img src="https://i.loli.net/2018/07/21/5b521f0843e40.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  chaos7  
 ##### 6174#       发表于 2018-7-21 01:48
@@ -2512,7 +2512,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 喷了,前15集跟后9集完全割裂的剧情原來不是边做边瞎写,而是一开始就有大纲伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 6175#       发表于 2018-7-21 01:55
@@ -2524,7 +2524,7 @@ lofter上有存档，不过贴吧没抽的话贴吧人多点。
 emmmm草莓除外。。。
 
 
------
+*****
 
 ####  Ventose  
 ##### 6176#       发表于 2018-7-21 02:09
@@ -2533,7 +2533,7 @@ emmmm草莓除外。。。
 實錘心滿才是親生。其他人？不認識的孩子呢
 
 
------
+*****
 
 ####  xyau  
 ##### 6177#       发表于 2018-7-21 04:15
@@ -2559,7 +2559,7 @@ emmmm草莓除外。。。
 鸟羽：没错。 因此，故事中的字幕(telop)不是横书而是纵书。可以巧妙而可靠地使用独白等情感表达技术与感觉（sense）的人并不多。 我认为这是锦织先生的优势之一。
 
 
------
+*****
 
 ####  xyau  
 ##### 6178#       发表于 2018-7-21 04:41
@@ -2577,7 +2577,7 @@ emmmm草莓除外。。。
 = 男B: 太(3780◢74)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 6179#       发表于 2018-7-21 04:46
@@ -2596,7 +2596,7 @@ emmmm草莓除外。。。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  syqs  
 ##### 6180#       发表于 2018-7-21 06:44
@@ -2605,7 +2605,7 @@ emmmm草莓除外。。。
 他们居然自我感觉良好！！！
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 6181#       发表于 2018-7-21 07:12
@@ -2614,7 +2614,7 @@ emmmm草莓除外。。。
 没准林直孝满脸堆笑、夸完锦织哥哥的大纲，然后跑到洗手间，一阵干呕……<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6182#       发表于 2018-7-21 08:18
@@ -2666,7 +2666,7 @@ emmmm草莓除外。。。
 出典　三省堂大辞林 第三版について
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6183#       发表于 2018-7-21 08:46
@@ -2675,7 +2675,7 @@ emmmm草莓除外。。。
 我真心希望看见了暴死的bd销量staff们的脸上还能露出自信的笑容。
 
 
------
+*****
 
 ####  love4aids  
 ##### 6184#       发表于 2018-7-21 09:23
@@ -2684,7 +2684,7 @@ emmmm草莓除外。。。
 总结，以后看到原创-1，机甲-1，群像-1就行了。国家队这种直接-3开头的，观看的时候抱着+2的期待就不对
 
 
------
+*****
 
 ####  9α  
 ##### 6185#       发表于 2018-7-21 09:38
@@ -2707,7 +2707,7 @@ emmmm草莓除外。。。
 鸟羽说出了一堆真相，笑死了
 
 
------
+*****
 
 ####  xyau  
 ##### 6186#       发表于 2018-7-21 09:41
@@ -2736,7 +2736,7 @@ emmmm草莓除外。。。
 林：我想这毕竟是一个表现青春期的结构。相对于那个时代孩子们所感受到的来自世界的不合理性，要说如何将其克服的话，我认为是宣泄（catharsis）；所以我使用了这个表现结构的把握方法。
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6187#       发表于 2018-7-21 09:46
@@ -2748,7 +2748,7 @@ emmmm草莓除外。。。
 再加上个什么三五年尽心策划之类的，赶紧跑<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6188#       发表于 2018-7-21 10:58
@@ -2771,7 +2771,7 @@ emmmm草莓除外。。。
 林：那些孩子在妥协也不行的地方绝望生存。因为世界观所以对此进行了强调。必须直面生存。当然，也有所谓恋爱元素，但它并不甜，恋爱也要冒着生命危险去拼死生存。想要重视那种看起来勇敢的事情，我想锦织也是这么考虑的。
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6189#       发表于 2018-7-21 11:13
@@ -2783,7 +2783,7 @@ emmmm草莓除外。。。
 可以来被迫害后的病患群继续一起喷访谈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">号码是：821529249
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6190#       发表于 2018-7-21 12:12
@@ -2796,7 +2796,7 @@ emmmm草莓除外。。。
 好哒！现在才上泥潭看到，马上拜读<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6191#       发表于 2018-7-21 12:24
@@ -2805,7 +2805,7 @@ emmmm草莓除外。。。
 笑死了，主轴是孩子们，13部队没有一个人死了，0216大概真的只是剧情催化剂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MiaoJi  
 ##### 6192#       发表于 2018-7-21 12:26
@@ -2816,7 +2816,7 @@ emmmm草莓除外。。。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 6193#       发表于 2018-7-21 12:31
@@ -2830,7 +2830,7 @@ emmmm草莓除外。。。
 既然16选择了iota，那就跟9队宿命一样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 6194#       发表于 2018-7-21 12:34
@@ -2847,7 +2847,7 @@ emmmm草莓除外。。。
 哼嗯～就算你们人类给我看美食也没任何意义呢。
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6195#       发表于 2018-7-21 12:39
@@ -2860,7 +2860,7 @@ emmmm草莓除外。。。
 来个群号<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zxc786  
 ##### 6196#       发表于 2018-7-21 12:40
@@ -2869,7 +2869,7 @@ emmmm草莓除外。。。
 鸟羽：本作的大纲都不是横书，是纵书的，凸显出锦织的文学性<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6197#       发表于 2018-7-21 12:40
@@ -2882,7 +2882,7 @@ emmmm草莓除外。。。
 https://www.bilibili.com/moe/2018/jp/home
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6198#       发表于 2018-7-21 12:40
@@ -2894,7 +2894,7 @@ https://www.bilibili.com/moe/2018/jp/home
 我上面不就发了么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6199#       发表于 2018-7-21 12:42
@@ -2911,7 +2911,7 @@ https://www.bilibili.com/moe/2018/jp/home
 The term "telop" is used in Japan to indicate text superimposed on a screen, such as captions, subtitles, or scrolling tickers. The name is derived from "Television Opaque Projector. "A telop was a television opaque projecting device used to broadcast images directly without the use of a camera.
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6200#       发表于 2018-7-21 12:47
@@ -2922,7 +2922,7 @@ The term "telop" is used in Japan to indicate text superimposed on a screen, suc
 你们都在啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ud_terry  
 ##### 6201#       发表于 2018-7-21 12:54
@@ -2931,7 +2931,7 @@ The term "telop" is used in Japan to indicate text superimposed on a screen, suc
 如果有机会的话还会再找锦织做动画，这是对jzgg最后的温柔
 
 
------
+*****
 
 ####  Meteors  
 ##### 6202#       发表于 2018-7-21 12:57
@@ -2942,7 +2942,7 @@ The term "telop" is used in Japan to indicate text superimposed on a screen, suc
 编辑
 
 
------
+*****
 
 ####  626704053  
 ##### 6203#       发表于 2018-7-21 13:09
@@ -2953,7 +2953,7 @@ The term "telop" is used in Japan to indicate text superimposed on a screen, suc
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6204#       发表于 2018-7-21 13:25
@@ -2968,7 +2968,7 @@ Telop
 我把テロップ看成プロット了……
 
 
------
+*****
 
 ####  626704053  
 ##### 6205#       发表于 2018-7-21 13:56
@@ -2979,7 +2979,7 @@ Telop
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6206#       发表于 2018-7-21 14:15
@@ -2993,7 +2993,7 @@ Telop
 挂代理
 
 
------
+*****
 
 ####  xyau  
 ##### 6207#       发表于 2018-7-21 14:27
@@ -3047,7 +3047,7 @@ Life is beautiful.
 天知道我为什么不睡觉对着谷歌翻译看特集……所以选择逃避是指哪位？#16-18的16？
 
 
------
+*****
 
 ####  626704053  
 ##### 6208#       发表于 2018-7-21 14:50
@@ -3059,7 +3059,7 @@ xjb翻所以选择逃避是指哪位？#16-18的16？</blockquote>电子版有�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xyau  
 ##### 6209#       发表于 2018-7-21 14:59
@@ -3074,7 +3074,7 @@ xjb翻所以选择逃避是指哪位？#16-18的16？</blockquote>电子版有�
 群里有人买了
 
 
------
+*****
 
 ####  iamthegodthego  
 ##### 6210#       发表于 2018-7-21 15:00
@@ -3093,7 +3093,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 父母对待自家孩子也又喜欢不喜欢。214这种就是巴不得直接掐死的那种，心满则是心头肉，有什么好处都给他们。
 
 
------
+*****
 
 ####  timepro  
 ##### 6211#       发表于 2018-7-21 16:45
@@ -3105,7 +3105,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6212#       发表于 2018-7-21 16:45
@@ -3114,7 +3114,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 反省一白天 不再自闭了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 6213#       发表于 2018-7-21 17:01
@@ -3125,7 +3125,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 多谢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6214#       发表于 2018-7-21 17:05
@@ -3136,7 +3136,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hl8243  
 ##### 6215#       发表于 2018-7-21 18:11
@@ -3147,7 +3147,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 斯巴达克斯比  B叔  垃圾君  广主席还要高？？？？
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6216#       发表于 2018-7-21 18:25
@@ -3159,7 +3159,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 万一想不起来就注册个新号呗~扣扣群仅仅是专楼的延续<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">在锦织的无限迫害中延续下去……
 
 
------
+*****
 
 ####  书法局  
 ##### 6217#       发表于 2018-7-21 18:25
@@ -3173,7 +3173,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 月厨的报复性投票，去年不就说今年要把斯巴达克斯捧到萌王嘛
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6218#       发表于 2018-7-21 18:58
@@ -3182,7 +3182,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 又自闭了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6219#       发表于 2018-7-21 19:09
@@ -3216,7 +3216,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 另外鹤卷以伪名参与了蝈蝈ED1的分镜和原画
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6220#       发表于 2018-7-21 19:15
@@ -3237,7 +3237,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 2018-7-21 19:15 上传
 
 
------
+*****
 
 ####  Meteors  
 ##### 6221#       发表于 2018-7-21 19:34
@@ -3248,7 +3248,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 编辑
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6222#       发表于 2018-7-21 19:48
@@ -3262,7 +3262,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 生殖战士还真会顺坡下驴，还“就是要像eva”，明明是胸无点墨满脑子草包竟敢说这么理直气壮，这脸皮倒是让人叹为观止。
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6223#       发表于 2018-7-21 20:46
@@ -3273,7 +3273,7 @@ coser出片也经常干这种事情的：给照片加上一些意义不明的文
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  pissca  
 ##### 6224#       发表于 2018-7-21 21:08
@@ -3286,7 +3286,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6225#       发表于 2018-7-21 21:56
@@ -3299,7 +3299,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 赞
 
 
------
+*****
 
 ####  magicz2  
 ##### 6226#       发表于 2018-7-21 22:35
@@ -3313,7 +3313,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 高效<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6227#       发表于 2018-7-21 23:07
@@ -3329,7 +3329,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 = 女B: 叫龙公主
 
 
------
+*****
 
 ####  Meteors  
 ##### 6228#       发表于 2018-7-21 23:26
@@ -3355,7 +3355,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 查看全部评分
 
 
------
+*****
 
 ####  MiaoJi  
 ##### 6229#       发表于 2018-7-21 23:28
@@ -3366,7 +3366,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6230#       发表于 2018-7-21 23:38
@@ -3380,7 +3380,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 真是太美了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6231#       发表于 2018-7-22 00:54
@@ -3391,7 +3391,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fthyy2ro1zj21500u0h6r.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6232#       发表于 2018-7-22 01:00
@@ -3403,7 +3403,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 湿吹老湿又鸽，看来是要跳车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6233#       发表于 2018-7-22 01:06
@@ -3413,7 +3413,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 6234#       发表于 2018-7-22 01:25
@@ -3422,7 +3422,7 @@ https://www.youtube.com/watch?v=AQDBfmum23o&amp;t  【フルスクラッチ】
 ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到。看了下分镜也只有一个人，叫田()理科，查不到，也就是说鹤卷画的ED1分镜？
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6235#       发表于 2018-7-22 01:35
@@ -3435,7 +3435,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 田邊理科=<strong>鶴巻和哉</strong>
 
 
------
+*****
 
 ####  magicz2  
 ##### 6236#       发表于 2018-7-22 04:40
@@ -3444,7 +3444,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 然而只做了个ED分镜
 
 
------
+*****
 
 ####  xyau  
 ##### 6237#       发表于 2018-7-22 07:11
@@ -3499,7 +3499,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 今日のイベントでダリフラED(2~5話)のコンテ田邊理科氏の正体は鶴巻和哉氏だったことが明かされたwさすがに笑ったわ…
 
 
------
+*****
 
 ####  xyau  
 ##### 6238#       发表于 2018-7-22 07:16
@@ -3515,7 +3515,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 = 女B: 叫龙公主(6697◢332)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 6239#       发表于 2018-7-22 08:20
@@ -3526,7 +3526,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 但是至少郁直这一对没妊娠啊
 
 
------
+*****
 
 ####  magicz2  
 ##### 6240#       发表于 2018-7-22 09:20
@@ -3535,7 +3535,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 其实主角团就两人怀孕了，但无奈jzdd描写的太用力了。
 
 
------
+*****
 
 ####  soulife7  
 ##### 6241#       发表于 2018-7-22 09:21
@@ -3549,7 +3549,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6242#       发表于 2018-7-22 11:17
@@ -3560,7 +3560,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 <img src="https://i.loli.net/2018/07/22/5b53ff28e9542.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6243#       发表于 2018-7-22 11:27
@@ -3570,7 +3570,7 @@ ED1 不是米山舞一人原画吗？第二原画几个人好像都能查的到�
 JZDS还我女骗子傻妞村姑<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6244#       发表于 2018-7-22 13:31
@@ -3579,7 +3579,7 @@ JZDS还我女骗子傻妞村姑<img src="https://static.saraba1st.com/image/smil
 人类的本质是
 
 
------
+*****
 
 ####  お菓子食べたい  
 ##### 6245#       发表于 2018-7-22 13:54
@@ -3596,7 +3596,7 @@ P号69726468</blockquote>
 还有郁满党坚持 厉害啊不容易
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 6246#       发表于 2018-7-22 14:29
@@ -3606,7 +3606,7 @@ P号69726468</blockquote>
 那个时候的02真棒啊……<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  626704053  
 ##### 6247#       发表于 2018-7-22 17:09
@@ -3617,7 +3617,7 @@ P号69726468</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xyau  
 ##### 6248#       发表于 2018-7-22 18:16
@@ -3638,7 +3638,7 @@ P号69726468</blockquote>
 = 女B: [9'δ](https://www.bilibili.com/moe/2018/jp/roles/4544)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 6249#       发表于 2018-7-22 18:52
@@ -3649,7 +3649,7 @@ P号69726468</blockquote>
 话说扣扣群是啥，国家队资深病人交流群吗？
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6250#       发表于 2018-7-22 19:05
@@ -3666,7 +3666,7 @@ P号69726468</blockquote>
 小草莓要是把头像换成莓良心那张应该会有更多人投下会心一票吧。
 
 
------
+*****
 
 ####  xyau  
 ##### 6251#       发表于 2018-7-22 19:08
@@ -3684,7 +3684,7 @@ P号69726468</blockquote>
 最近还增加了刷表情包新玩法
 
 
------
+*****
 
 ####  xyau  
 ##### 6252#       发表于 2018-7-22 19:09
@@ -3699,7 +3699,7 @@ P号69726468</blockquote>
 好像可以写邮件给运营换头像的……本战再说吧
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 6253#       发表于 2018-7-22 19:30
@@ -3708,7 +3708,7 @@ P号69726468</blockquote>
 01能出线我只能说那组是开赛以来最杂的组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，已经超越了隔壁的凛的那组
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6254#       发表于 2018-7-22 20:19
@@ -3717,7 +3717,7 @@ P号69726468</blockquote>
 萌战是不会带来笑容的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6255#       发表于 2018-7-22 22:50
@@ -3726,7 +3726,7 @@ P号69726468</blockquote>
 月萌是不会带来笑容的
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6256#       发表于 2018-7-22 23:21
@@ -3737,7 +3737,7 @@ P号69726468</blockquote>
 幼年156三人组最高
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6257#       发表于 2018-7-22 23:25
@@ -3770,7 +3770,7 @@ P号69726468</blockquote>
 哈哈是这两张的心满款嘛，赞
 
 
------
+*****
 
 ####  02016  
 ##### 6258#       发表于 2018-7-22 23:53
@@ -3786,7 +3786,7 @@ P号69726468</blockquote>
 <img src="http://ww3.sinaimg.cn/large/006CqqeKgy1ftj2rh4s9bj30xc0rs79q.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6259#       发表于 2018-7-22 23:54
@@ -3798,7 +3798,7 @@ P号69726468</blockquote>
 上面那张五莓太形象了
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 6260#       发表于 2018-7-23 00:03
@@ -3807,7 +3807,7 @@ P号69726468</blockquote>
 锦织敦史该死，但莓的票还是要投的
 
 
------
+*****
 
 ####  02016  
 ##### 6261#       发表于 2018-7-23 00:04
@@ -3819,7 +3819,7 @@ P号69726468</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">竟然又没漫画，我还想看第六集完了之后怎么展开后面的，不知道福利回会不会画
 
 
------
+*****
 
 ####  02016  
 ##### 6262#       发表于 2018-7-23 00:06
@@ -3831,7 +3831,7 @@ P号69726468</blockquote>
 可爱
 
 
------
+*****
 
 ####  626704053  
 ##### 6263#       发表于 2018-7-23 00:19
@@ -3842,7 +3842,7 @@ P号69726468</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Meteors  
 ##### 6264#       发表于 2018-7-23 01:00
@@ -3852,7 +3852,7 @@ P号69726468</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  sketchup  
 ##### 6265#       发表于 2018-7-23 02:57
@@ -3867,7 +3867,7 @@ P号69726468</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟是经历了“十死零生”的dd
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6266#       发表于 2018-7-23 03:06
@@ -3882,7 +3882,7 @@ P号69726468</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xyau  
 ##### 6267#       发表于 2018-7-23 04:24
@@ -3891,7 +3891,7 @@ P号69726468</blockquote>
 15这票数，小组第一保不住，更别提种子了……
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6268#       发表于 2018-7-23 07:29
@@ -3903,7 +3903,7 @@ P号69726468</blockquote>
 已投。。。
 
 
------
+*****
 
 ####  Sliark  
 ##### 6269#       发表于 2018-7-23 09:31
@@ -3917,7 +3917,7 @@ P号69726468</blockquote>
 求群号求群号
 
 
------
+*****
 
 ####  Sliark  
 ##### 6270#       发表于 2018-7-23 09:31
@@ -3931,7 +3931,7 @@ P号69726468</blockquote>
 求群号求群号
 
 
------
+*****
 
 ####  magicz2  
 ##### 6271#       发表于 2018-7-23 09:33
@@ -3942,7 +3942,7 @@ P号69726468</blockquote>
 821529249
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6272#       发表于 2018-7-23 10:13
@@ -3954,7 +3954,7 @@ P号69726468</blockquote>
 又在招揽新病友吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 6273#       发表于 2018-7-23 12:03
@@ -3963,7 +3963,7 @@ P号69726468</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为了小草莓又投了票，本来都决定好不再看萌战的
 
 
------
+*****
 
 ####  五更伪境  
 ##### 6274#       发表于 2018-7-23 13:41
@@ -3972,7 +3972,7 @@ P号69726468</blockquote>
 越看西格鲁特越像五郞
 
 
------
+*****
 
 ####  xyau  
 ##### 6275#       发表于 2018-7-23 17:10
@@ -3983,7 +3983,7 @@ BD4倒数2天
 #11对196说用力太猛放松一点的214
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6276#       发表于 2018-7-23 17:20
@@ -4021,7 +4021,7 @@ BD4倒数2天
 虽然我也不知道到底哪里像，发型？眼镜？
 
 
------
+*****
 
 ####  Meteors  
 ##### 6277#       发表于 2018-7-23 17:23
@@ -4031,7 +4031,7 @@ BD4倒数2天
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xyau  
 ##### 6278#       发表于 2018-7-23 18:25
@@ -4047,7 +4047,7 @@ BD4倒数2天
 =女A：[卡丽娜·米尔扎](https://www.bilibili.com/moe/2018/jp/roles/4835)
 
 
------
+*****
 
 ####  xingenge  
 ##### 6279#       发表于 2018-7-23 19:24
@@ -4057,7 +4057,7 @@ OST VOL.2
 [https://www.youtube.com/watch?time_continue=1&amp;v=xUNdzBQU5hI](https://www.youtube.com/watch?time_continue=1&amp;v=xUNdzBQU5hI)
 
 
------
+*****
 
 ####  xingenge  
 ##### 6280#       发表于 2018-7-23 19:29
@@ -4068,7 +4068,7 @@ OST VOL.2
 新浪非常神奇地还没过审……
 
 
------
+*****
 
 ####  xingenge  
 ##### 6281#       发表于 2018-7-23 19:30
@@ -4077,7 +4077,7 @@ OST VOL.2
 喷了，秒拍地址被和谐了……
 
 
------
+*****
 
 ####  Quzs  
 ##### 6282#       发表于 2018-7-23 19:38
@@ -4088,7 +4088,7 @@ OST VOL.2
 —— 来自 Xiaomi MI 5X, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 6283#       发表于 2018-7-23 19:47
@@ -4097,7 +4097,7 @@ OST VOL.2
 惊了，这楼竟然还在首页
 
 
------
+*****
 
 ####  magicz2  
 ##### 6284#       发表于 2018-7-23 22:52
@@ -4111,7 +4111,7 @@ https://www.youtube.com/watch?time_continue=1&amp;v=xUNdzBQU5hI</blockquote>
 橘麻美站起来了
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 6285#       发表于 2018-7-23 23:05
@@ -4120,7 +4120,7 @@ https://www.youtube.com/watch?time_continue=1&amp;v=xUNdzBQU5hI</blockquote>
 什么时候能摸到216啊
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 6286#       发表于 2018-7-23 23:09
@@ -4129,7 +4129,7 @@ https://www.youtube.com/watch?time_continue=1&amp;v=xUNdzBQU5hI</blockquote>
 渣广的坟头草已经涨到2米1了嘛 哈哈
 
 
------
+*****
 
 ####  xyau  
 ##### 6287#       发表于 2018-7-23 23:56
@@ -4145,7 +4145,7 @@ Put your hands up
 有编号同名曲的只有0215……
 
 
------
+*****
 
 ####  SaaB35  
 ##### 6288#       发表于 2018-7-24 00:16
@@ -4157,7 +4157,7 @@ Put your hands up
 战士是哪里看到的访谈资料啊，我只找到一个推特消息
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6289#       发表于 2018-7-24 08:02
@@ -4166,7 +4166,7 @@ Put your hands up
 渣你妹
 
 
------
+*****
 
 ####  ipcjs  
 ##### 6290#       发表于 2018-7-24 09:53
@@ -4177,7 +4177,7 @@ Put your hands up
 — from Google Pixel 2 XL, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0-play
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6291#       发表于 2018-7-24 10:19
@@ -4189,7 +4189,7 @@ Put your hands up
 橘麻麻治好了我的病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6292#       发表于 2018-7-24 13:03
@@ -4200,7 +4200,7 @@ Put your hands up
 治不好的
 
 
------
+*****
 
 ####  Meteors  
 ##### 6293#       发表于 2018-7-24 13:09
@@ -4210,7 +4210,7 @@ Put your hands up
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  9α  
 ##### 6294#       发表于 2018-7-24 13:12
@@ -4221,7 +4221,7 @@ Put your hands up
 真是看不下去了，我留个言推进下进度吧。
 
 
------
+*****
 
 ####  9α  
 ##### 6295#       发表于 2018-7-24 13:16
@@ -4232,7 +4232,7 @@ Put your hands up
 既然来了可以顺便去看看6167楼战士翻译的分锅大会呢～
 
 
------
+*****
 
 ####  626704053  
 ##### 6296#       发表于 2018-7-24 14:18
@@ -4249,7 +4249,7 @@ Put your hands up
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  626704053  
 ##### 6297#       发表于 2018-7-24 14:57
@@ -4260,7 +4260,7 @@ Put your hands up
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  magicz2  
 ##### 6298#       发表于 2018-7-24 14:59
@@ -4274,7 +4274,7 @@ Put your hands up
 没，不过用了也没意义。
 
 
------
+*****
 
 ####  626704053  
 ##### 6299#       发表于 2018-7-24 15:34
@@ -4286,7 +4286,7 @@ Put your hands up
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6300#       发表于 2018-7-24 17:07
@@ -4299,7 +4299,7 @@ Put your hands up
 25集再用
 
 
------
+*****
 
 ####  zz101896  
 ##### 6301#       发表于 2018-7-24 18:12
@@ -4308,7 +4308,7 @@ Put your hands up
 明天02出场了，各位不去投波真爱票吗
 
 
------
+*****
 
 ####  trojans_anime  
 ##### 6302#       发表于 2018-7-24 19:45
@@ -4317,7 +4317,7 @@ Put your hands up
 真爱票不是要留到最后的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 6303#       发表于 2018-7-24 19:50
@@ -4326,7 +4326,7 @@ Put your hands up
 真爱票好像海选阶段有一张，晋级之后还有一张，所以直接投就行
 
 
------
+*****
 
 ####  zz101896  
 ##### 6304#       发表于 2018-7-24 19:54
@@ -4335,7 +4335,7 @@ Put your hands up
 海选排名也是很重要的，能当上种子就不会一轮游了，所以别磨蹭了，全都拿出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  trojans_anime  
 ##### 6305#       发表于 2018-7-24 20:56
@@ -4357,7 +4357,7 @@ Put your hands up
 <img src="https://img.saraba1st.com/forum/201807/24/205652sd9v3v91kgnvz3ki.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6306#       发表于 2018-7-24 20:59
@@ -4373,7 +4373,7 @@ Put your hands up
 = 女A: [02](https://www.bilibili.com/moe/2018/jp/roles/1442) [心](https://www.bilibili.com/moe/2018/jp/roles/1448)
 
 
------
+*****
 
 ####  trojans_anime  
 ##### 6307#       发表于 2018-7-24 21:10
@@ -4384,7 +4384,7 @@ Put your hands up
 不知道心酱出线稳不稳。。。
 
 
------
+*****
 
 ####  soulife7  
 ##### 6308#       发表于 2018-7-24 21:43
@@ -4397,7 +4397,7 @@ Put your hands up
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6309#       发表于 2018-7-24 21:58
@@ -4434,7 +4434,7 @@ tw:大泽@chenaze57
 2018-7-24 21:56 上传
 
 
------
+*****
 
 ####  magicz2  
 ##### 6310#       发表于 2018-7-24 22:32
@@ -4445,7 +4445,7 @@ tw:大泽@chenaze57
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xyau  
 ##### 6311#       发表于 2018-7-24 22:48
@@ -4460,7 +4460,7 @@ tw:大泽@chenaze57</blockquote>
 噗，明明正片里9's才是听话的好孩子那一边嘛，而且全队都变甜食控啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">手动@粉黄党们
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6312#       发表于 2018-7-24 23:24
@@ -4472,7 +4472,7 @@ tw:大泽@chenaze57</blockquote>
 没问题<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6313#       发表于 2018-7-24 23:28
@@ -4482,7 +4482,7 @@ tw:大泽@chenaze57</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xyau  
 ##### 6314#       发表于 2018-7-25 00:48
@@ -4496,7 +4496,7 @@ tw:大泽@chenaze57</blockquote>
 = 女A: 02(9328) 心(2200)
 
 
------
+*****
 
 ####  zz101896  
 ##### 6315#       发表于 2018-7-25 01:04
@@ -4505,7 +4505,7 @@ tw:大泽@chenaze57</blockquote>
 艹，b萌又让我气不打一处来，02塑造好了很有机会进这届b萌前三，锦织NM$L
 
 
------
+*****
 
 ####  zz101896  
 ##### 6316#       发表于 2018-7-25 01:07
@@ -4514,7 +4514,7 @@ tw:大泽@chenaze57</blockquote>
 第5集结尾02的舞姿和13集结尾的绘本依然是美好的回忆，锦织能把这么好的素材炖成一锅屎也是不容易
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6317#       发表于 2018-7-25 01:10
@@ -4525,7 +4525,7 @@ tw:大泽@chenaze57</blockquote>
 我们垃圾系构就是这样子的
 
 
------
+*****
 
 ####  xyau  
 ##### 6318#       发表于 2018-7-25 03:54
@@ -4632,7 +4632,7 @@ tw:大泽@chenaze57</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  magicz2  
 ##### 6319#       发表于 2018-7-25 05:59
@@ -4647,7 +4647,7 @@ tw:大泽@chenaze57</blockquote>
 哎，说多了都是泪。
 
 
------
+*****
 
 ####  云闻先  
 ##### 6320#       发表于 2018-7-25 08:19
@@ -4662,7 +4662,7 @@ tw:大泽@chenaze57</blockquote>
 所以围巾只是鹤卷大爷的爱好吗.
 
 
------
+*****
 
 ####  hl8243  
 ##### 6321#       发表于 2018-7-25 09:19
@@ -4677,7 +4677,7 @@ tw:大泽@chenaze57</blockquote>
 老老实实做校园群像剧多好啊
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 6322#       发表于 2018-7-25 10:22
@@ -4686,7 +4686,7 @@ tw:大泽@chenaze57</blockquote>
 老老实实别做群像多好啊
 
 
------
+*****
 
 ####  xingenge  
 ##### 6323#       发表于 2018-7-25 12:00
@@ -4697,7 +4697,7 @@ tw:大泽@chenaze57</blockquote>
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftlz1xgqxyj20u00xcgr4.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 6324#       发表于 2018-7-25 12:05
@@ -4706,7 +4706,7 @@ tw:大泽@chenaze57</blockquote>
 想想结局,零一一家子真是死了一户口本啊.
 
 
------
+*****
 
 ####  xingenge  
 ##### 6325#       发表于 2018-7-25 12:10
@@ -4719,7 +4719,7 @@ tw:大泽@chenaze57</blockquote>
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftlzc94lnvj20i409041h.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zz101896  
 ##### 6326#       发表于 2018-7-25 13:16
@@ -4728,7 +4728,7 @@ tw:大泽@chenaze57</blockquote>
 这只老鼠就是锦织吧
 
 
------
+*****
 
 ####  xyau  
 ##### 6327#       发表于 2018-7-25 16:01
@@ -4741,7 +4741,7 @@ tw:大泽@chenaze57</blockquote>
 「DARLING in the FRANXX」 皆さまはどのエピソードが心に残りましたでしょうか！ #CLW #ダリフラ<img src="https://i.imgur.com/usGKE78.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6328#       发表于 2018-7-25 16:43
@@ -4750,7 +4750,7 @@ tw:大泽@chenaze57</blockquote>
 24集印象最深了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6329#       发表于 2018-7-25 16:48
@@ -4762,7 +4762,7 @@ tw:大泽@chenaze57</blockquote>
 说起来，那个从“家庭观”联想到的《来自荒野》和你的亲子论挺契合的
 
 
------
+*****
 
 ####  xingenge  
 ##### 6330#       发表于 2018-7-25 17:10
@@ -4775,7 +4775,7 @@ tw:大泽@chenaze57</blockquote>
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftm80jb20gj20xc0la77d.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6331#       发表于 2018-7-25 17:14
@@ -4784,7 +4784,7 @@ tw:大泽@chenaze57</blockquote>
 头一次看到俩坐着的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 6332#       发表于 2018-7-25 17:19
@@ -4796,7 +4796,7 @@ tw:大泽@chenaze57</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  反正我改名  
 ##### 6333#       发表于 2018-7-25 17:19
@@ -4805,7 +4805,7 @@ tw:大泽@chenaze57</blockquote>
 绝了我的锦织，带神回的BD封面是214 196，迫真群像剧
 
 
------
+*****
 
 ####  xyau  
 ##### 6334#       发表于 2018-7-25 17:24
@@ -4816,7 +4816,7 @@ tw:大泽@chenaze57</blockquote>
 214这个想起当年556学02投喂……
 
 
------
+*****
 
 ####  六花自我中  
 ##### 6335#       发表于 2018-7-25 17:25
@@ -4828,7 +4828,7 @@ tw:大泽@chenaze57</blockquote>
 小草莓好弱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 6336#       发表于 2018-7-25 17:28
@@ -4837,7 +4837,7 @@ tw:大泽@chenaze57</blockquote>
 现在我就很好奇封面能影响多少销量了.哈哈哈哈
 
 
------
+*****
 
 ####  xyau  
 ##### 6337#       发表于 2018-7-25 17:41
@@ -4856,7 +4856,7 @@ tw:大泽@chenaze57</blockquote>
 <img src="https://i.imgur.com/lsnTmkn.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 6338#       发表于 2018-7-25 17:47
@@ -4865,7 +4865,7 @@ tw:大泽@chenaze57</blockquote>
 我服了，碟都不会卖了？
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6339#       发表于 2018-7-25 17:48
@@ -4894,7 +4894,7 @@ tw:大泽@chenaze57</blockquote>
 2018-7-25 17:48 上传
 
 
------
+*****
 
 ####  hl8243  
 ##### 6340#       发表于 2018-7-25 17:50
@@ -4905,7 +4905,7 @@ tw:大泽@chenaze57</blockquote>
 有13话巅峰  封面居然不是216
 
 
------
+*****
 
 ####  hl8243  
 ##### 6341#       发表于 2018-7-25 17:58
@@ -4920,7 +4920,7 @@ tw:大泽@chenaze57</blockquote>
 第8卷  216
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6342#       发表于 2018-7-25 17:59
@@ -4935,7 +4935,7 @@ tw:大泽@chenaze57</blockquote>
 喷了，你216还想是封面？痴心妄想的工具人
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 6343#       发表于 2018-7-25 18:11
@@ -4946,7 +4946,7 @@ tw:大泽@chenaze57</blockquote>
 泽拉图小龙女说，确认了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 6344#       发表于 2018-7-25 19:24
@@ -4958,7 +4958,7 @@ tw:大泽@chenaze57</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">厨团大战的边缘姑娘是这样的
 
 
------
+*****
 
 ####  Meteors  
 ##### 6345#       发表于 2018-7-25 19:47
@@ -4968,7 +4968,7 @@ tw:大泽@chenaze57</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  soulife7  
 ##### 6346#       发表于 2018-7-25 19:50
@@ -4980,7 +4980,7 @@ tw:大泽@chenaze57</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 6347#       发表于 2018-7-25 19:50
@@ -4992,7 +4992,7 @@ tw:大泽@chenaze57</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 6348#       发表于 2018-7-25 19:54
@@ -5003,7 +5003,7 @@ tw:大泽@chenaze57</blockquote>
 心满郁修罗场多棒……锦织哥哥就是不拍，非反复玩弄214。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  六花自我中  
 ##### 6349#       发表于 2018-7-25 19:56
@@ -5015,7 +5015,7 @@ tw:大泽@chenaze57</blockquote>
 不是大肚子至少还有300真爱  我要干死jz<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 6350#       发表于 2018-7-25 20:05
@@ -5027,7 +5027,7 @@ BD封面只是不符合你们的期待罢了。
 214。
 
 
------
+*****
 
 ####  soulife7  
 ##### 6351#       发表于 2018-7-25 20:15
@@ -5039,7 +5039,7 @@ BD封面只是不符合你们的期待罢了。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  we89623  
 ##### 6352#       发表于 2018-7-25 20:16
@@ -5048,7 +5048,7 @@ BD封面只是不符合你们的期待罢了。
 醒醒吧  你国还有几个买碟的 就算换封面你国也是累平二期线到不了的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6353#       发表于 2018-7-25 20:22
@@ -5070,7 +5070,7 @@ BD封面只是不符合你们的期待罢了。
 第二种可能就是最后三话预告的那种，比如6卷婚纱心满，7卷不知道什么形态（比如幼？）的五莓，8卷红蓝216/幼216。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6354#       发表于 2018-7-25 20:24
@@ -5081,7 +5081,7 @@ BD封面只是不符合你们的期待罢了。
 微妙的感觉啊……
 
 
------
+*****
 
 ####  云闻先  
 ##### 6355#       发表于 2018-7-25 20:41
@@ -5096,7 +5096,7 @@ BD封面只是不符合你们的期待罢了。
 第八卷 机娘零二 插管阿广.
 
 
------
+*****
 
 ####  soulife7  
 ##### 6356#       发表于 2018-7-25 23:05
@@ -5109,7 +5109,7 @@ BD封面只是不符合你们的期待罢了。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6357#       发表于 2018-7-25 23:09
@@ -5125,7 +5125,7 @@ BD封面只是不符合你们的期待罢了。
 你也想让其中的某几位怀孕嘛？<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 6358#       发表于 2018-7-25 23:17
@@ -5143,7 +5143,7 @@ BD封面只是不符合你们的期待罢了。
 生殖母猪，靠女人上位的小白脸，没有自知之明的胖子，还有早白头的蕾丝。。。
 
 
------
+*****
 
 ####  mumubear  
 ##### 6359#       发表于 2018-7-25 23:19
@@ -5162,7 +5162,7 @@ BD封面只是不符合你们的期待罢了。
 隔三差五就出现在首页了。。。
 
 
------
+*****
 
 ####  soulife7  
 ##### 6360#       发表于 2018-7-25 23:28
@@ -5177,7 +5177,7 @@ BD封面只是不符合你们的期待罢了。
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 6361#       发表于 2018-7-25 23:29
@@ -5189,7 +5189,7 @@ BD封面只是不符合你们的期待罢了。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6362#       发表于 2018-7-26 00:10
@@ -5198,7 +5198,7 @@ BD封面只是不符合你们的期待罢了。
 Kocoro桑由我来守护<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6363#       发表于 2018-7-26 00:44
@@ -5229,7 +5229,7 @@ Yashio@so3_yashio
 查看全部评分
 
 
------
+*****
 
 ####  糖尔  
 ##### 6364#       发表于 2018-7-26 00:57
@@ -5243,7 +5243,7 @@ b站搜nogibingo，很有趣的综艺<img src="https://static.saraba1st.com/imag
 乃团今年年底前应该会来上海巡演，欢迎<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6365#       发表于 2018-7-26 07:18
@@ -5258,7 +5258,7 @@ Yashio@so3_yashio</blockquote>
 已经安排上了
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6366#       发表于 2018-7-26 08:35
@@ -5272,7 +5272,7 @@ Yashio@so3_yashio</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/198.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6367#       发表于 2018-7-26 08:37
@@ -5287,7 +5287,7 @@ Yashio@so3_yashio</blockquote><img src="https://static.saraba1st.com/image/smile
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6368#       发表于 2018-7-26 09:58
@@ -5302,7 +5302,7 @@ Yashio@so3_yashio</blockquote>
 厉害....
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 6369#       发表于 2018-7-26 10:48
@@ -5316,7 +5316,7 @@ Yashio@so3_yashio</blockquote>
 所以大不大肚子我都要干死jz。<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6370#       发表于 2018-7-26 12:46
@@ -5326,7 +5326,7 @@ Yashio@so3_yashio</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6371#       发表于 2018-7-26 16:25
@@ -5335,7 +5335,7 @@ Yashio@so3_yashio</blockquote>
 竟然还在首页<img src="https://static.saraba1st.com/image/smiley/carton2017/198.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 6372#       发表于 2018-7-26 16:59
@@ -5350,7 +5350,7 @@ Yashio@so3_yashio</blockquote>
 196没被毁吧,为团队战到最后,那个告白被委婉发卡也是015的加分项,专楼也没人觉得196有什么大问题
 
 
------
+*****
 
 ####  soulife7  
 ##### 6373#       发表于 2018-7-26 17:03
@@ -5363,7 +5363,7 @@ Yashio@so3_yashio</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xyau  
 ##### 6374#       发表于 2018-7-26 17:26
@@ -5382,7 +5382,7 @@ Yashio@so3_yashio</blockquote>
 最终白发是因为#21为了协助翠雀(15)护送02（挑染白的390也有在#23为了协助α护送16而开大），至于前面发烧的原理没有明确解释，但按照78#11提到孩子热提前、鸟笼阶段对发热的平静和最后214看望196的发言，至少可以明确这在孩子当中是普遍存在的。
 
 
------
+*****
 
 ####  soulife7  
 ##### 6375#       发表于 2018-7-26 18:57
@@ -5397,7 +5397,7 @@ Yashio@so3_yashio</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6376#       发表于 2018-7-26 18:59
@@ -5443,7 +5443,7 @@ Naomi：断右手。
 所以，相比之下，郁乃不算毁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。虽然早逝负分，可也算有限篇幅下刻画得比较出彩的角色了。
 
 
------
+*****
 
 ####  EN5  
 ##### 6377#       发表于 2018-7-26 19:21
@@ -5455,7 +5455,7 @@ Naomi：断右手。
 过于有力
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 6378#       发表于 2018-7-26 19:57
@@ -5467,7 +5467,7 @@ Naomi：断右手。
 你们别钦定196早逝，jzg那个性格明显舍不得杀偶像番的人，也许他就是想培养个白发苍苍的博学者呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6379#       发表于 2018-7-26 20:59
@@ -5481,7 +5481,7 @@ Naomi：断右手。
 “我肯定没法轻易放弃”那里给我的感觉是，196的意思是自己会最终放弃但还要一段时间去放下（而不是真的永不放弃），比56的告白（你不要回答）还更回退一点……所以还好吧，我倒是对她和直美怎么回事很感兴趣……
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6380#       发表于 2018-7-26 21:33
@@ -5493,7 +5493,7 @@ Naomi：断右手。
 锦织的世界里，不会生就会受罪，所以。。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 6381#       发表于 2018-7-26 22:10
@@ -5508,7 +5508,7 @@ Naomi：断右手。
 而且完结了再看11集锦织对蕾丝处刑得也蛮厉害的。。。
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6382#       发表于 2018-7-26 22:15
@@ -5523,7 +5523,7 @@ Naomi：断右手。
 我的理解就是郁乃不会放弃，她是因为早衰而不得不放弃的。至于和直美...Miku和心，发小，她插入不来。莓，由于她的记忆停留在第1集，根据莓第一集直美还没走就成天给广发微信，她俩的关系应该一般。于是，就剩下沉默又不冷不热的郁乃了...
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6383#       发表于 2018-7-26 22:32
@@ -5532,7 +5532,7 @@ Naomi：断右手。
 ost2呢
 
 
------
+*****
 
 ####  xingenge  
 ##### 6384#       发表于 2018-7-26 22:42
@@ -5546,7 +5546,7 @@ ost2呢
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftnn85ylaej20xc0xchdt.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6385#       发表于 2018-7-26 23:16
@@ -5556,7 +5556,7 @@ ost2呢
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 6386#       发表于 2018-7-26 23:34
@@ -5568,7 +5568,7 @@ ost2呢
 现在得感谢锦织没有马上让未来这组生了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  akonxin  
 ##### 6387#       发表于 2018-7-27 00:13
@@ -5579,7 +5579,7 @@ ost2呢
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xyau  
 ##### 6388#       发表于 2018-7-27 04:51
@@ -5588,7 +5588,7 @@ ost2呢
 英配版刚完结，看到推上有观众圈VO表达对0216没有和13队团聚也没孩子的不满
 
 
------
+*****
 
 ####  magicz2  
 ##### 6389#       发表于 2018-7-27 09:31
@@ -5597,7 +5597,7 @@ ost2呢
 杀锦织就对了
 
 
------
+*****
 
 ####  soulife7  
 ##### 6390#       发表于 2018-7-27 09:38
@@ -5608,7 +5608,7 @@ ost2呢
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sketchup  
 ##### 6391#       发表于 2018-7-27 09:41
@@ -5619,7 +5619,7 @@ ost2呢
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sketchup  
 ##### 6392#       发表于 2018-7-27 09:43
@@ -5630,7 +5630,7 @@ ost2呢
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6393#       发表于 2018-7-27 11:11
@@ -5639,7 +5639,7 @@ ost2呢
 最后的214页……不管如何祝福太还是最后有了自己幸福吧……
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6394#       发表于 2018-7-27 11:43
@@ -5648,7 +5648,7 @@ ost2呢
 哇，214
 
 
------
+*****
 
 ####  hl8243  
 ##### 6395#       发表于 2018-7-27 11:53
@@ -5659,7 +5659,7 @@ ost2呢
 216没孩子真是遗憾啊
 
 
------
+*****
 
 ####  xingenge  
 ##### 6396#       发表于 2018-7-27 11:58
@@ -5671,7 +5671,7 @@ ost2呢
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftoa4hp1o2g20k00hib2b.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6397#       发表于 2018-7-27 12:00
@@ -5681,7 +5681,7 @@ ost2呢
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 6398#       发表于 2018-7-27 12:53
@@ -5690,7 +5690,7 @@ ost2呢
 开坏吊兰后始乱终弃的214页<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6399#       发表于 2018-7-27 13:11
@@ -5699,7 +5699,7 @@ ost2呢
 额 214
 
 
------
+*****
 
 ####  xyau  
 ##### 6400#       发表于 2018-7-27 13:12
@@ -5708,7 +5708,7 @@ ost2呢
 当年在鸟笼明明是196做面包的，结果最后还是214担起大业，果然兴趣很重要吧
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6401#       发表于 2018-7-27 13:17
@@ -5719,7 +5719,7 @@ ost2呢
 不，是性命很重要
 
 
------
+*****
 
 ####  xyau  
 ##### 6402#       发表于 2018-7-27 13:47
@@ -5730,7 +5730,7 @@ ost2呢
 214比较感兴趣面包啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  郭富城  
 ##### 6403#       发表于 2018-7-27 14:03
@@ -5739,7 +5739,7 @@ ost2呢
 214留名，终于到了，下一个到哪一页？
 
 
------
+*****
 
 ####  Sutilia_Lynn  
 ##### 6404#       发表于 2018-7-27 15:01
@@ -5748,7 +5748,7 @@ ost2呢
 下一站，703！<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6405#       发表于 2018-7-27 15:05
@@ -5766,7 +5766,7 @@ b站有个相对完整的mad，也是幻界战线x国家队的，不过不是一
 https://m.bilibili.com/video/av23284149.html
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6406#       发表于 2018-7-27 15:12
@@ -5775,7 +5775,7 @@ https://m.bilibili.com/video/av23284149.html
 坚贞不渝556 始乱终弃214<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6407#       发表于 2018-7-27 16:15
@@ -5791,7 +5791,7 @@ https://m.bilibili.com/video/av23284149.html
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  EN5  
 ##### 6408#       发表于 2018-7-27 17:46
@@ -5807,7 +5807,7 @@ https://m.bilibili.com/video/av23284149.html
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这真是太好了
 
 
------
+*****
 
 ####  dafangwoo  
 ##### 6409#       发表于 2018-7-27 19:48
@@ -5823,7 +5823,7 @@ https://m.bilibili.com/video/av23284149.html
 靠，感觉都能跟着哼出来
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6410#       发表于 2018-7-27 20:29
@@ -5832,7 +5832,7 @@ https://m.bilibili.com/video/av23284149.html
 都214了.....
 
 
------
+*****
 
 ####  soulife7  
 ##### 6411#       发表于 2018-7-27 20:43
@@ -5843,7 +5843,7 @@ https://m.bilibili.com/video/av23284149.html
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 6412#       发表于 2018-7-27 20:48
@@ -5856,7 +5856,7 @@ https://m.bilibili.com/video/av23284149.html
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  626704053  
 ##### 6413#       发表于 2018-7-27 21:16
@@ -5869,7 +5869,7 @@ https://m.bilibili.com/video/av23284149.html
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 6414#       发表于 2018-7-27 21:59
@@ -5879,7 +5879,7 @@ https://m.bilibili.com/video/av23284149.html
 不知道有没有泽拉图的。
 
 
------
+*****
 
 ####  9α  
 ##### 6415#       发表于 2018-7-27 22:33
@@ -5891,7 +5891,7 @@ https://m.bilibili.com/video/av23284149.html
 遥到iota16页你们就能解脱了。
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6416#       发表于 2018-7-27 22:34
@@ -5905,7 +5905,7 @@ https://m.bilibili.com/video/av23284149.html
 你病的真是不轻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6417#       发表于 2018-7-27 22:58
@@ -5917,7 +5917,7 @@ https://m.bilibili.com/video/av23284149.html
 泽拉图的塑料小人各种残念脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6418#       发表于 2018-7-27 22:58
@@ -5931,7 +5931,7 @@ https://m.bilibili.com/video/av23284149.html
 至少摸到703<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6419#       发表于 2018-7-27 23:02
@@ -5941,7 +5941,7 @@ https://m.bilibili.com/video/av23284149.html
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  elflie  
 ##### 6420#       发表于 2018-7-27 23:13
@@ -5955,7 +5955,7 @@ https://m.bilibili.com/video/av23284149.html
 <img src="https://i.loli.net/2018/07/27/5b5b3669d534f.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6421#       发表于 2018-7-27 23:32
@@ -5964,7 +5964,7 @@ https://m.bilibili.com/video/av23284149.html
 明天复活赛捞下56吧~
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6422#       发表于 2018-7-27 23:33
@@ -5976,7 +5976,7 @@ https://m.bilibili.com/video/av23284149.html
 粗制滥造简直惊悚。
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 6423#       发表于 2018-7-28 02:36
@@ -5985,7 +5985,7 @@ https://m.bilibili.com/video/av23284149.html
 看了看床边的鸟趴，怎么感觉这02趴其实没啥问题……是我要求太低了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6424#       发表于 2018-7-28 03:17
@@ -5996,7 +5996,7 @@ https://m.bilibili.com/video/av23284149.html
 趴趴基本都这个感觉。。。
 
 
------
+*****
 
 ####  elflie  
 ##### 6425#       发表于 2018-7-28 03:28
@@ -6006,7 +6006,7 @@ https://m.bilibili.com/video/av23284149.html
 <img src="https://i.loli.net/2018/07/28/5b5b7252b68be.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elflie  
 ##### 6426#       发表于 2018-7-28 03:29
@@ -6017,7 +6017,7 @@ https://m.bilibili.com/video/av23284149.html
 之前没关注过这种周边，还打算搞一个扔车上<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 6427#       发表于 2018-7-28 03:58
@@ -6028,7 +6028,7 @@ https://m.bilibili.com/video/av23284149.html
 趴趴我是用来放在床上当玩偶/抱枕的，平躺的时候（比如我写这条回复的现在）会放在胸口上<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6428#       发表于 2018-7-28 04:50
@@ -6069,7 +6069,7 @@ https://m.bilibili.com/video/av23284149.html
 （其实地球恢复生机是因为02的泪水洒落吗
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6429#       发表于 2018-7-28 07:55
@@ -6078,7 +6078,7 @@ https://m.bilibili.com/video/av23284149.html
 我唾弃你的坟墓（指锦织）
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6430#       发表于 2018-7-28 09:36
@@ -6093,7 +6093,7 @@ https://m.bilibili.com/video/av23284149.html
 0215是损友闺蜜兼情敌的关系吗…
 
 
------
+*****
 
 ####  9α  
 ##### 6431#       发表于 2018-7-28 10:14
@@ -6105,7 +6105,7 @@ https://m.bilibili.com/video/av23284149.html
 iota15的互动戏份少的我根本不记得了
 
 
------
+*****
 
 ####  magicz2  
 ##### 6432#       发表于 2018-7-28 10:31
@@ -6114,7 +6114,7 @@ iota15的互动戏份少的我根本不记得了
 215前中期比较多交流，后期也就搭两下肩了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6433#       发表于 2018-7-28 10:35
@@ -6123,7 +6123,7 @@ iota15的互动戏份少的我根本不记得了
 ost2呢
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6434#       发表于 2018-7-28 10:36
@@ -6132,7 +6132,7 @@ ost2呢
 莓：经过一年多的相处，02总算叫我的名字了。
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 6435#       发表于 2018-7-28 10:37
@@ -6143,7 +6143,7 @@ ost2呢
 谢谢，我他妈订金不要了，不补款了。
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6436#       发表于 2018-7-28 11:36
@@ -6152,7 +6152,7 @@ ost2呢
 加油 马上就216了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6437#       发表于 2018-7-28 11:46
@@ -6162,7 +6162,7 @@ ost2呢
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6438#       发表于 2018-7-28 12:54
@@ -6173,7 +6173,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6439#       发表于 2018-7-28 14:40
@@ -6182,7 +6182,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 还剩十一楼216页了么
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6440#       发表于 2018-7-28 14:53
@@ -6197,7 +6197,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 215前期有很多有意思的互动，但后期都没有太展开讲了，有点点可惜呢……
 
 
------
+*****
 
 ####  9α  
 ##### 6441#       发表于 2018-7-28 15:06
@@ -6208,7 +6208,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 今晚上估计漫画不会有太大改动吧。。
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6442#       发表于 2018-7-28 17:18
@@ -6217,7 +6217,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 215<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 6443#       发表于 2018-7-28 17:20
@@ -6228,7 +6228,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Meteors  
 ##### 6444#       发表于 2018-7-28 17:23
@@ -6239,7 +6239,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 编辑
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6445#       发表于 2018-7-28 17:25
@@ -6248,7 +6248,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 今天晚上在哪看直播？我等着吃0216的喜糖呢～
 
 
------
+*****
 
 ####  9α  
 ##### 6446#       发表于 2018-7-28 17:33
@@ -6272,7 +6272,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 虽然动画里的体现并没卵用。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6447#       发表于 2018-7-28 17:35
@@ -6281,7 +6281,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 添砖加瓦
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6448#       发表于 2018-7-28 17:38
@@ -6290,7 +6290,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 我丧心病狂了
 
 
------
+*****
 
 ####  9α  
 ##### 6449#       发表于 2018-7-28 17:39
@@ -6304,7 +6304,7 @@ UP主从油管搬运过来的216向AMV，我个人觉得做的还不错
 因为不再是偶像了吗？
 
 
------
+*****
 
 ####  xyau  
 ##### 6450#       发表于 2018-7-28 17:41
@@ -6315,7 +6315,7 @@ https://www.bilibili.com/moe/2018/jp/home
 救救56
 
 
------
+*****
 
 ####  9α  
 ##### 6451#       发表于 2018-7-28 17:41
@@ -6332,7 +6332,7 @@ https://www.bilibili.com/moe/2018/jp/home
 别被那么无聊的事影响人生了。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6452#       发表于 2018-7-28 17:42
@@ -6341,7 +6341,7 @@ https://www.bilibili.com/moe/2018/jp/home
 来了来了
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6453#       发表于 2018-7-28 17:43
@@ -6355,7 +6355,7 @@ https://www.bilibili.com/moe/2018/jp/home
 我永远喜欢02！
 
 
------
+*****
 
 ####  xyau  
 ##### 6454#       发表于 2018-7-28 17:46
@@ -6364,7 +6364,7 @@ https://www.bilibili.com/moe/2018/jp/home
 来了
 
 
------
+*****
 
 ####  funo3355411  
 ##### 6455#       发表于 2018-7-28 17:48
@@ -6375,7 +6375,7 @@ https://www.bilibili.com/moe/2018/jp/home
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 6456#       发表于 2018-7-28 17:49
@@ -6386,7 +6386,7 @@ https://www.bilibili.com/moe/2018/jp/home
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Meteors  
 ##### 6457#       发表于 2018-7-28 17:50
@@ -6397,7 +6397,7 @@ https://www.bilibili.com/moe/2018/jp/home
 编辑
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6458#       发表于 2018-7-28 17:52
@@ -6409,7 +6409,7 @@ https://www.bilibili.com/moe/2018/jp/home
 <img src="https://i.loli.net/2018/07/28/5b5c3cd8965ef.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  timepro  
 ##### 6459#       发表于 2018-7-28 17:57
@@ -6420,7 +6420,7 @@ https://www.bilibili.com/moe/2018/jp/home
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  糖尔  
 ##### 6460#       发表于 2018-7-28 17:58
@@ -6429,7 +6429,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216留名
 
 
------
+*****
 
 ####  步六孤  
 ##### 6461#       发表于 2018-7-28 18:04
@@ -6438,7 +6438,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216留名<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6462#       发表于 2018-7-28 18:05
@@ -6447,7 +6447,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216来了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 6463#       发表于 2018-7-28 18:10
@@ -6456,7 +6456,7 @@ https://www.bilibili.com/moe/2018/jp/home
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6464#       发表于 2018-7-28 18:11
@@ -6465,7 +6465,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216留名。。。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6465#       发表于 2018-7-28 18:12
@@ -6474,7 +6474,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216留名～
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6466#       发表于 2018-7-28 18:14
@@ -6489,7 +6489,7 @@ https://www.bilibili.com/moe/2018/jp/home
 大家感兴趣的话去投个吧
 
 
------
+*****
 
 ####  winoros  
 ##### 6467#       发表于 2018-7-28 18:15
@@ -6498,7 +6498,7 @@ https://www.bilibili.com/moe/2018/jp/home
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">专楼 我们会想你的
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6468#       发表于 2018-7-28 18:19
@@ -6507,7 +6507,7 @@ https://www.bilibili.com/moe/2018/jp/home
 最后一次216<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6469#       发表于 2018-7-28 18:19
@@ -6516,7 +6516,7 @@ https://www.bilibili.com/moe/2018/jp/home
 咱们703上见
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6470#       发表于 2018-7-28 18:21
@@ -6525,7 +6525,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216....才不喜欢抢楼呢......<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elflie  
 ##### 6471#       发表于 2018-7-28 18:22
@@ -6534,7 +6534,7 @@ https://www.bilibili.com/moe/2018/jp/home
 最后一次了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6472#       发表于 2018-7-28 18:33
@@ -6543,7 +6543,7 @@ https://www.bilibili.com/moe/2018/jp/home
 今晚有漫画，能翻吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  syqs  
 ##### 6473#       发表于 2018-7-28 18:42
@@ -6552,7 +6552,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216！
 
 
------
+*****
 
 ####  EN5  
 ##### 6474#       发表于 2018-7-28 18:42
@@ -6561,7 +6561,7 @@ https://www.bilibili.com/moe/2018/jp/home
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">湿吹周常救国
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6475#       发表于 2018-7-28 18:57
@@ -6570,7 +6570,7 @@ https://www.bilibili.com/moe/2018/jp/home
 晚上是不是该脑内放送剧场版了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ud_terry  
 ##### 6476#       发表于 2018-7-28 19:07
@@ -6579,7 +6579,7 @@ https://www.bilibili.com/moe/2018/jp/home
 216没人抢了么
 
 
------
+*****
 
 ####  soulife7  
 ##### 6477#       发表于 2018-7-28 20:12
@@ -6590,7 +6590,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 6478#       发表于 2018-7-28 21:29
@@ -6599,7 +6599,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 216留名
 
 
------
+*****
 
 ####  ゴロー  
 ##### 6479#       发表于 2018-7-28 21:32
@@ -6612,7 +6612,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 咱顺便再拉个票》》》
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 6480#       发表于 2018-7-28 21:37
@@ -6621,7 +6621,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 送蝈蝈最后一程<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6481#       发表于 2018-7-28 21:40
@@ -6634,7 +6634,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 56你怎么真的掉出去了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6482#       发表于 2018-7-28 22:12
@@ -6646,7 +6646,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftpxlipdssj20nk0xbjv6.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 6483#       发表于 2018-7-28 22:32
@@ -6660,7 +6660,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 你还敢出来？
 
 
------
+*****
 
 ####  Meteors  
 ##### 6484#       发表于 2018-7-28 22:33
@@ -6670,7 +6670,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6485#       发表于 2018-7-28 22:44
@@ -6679,7 +6679,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 表面兄弟今石桑
 
 
------
+*****
 
 ####  xyau  
 ##### 6486#       发表于 2018-7-28 22:48
@@ -6688,7 +6688,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 这个金毛鹤望兰好娇羞
 
 
------
+*****
 
 ####  magicz2  
 ##### 6487#       发表于 2018-7-28 23:42
@@ -6697,7 +6697,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 什么快到了呢？promare女主是黄毛？
 
 
------
+*****
 
 ####  02016  
 ##### 6488#       发表于 2018-7-28 23:47
@@ -6706,7 +6706,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 听说明天会有某作宣布2期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">知道不可能是国国，为什么我还暗自期待
 
 
------
+*****
 
 ####  luyifuif  
 ##### 6489#       发表于 2018-7-28 23:48
@@ -6715,7 +6715,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 都结束两个星期了，专楼还在摇晃...生命力太顽强了..
 
 
------
+*****
 
 ####  お菓子食べたい  
 ##### 6490#       发表于 2018-7-28 23:51
@@ -6727,7 +6727,7 @@ O!S!T!<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" refe
 xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hl8243  
 ##### 6491#       发表于 2018-7-28 23:54
@@ -6738,7 +6738,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 6492#       发表于 2018-7-29 00:21
@@ -6749,7 +6749,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 漫画25话，一张莓的福利[http://ww1.sinaimg.cn/large/006CqqeKgy1ftq1btk3z8j30t615o7wh.jpg](http://ww1.sinaimg.cn/large/006CqqeKgy1ftq1btk3z8j30t615o7wh.jpg)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6493#       发表于 2018-7-29 00:36
@@ -6758,7 +6758,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 我完美的错过了216页 算了 砖楼再见~<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 6494#       发表于 2018-7-29 01:53
@@ -6767,7 +6767,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">数字小就是好呀
 
 
------
+*****
 
 ####  xingenge  
 ##### 6495#       发表于 2018-7-29 09:21
@@ -6779,7 +6779,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftqgx6r306j20p00xcdzd.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 6496#       发表于 2018-7-29 09:26
@@ -6790,7 +6790,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 拍校园偶像剧，圣锦织，请。
 
 
------
+*****
 
 ####  pissca  
 ##### 6497#       发表于 2018-7-29 09:35
@@ -6803,7 +6803,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
 
 
------
+*****
 
 ####  xingenge  
 ##### 6498#       发表于 2018-7-29 10:58
@@ -6812,7 +6812,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ftqjqm2wzzj20p00xcaft.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 6499#       发表于 2018-7-29 12:11
@@ -6821,7 +6821,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 好像mf也有个02
 
 
------
+*****
 
 ####  elflie  
 ##### 6500#       发表于 2018-7-29 12:25
@@ -6830,7 +6830,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 好像这么多手办都要明年见了
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6501#       发表于 2018-7-29 14:09
@@ -6839,7 +6839,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 莓的想买一个。二姑娘，一想起大白02。。。
 
 
------
+*****
 
 ####  xyau  
 ##### 6502#       发表于 2018-7-29 17:31
@@ -6879,7 +6879,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 <img src="https://i.imgur.com/MAEJ0md.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6503#       发表于 2018-7-29 21:33
@@ -6888,7 +6888,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 为什么...为什么锦织不拍校园<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">ed1的02是那么的美
 
 
------
+*****
 
 ####  xyau  
 ##### 6504#       发表于 2018-7-29 22:29
@@ -6917,7 +6917,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 查看全部评分
 
 
------
+*****
 
 ####  xyau  
 ##### 6505#       发表于 2018-7-30 00:34
@@ -6935,7 +6935,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 α又神隐……
 
 
------
+*****
 
 ####  hl8243  
 ##### 6506#       发表于 2018-7-30 00:42
@@ -6947,7 +6947,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 6507#       发表于 2018-7-30 01:10
@@ -6956,7 +6956,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 区区人类，果真是弱得不行，只有小草莓一个出线了，最后还得靠战死疆场的叫龙一家撑场子，也不知道02羡慕她们什么…
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6508#       发表于 2018-7-30 07:23
@@ -6967,7 +6967,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 生育<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6509#       发表于 2018-7-30 08:06
@@ -6988,7 +6988,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xyau  
 ##### 6510#       发表于 2018-7-30 13:18
@@ -6997,7 +6997,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 梅原出院了，BD 8会替换声音吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6511#       发表于 2018-7-30 14:06
@@ -7013,7 +7013,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Meteors  
 ##### 6512#       发表于 2018-7-30 15:33
@@ -7023,7 +7023,7 @@ xs<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrer
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6513#       发表于 2018-7-30 15:54
@@ -7035,7 +7035,7 @@ kokoro的 1/13里有我</blockquote>
 我的真爱票交给了02！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6514#       发表于 2018-7-30 17:42
@@ -7048,7 +7048,7 @@ kokoro的 1/13里有我</blockquote>
 8月18日(土) 緊急開催決定！監督:錦織敦史さん、ｷｬﾗｸﾀｰﾃﾞｻﾞｲﾝ・総作画監督:田中将賀さん登壇‼︎ @ani_semi で今週詳細発表
 
 
------
+*****
 
 ####  xyau  
 ##### 6515#       发表于 2018-7-30 18:11
@@ -7061,7 +7061,7 @@ kokoro的 1/13里有我</blockquote>
 看了下别的，大概是半天两个90分钟的讲座，入场要申购门票（全程或单场）。
 
 
------
+*****
 
 ####  云闻先  
 ##### 6516#       发表于 2018-7-30 18:24
@@ -7070,7 +7070,7 @@ kokoro的 1/13里有我</blockquote>
 交给jz拍校园?怕不是又要被另一种方式骑脸.
 
 
------
+*****
 
 ####  xyau  
 ##### 6517#       发表于 2018-7-30 20:47
@@ -7090,7 +7090,7 @@ kokoro的 1/13里有我</blockquote>
 16在C3，DAY4/8-3出战；种子卫宫在C1。
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6518#       发表于 2018-7-30 22:08
@@ -7099,7 +7099,7 @@ kokoro的 1/13里有我</blockquote>
 阿广萌战128就遇到梅林，估计够呛，看看我给运营发的bd1裁剪图能不能被当头像，要是万一能，今年萌战我就满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6519#       发表于 2018-7-31 04:04
@@ -7129,7 +7129,7 @@ kokoro的 1/13里有我</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  狂河冰不烈  
 ##### 6520#       发表于 2018-7-31 08:52
@@ -7138,7 +7138,7 @@ kokoro的 1/13里有我</blockquote>
 我说……这楼你们打算顶到什么时候？？？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 6521#       发表于 2018-7-31 09:57
@@ -7150,7 +7150,7 @@ kokoro的 1/13里有我</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6522#       发表于 2018-7-31 10:08
@@ -7162,7 +7162,7 @@ kokoro的 1/13里有我</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也不知道砖楼什么时候才能沉下去啊
 
 
------
+*****
 
 ####  xingenge  
 ##### 6523#       发表于 2018-7-31 10:33
@@ -7174,7 +7174,7 @@ kokoro的 1/13里有我</blockquote>
 <img src="http://wx1.sinaimg.cn/large/4508e79bgy1ftsu76n6rpj20sg0lcdhq.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 6524#       发表于 2018-7-31 10:45
@@ -7189,7 +7189,7 @@ kokoro的 1/13里有我</blockquote>
 具体内容还没公开吗.
 
 
------
+*****
 
 ####  xingenge  
 ##### 6525#       发表于 2018-7-31 12:20
@@ -7201,7 +7201,7 @@ kokoro的 1/13里有我</blockquote>
 8.18开，详情这周发表，估计拖到周五这样吧
 
 
------
+*****
 
 ####  magicz2  
 ##### 6526#       发表于 2018-7-31 12:37
@@ -7210,7 +7210,7 @@ kokoro的 1/13里有我</blockquote>
 微博上有02兔女郎新手办的消息了
 
 
------
+*****
 
 ####  云闻先  
 ##### 6527#       发表于 2018-7-31 12:58
@@ -7221,7 +7221,7 @@ kokoro的 1/13里有我</blockquote>
 了解了.
 
 
------
+*****
 
 ####  cishta  
 ##### 6528#       发表于 2018-7-31 14:24
@@ -7230,7 +7230,7 @@ kokoro的 1/13里有我</blockquote>
 jz：希望之💩，联系着羁绊，只要我们不停吃💩，蝈蝈就不会停止！
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6529#       发表于 2018-7-31 14:35
@@ -7242,7 +7242,7 @@ jz：希望之💩，联系着羁绊，只要我们不停吃💩，蝈蝈就不�
 冲了
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6530#       发表于 2018-7-31 18:37
@@ -7254,7 +7254,7 @@ jz：希望之💩，联系着羁绊，只要我们不停吃💩，蝈蝈就不�
 我发的四张，不是我的原图，可能是运营觉得不合适重新裁了或者是别人发的。不管怎么说，我满足了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6531#       发表于 2018-7-31 22:59
@@ -7265,7 +7265,7 @@ jz：希望之💩，联系着羁绊，只要我们不停吃💩，蝈蝈就不�
 02和骨头对上了<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6532#       发表于 2018-8-1 16:38
@@ -7275,7 +7275,7 @@ jz：希望之💩，联系着羁绊，只要我们不停吃💩，蝈蝈就不�
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xingenge  
 ##### 6533#       发表于 2018-8-1 17:13
@@ -7288,7 +7288,7 @@ jz：希望之💩，联系着羁绊，只要我们不停吃💩，蝈蝈就不�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftubfky4i3j20rs0begp2.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6534#       发表于 2018-8-1 17:15
@@ -7299,7 +7299,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 太好了，是人类大小的02<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 6535#       发表于 2018-8-1 17:19
@@ -7310,7 +7310,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 草莓和02牵手啦！！！这糖发的猝不及防！！
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 6536#       发表于 2018-8-1 17:19
@@ -7319,7 +7319,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 他俩怎么这么可爱
 
 
------
+*****
 
 ####  xyau  
 ##### 6537#       发表于 2018-8-1 17:31
@@ -7336,7 +7336,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 <img src="https://www.aniplex.co.jp/comike/no94/assets/img/goods/img_goods-09_02.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 6538#       发表于 2018-8-1 17:55
@@ -7351,7 +7351,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 那矢吹应该加一个五郎进去.平衡男女比例,同时7*8=56.
 
 
------
+*****
 
 ####  xyau  
 ##### 6539#       发表于 2018-8-2 15:40
@@ -7365,7 +7365,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 <img src="https://i.imgur.com/j7oonLV.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6540#       发表于 2018-8-2 20:35
@@ -7378,7 +7378,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 锦织你……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6541#       发表于 2018-8-3 05:58
@@ -7387,7 +7387,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 16本战被林林压啊……
 
 
------
+*****
 
 ####  xingenge  
 ##### 6542#       发表于 2018-8-3 11:55
@@ -7406,7 +7406,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ftwdgk1x3hj20nk0xcdik.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 6543#       发表于 2018-8-4 00:39
@@ -7417,7 +7417,7 @@ https://www.aniplex.co.jp/comike/no94/</blockquote>
 KISS OF DEATH HYDE VER
 
 
------
+*****
 
 ####  magicz2  
 ##### 6544#       发表于 2018-8-4 00:42
@@ -7431,7 +7431,7 @@ KISS OF DEATH HYDE VER</blockquote>
 这版本好听啊
 
 
------
+*****
 
 ####  xingenge  
 ##### 6545#       发表于 2018-8-4 08:11
@@ -7471,7 +7471,7 @@ KISS OF DEATH HYDE VER</blockquote>
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ftxcl1h5kwj20o742pqpb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6546#       发表于 2018-8-4 08:28
@@ -7480,7 +7480,7 @@ KISS OF DEATH HYDE VER</blockquote>
 216六七的时候审判 讲究
 
 
------
+*****
 
 ####  xyau  
 ##### 6547#       发表于 2018-8-4 09:17
@@ -7490,7 +7490,7 @@ KISS OF DEATH HYDE VER</blockquote>
 以02为例讲解人设、分析#01分镜、谈各话人员安排、还有作监修正等等，看上去还是有不少干货的。不知道泥潭会不会有人去<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6548#       发表于 2018-8-4 16:32
@@ -7503,7 +7503,7 @@ KISS OF DEATH HYDE VER</blockquote>
 问题是，这动画里好像大家也不怎么交流……有什么情报彼此也不说，216小阁楼几十天没谈明白……
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6549#       发表于 2018-8-4 21:29
@@ -7517,7 +7517,7 @@ KISS OF DEATH HYDE VER</blockquote>
 同人动画拉低了画面的表现力<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6550#       发表于 2018-8-5 20:28
@@ -7528,7 +7528,7 @@ KISS OF DEATH HYDE VER</blockquote>
 在阁楼几十天也许在做kiss以外的事情<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  お菓子食べたい  
 ##### 6551#       发表于 2018-8-5 20:43
@@ -7540,7 +7540,7 @@ KISS OF DEATH HYDE VER</blockquote>
 这个kkr酱好看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">就是发带大得像纸板
 
 
------
+*****
 
 ####  626704053  
 ##### 6552#       发表于 2018-8-5 22:25
@@ -7551,7 +7551,7 @@ KISS OF DEATH HYDE VER</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6553#       发表于 2018-8-5 22:27
@@ -7560,7 +7560,7 @@ KISS OF DEATH HYDE VER</blockquote>
 你们还在努力发病吗 真是太好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nemo艇长  
 ##### 6554#       发表于 2018-8-5 22:31
@@ -7572,7 +7572,7 @@ KISS OF DEATH HYDE VER</blockquote>
 锦织gg：干啥都没用，反正也生不了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">。
 
 
------
+*****
 
 ####  xyau  
 ##### 6555#       发表于 2018-8-6 00:09
@@ -7588,7 +7588,7 @@ http://a-dict.tokyo/blog/?p=549
 #コミケ (#C94)で発表された #ダリフラ の新イラストに #OFFWHITE × #NIKE と #YEEZY のものと思われる #スニーカー が！今回は、#TRIGGER の岩崎将大さん（@tarou2）が描き下ろしたイラストを元に、それらモデルとブランドを簡単にご紹介してきます。
 
 
------
+*****
 
 ####  xyau  
 ##### 6556#       发表于 2018-8-6 01:17
@@ -7601,7 +7601,7 @@ http://a-dict.tokyo/blog/?p=549
 <img src="https://i.loli.net/2018/08/06/5b672fa58a41f.jpeg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ud_terry  
 ##### 6557#       发表于 2018-8-6 02:14
@@ -7613,7 +7613,7 @@ KISS OF DEATH HYDE VER</blockquote>之前一直找不到hyde版，很不错的�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xingenge  
 ##### 6558#       发表于 2018-8-6 09:06
@@ -7631,7 +7631,7 @@ Miku Stretch #DARLING_in_the_FRANXX #DarliFra #ダリフラ
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ftzpawqfxjj20i20o649r.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6559#       发表于 2018-8-6 09:35
@@ -7658,7 +7658,7 @@ Miku Stretch #DARLING_in_the_FRANXX #DarliFra #ダリフラ
 <img src="http://ww4.sinaimg.cn/large/006CqqeKly1ftzqadpuymj30lc0sgtaq.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6560#       发表于 2018-8-6 09:37
@@ -7670,7 +7670,7 @@ Miku Stretch #DARLING_in_the_FRANXX #DarliFra #ダリフラ
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6561#       发表于 2018-8-6 11:08
@@ -7687,7 +7687,7 @@ HYDE - KISS OF DEATH
 [Spotify](https://open.spotify.com/track/4RzQFsUzSjShauGbdngPRB)
 
 
------
+*****
 
 ####  reekilynn  
 ##### 6562#       发表于 2018-8-6 16:36
@@ -7696,7 +7696,7 @@ HYDE - KISS OF DEATH
 漫画26话看上去是把动画7-16一口气全跳了啊？
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6563#       发表于 2018-8-6 18:28
@@ -7707,7 +7707,7 @@ HYDE - KISS OF DEATH
 没有吧，还是要看下一话是写哪里……
 
 
------
+*****
 
 ####  山贼先生  
 ##### 6564#       发表于 2018-8-6 18:44
@@ -7719,7 +7719,7 @@ HYDE - KISS OF DEATH
 并没有吧 感觉中间还是会画国6后面的日常/个人回 感觉只是会大幅压缩
 
 
------
+*****
 
 ####  xingenge  
 ##### 6565#       发表于 2018-8-6 21:02
@@ -7729,7 +7729,7 @@ HYDE - KISS OF DEATH
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fu0a4vkpjaj20xc0r977c.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 6566#       发表于 2018-8-6 21:29
@@ -7747,7 +7747,7 @@ HYDE - KISS OF DEATH
 就是没有犬夜叉夫妇仨的相爱相杀属性.....
 
 
------
+*****
 
 ####  9α  
 ##### 6567#       发表于 2018-8-6 21:50
@@ -7759,7 +7759,7 @@ HYDE - KISS OF DEATH
 说起来，还有跟国家队一样最后神奇双线操作结局的故事吗。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6568#       发表于 2018-8-6 23:15
@@ -7771,7 +7771,7 @@ HYDE - KISS OF DEATH
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu0dn9jp24j20k20g07j1.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6569#       发表于 2018-8-6 23:20
@@ -7782,7 +7782,7 @@ HYDE - KISS OF DEATH
 B萌剩02独苗啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6570#       发表于 2018-8-7 00:37
@@ -7804,7 +7804,7 @@ Cemeteryhills C94
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu0gajvp7wj20nj4o116m.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 6571#       发表于 2018-8-7 06:35
@@ -7817,7 +7817,7 @@ Cemeteryhills C94
 星战双线更是基本盘
 
 
------
+*****
 
 ####  xyau  
 ##### 6572#       发表于 2018-8-7 07:06
@@ -7830,7 +7830,7 @@ Cemeteryhills C94
 摸了这么久的今石洋之却用了鹤望兰娘当原画集封面，对DitF究竟是怎样的心情啊……
 
 
------
+*****
 
 ####  Shylia  
 ##### 6573#       发表于 2018-8-7 08:56
@@ -7842,7 +7842,7 @@ Cemeteryhills C94
 除非第七话都跳过，那估计就大改了，当然真这么改倒也好，本身后边就一坨，拉两边也一样。
 
 
------
+*****
 
 ####  magicz2  
 ##### 6574#       发表于 2018-8-7 09:01
@@ -7853,7 +7853,7 @@ Cemeteryhills C94
 7 8 12 13都是最重要的回数，矢吹不可能跳过的。
 
 
------
+*****
 
 ####  Shylia  
 ##### 6575#       发表于 2018-8-7 09:10
@@ -7865,7 +7865,7 @@ Cemeteryhills C94
 这我知道，16话露脸的角色提到6话省的别人who are you。不过，前边已经有区别，故弄玄虚的试探直接被矢吹画出来，到后边明眼人都看出来有问题的剧情会不会修改实际上就值得期待了，真走条不同路线或许漫画还能卖更好？
 
 
------
+*****
 
 ####  云闻先  
 ##### 6576#       发表于 2018-8-7 09:41
@@ -7874,7 +7874,7 @@ Cemeteryhills C94
 感觉今石还挺喜欢鹤望兰机娘的,咋不干脆画个零二版本的机娘呢.
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6577#       发表于 2018-8-7 09:54
@@ -7885,7 +7885,7 @@ Cemeteryhills C94
 9s原来是13队女生的废设风格……怪不得在雌蕊位啊
 
 
------
+*****
 
 ####  9α  
 ##### 6578#       发表于 2018-8-7 12:27
@@ -7900,7 +7900,7 @@ Cemeteryhills C94
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6579#       发表于 2018-8-7 12:52
@@ -7911,7 +7911,7 @@ Cemeteryhills C94
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu11m4de9nj20lc0sgdl3.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6580#       发表于 2018-8-7 14:15
@@ -7930,7 +7930,7 @@ Cemeteryhills C94
 提前出场的01，把02的杀龙宣言变成了危机感应。不过这样一来早早感应到危机还被夺去大裂隙的话是不是更菜了= -
 
 
------
+*****
 
 ####  xingenge  
 ##### 6581#       发表于 2018-8-7 14:40
@@ -7942,7 +7942,7 @@ Cemeteryhills C94
 02算是立足点之一（说不会崩，可是大家都说崩了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">）
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6582#       发表于 2018-8-7 15:18
@@ -7954,7 +7954,7 @@ Cemeteryhills C94
 原来的人设有黑发版和白发版，算不算致敬犬夜叉的黑发.白发<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6583#       发表于 2018-8-7 15:26
@@ -7964,7 +7964,7 @@ Cemeteryhills C94
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6584#       发表于 2018-8-7 15:33
@@ -8015,7 +8015,7 @@ Cemeteryhills C94
 查看全部评分
 
 
------
+*****
 
 ####  久井路路  
 ##### 6585#       发表于 2018-8-7 15:39
@@ -8026,7 +8026,7 @@ Cemeteryhills C94
 啥？“机器人的究极进化”？？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6586#       发表于 2018-8-7 15:44
@@ -8096,7 +8096,7 @@ Cemeteryhills C94
 查看全部评分
 
 
------
+*****
 
 ####  久井路路  
 ##### 6587#       发表于 2018-8-7 15:45
@@ -8108,7 +8108,7 @@ Cemeteryhills C94
 ……（已经除了面无表情地鼓掌以外什么都做不了了）
 
 
------
+*****
 
 ####  云闻先  
 ##### 6588#       发表于 2018-8-7 15:53
@@ -8126,7 +8126,7 @@ Cemeteryhills C94
 明日香+绫波+晴子+诺诺+优子+尼娅+panty&amp;stocking+.....<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">多好的点子加一起,怎么就崩了呢.
 
 
------
+*****
 
 ####  云闻先  
 ##### 6589#       发表于 2018-8-7 16:02
@@ -8137,7 +8137,7 @@ Cemeteryhills C94
 致敬了一堆宅社名作,然后没有摸到半点神髓,活生生一个外壳,真实远离gainax.<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6590#       发表于 2018-8-7 17:42
@@ -8156,7 +8156,7 @@ Cemeteryhills C94
 把5话结尾扔到这里，感觉味道也不完全一样了……
 
 
------
+*****
 
 ####  xyau  
 ##### 6591#       发表于 2018-8-7 18:39
@@ -8176,7 +8176,7 @@ Cemeteryhills C94
 不知道单元回的部分矢吹会怎么改了
 
 
------
+*****
 
 ####  alitonz  
 ##### 6592#       发表于 2018-8-7 19:43
@@ -8185,7 +8185,7 @@ Cemeteryhills C94
 这么一看似乎包含的要素还挺完整的，重新剪辑后可能会有不一样的评价，不知道有没有总集篇剧场版。
 
 
------
+*****
 
 ####  magicz2  
 ##### 6593#       发表于 2018-8-7 20:55
@@ -8194,7 +8194,7 @@ Cemeteryhills C94
 人物留白太多。
 
 
------
+*****
 
 ####  xyau  
 ##### 6594#       发表于 2018-8-7 23:48
@@ -8203,7 +8203,7 @@ Cemeteryhills C94
 明天B萌32进16有02，支持一下呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  性欲モンスター  
 ##### 6595#       发表于 2018-8-7 23:53
@@ -8216,7 +8216,7 @@ Cemeteryhills C94
 <img src="https://i.imgur.com/BPkMjqa.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6596#       发表于 2018-8-7 23:57
@@ -8230,7 +8230,7 @@ Cemeteryhills C94
 猫伊光不就是画满02那个本子的台湾画师嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  性欲モンスター  
 ##### 6597#       发表于 2018-8-8 00:11
@@ -8242,7 +8242,7 @@ Cemeteryhills C94
 那本笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6598#       发表于 2018-8-8 01:06
@@ -8254,7 +8254,7 @@ Cemeteryhills C94
 那个画ミツル・イン・ザ・ゼロツー 的画师<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6599#       发表于 2018-8-8 07:13
@@ -8269,7 +8269,7 @@ Cemeteryhills C94
 照桥心美　23398 ↑1612　❤149 ↑_7　23100 ↑1598 (_17 ↑4)
 
 
------
+*****
 
 ####  zz101896  
 ##### 6600#       发表于 2018-8-8 07:15
@@ -8278,7 +8278,7 @@ Cemeteryhills C94
 02稳的，照桥又不是月球人，翻不了
 
 
------
+*****
 
 ####  02016  
 ##### 6601#       发表于 2018-8-8 07:34
@@ -8317,7 +8317,7 @@ Yashio ‏ @so3_yashio
 <img src="http://ww1.sinaimg.cn/large/006CqqeKgy1fu1y0p5o0xj30jj0r60uh.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 6602#       发表于 2018-8-8 08:34
@@ -8326,7 +8326,7 @@ Yashio ‏ @so3_yashio
 矢吹漫畫最近情形如何了？求科普。貓伊光畫的56好可愛呀
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6603#       发表于 2018-8-8 11:24
@@ -8337,7 +8337,7 @@ Yashio ‏ @so3_yashio
 阿尔法6话出战，6话结尾216公频告白，莓莓哭没了改为5话结尾五莓戏……
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6604#       发表于 2018-8-8 11:41
@@ -8352,7 +8352,7 @@ Yashio ‏ @so3_yashio
 粉心的人设太色情了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 6605#       发表于 2018-8-8 12:08
@@ -8366,7 +8366,7 @@ Yashio ‏ @so3_yashio
 没有就好嘞
 
 
------
+*****
 
 ####  xingenge  
 ##### 6606#       发表于 2018-8-8 12:42
@@ -8411,7 +8411,7 @@ kappeさんの絵をチョイ見せです！
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu26ww0m1rj20s1072t95.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 6607#       发表于 2018-8-8 12:47
@@ -8424,7 +8424,7 @@ kappeさんの絵をチョイ見せです！
 第四张图,是我走错世界线了?<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6608#       发表于 2018-8-8 12:47
@@ -8436,7 +8436,7 @@ kappeさんの絵をチョイ見せです！
 看起来这几位新人应该是也有参与一些制作的，算是画者的私心吧
 
 
------
+*****
 
 ####  云闻先  
 ##### 6609#       发表于 2018-8-8 12:54
@@ -8447,7 +8447,7 @@ kappeさんの絵をチョイ見せです！
 可以理解私心,不过这年头还有莓广厨真的感觉挺稀奇的.不知道staff表里能不能找到他们的名字.
 
 
------
+*****
 
 ####  02016  
 ##### 6610#       发表于 2018-8-8 19:02
@@ -8462,7 +8462,7 @@ kappeさんの絵をチョイ見せです！
 心满夏日祭<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6611#       发表于 2018-8-8 19:10
@@ -8474,7 +8474,7 @@ kappeさんの絵をチョイ見せです！
 那他们看了结局岂不是对锦织敦史恨之入骨<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6612#       发表于 2018-8-8 19:14
@@ -8484,7 +8484,7 @@ kappeさんの絵をチョイ見せです！
 [https://www.pixiv.net/member_ill ... ;illust_id=70077061](https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=70077061)
 
 
------
+*****
 
 ####  Meteors  
 ##### 6613#       发表于 2018-8-8 19:16
@@ -8494,7 +8494,7 @@ kappeさんの絵をチョイ見せです！
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 6614#       发表于 2018-8-8 19:19
@@ -8560,7 +8560,7 @@ kappeさんの絵をチョイ見せです！
 <img src="http://ww4.sinaimg.cn/large/006CqqeKgy1fu2if4h6m2j30m80vdtn4.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6615#       发表于 2018-8-8 19:29
@@ -8575,7 +8575,7 @@ kappeさんの絵をチョイ見せです！
 粉心加原设定的裙子相当不得了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6616#       发表于 2018-8-8 19:29
@@ -8587,7 +8587,7 @@ kappeさんの絵をチョイ見せです！
 我也特别喜欢最后那张<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6617#       发表于 2018-8-8 19:32
@@ -8598,7 +8598,7 @@ kappeさんの絵をチョイ見せです！
 编辑
 
 
------
+*****
 
 ####  xingenge  
 ##### 6618#       发表于 2018-8-8 20:17
@@ -8607,7 +8607,7 @@ kappeさんの絵をチョイ見せです！
 老湿上色还是赞的
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6619#       发表于 2018-8-9 00:12
@@ -8631,7 +8631,7 @@ IMG_20180808_215748.jpg
 <img src="https://img.saraba1st.com/forum/201808/09/001218p1856oc465n2cc82.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6620#       发表于 2018-8-9 00:57
@@ -8643,7 +8643,7 @@ IMG_20180808_215748.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 6621#       发表于 2018-8-9 04:03
@@ -8657,7 +8657,7 @@ IMG_20180808_215748.jpg
 結果感覺劇本不是跟動畫差不多嗎...可能會糊
 
 
------
+*****
 
 ####  xingenge  
 ##### 6622#       发表于 2018-8-9 14:01
@@ -8666,7 +8666,7 @@ IMG_20180808_215748.jpg
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fu3eu3kdk5j20g70codl0.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6623#       发表于 2018-8-9 14:04
@@ -8681,7 +8681,7 @@ https://twitter.com/DARLI_FRA/status/1027434300487229440
 梅原会怎么演绎最后两话…心情复杂
 
 
------
+*****
 
 ####  Meteors  
 ##### 6624#       发表于 2018-8-9 20:01
@@ -8691,7 +8691,7 @@ https://twitter.com/DARLI_FRA/status/1027434300487229440
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  Meteors  
 ##### 6625#       发表于 2018-8-9 20:02
@@ -8701,7 +8701,7 @@ https://twitter.com/DARLI_FRA/status/1027434300487229440
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 6626#       发表于 2018-8-9 20:23
@@ -8730,7 +8730,7 @@ https://twitter.com/DARLI_FRA/status/1027434300487229440
 <img src="http://ww2.sinaimg.cn/large/006CqqeKgy1fu3ptd2kx3j31520uswl7.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6627#       发表于 2018-8-9 20:25
@@ -8740,7 +8740,7 @@ https://twitter.com/DARLI_FRA/status/1027434300487229440
 康复了就好，期待后两话的DVD版五郎
 
 
------
+*****
 
 ####  02016  
 ##### 6628#       发表于 2018-8-9 20:26
@@ -8755,7 +8755,7 @@ https://twitter.com/DARLI_FRA/status/1027434300487229440
 梅原会很喜欢最后一集不佛的五郎
 
 
------
+*****
 
 ####  Meteors  
 ##### 6629#       发表于 2018-8-9 20:52
@@ -8766,7 +8766,7 @@ https://twitter.com/DARLI_FRA/status/1027434300487229440
 编辑
 
 
------
+*****
 
 ####  xingenge  
 ##### 6630#       发表于 2018-8-10 16:41
@@ -8776,7 +8776,7 @@ Tony老师画了0215
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fu4p2nj0z1j20ir0xcb29.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  victorws  
 ##### 6631#       发表于 2018-8-10 16:51
@@ -8790,7 +8790,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id ...</blockquot
 什么鬼，太沙雕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6632#       发表于 2018-8-10 23:03
@@ -8812,7 +8812,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id ...</blockquot
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fu50434ozpj20u00u0n0z.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6633#       发表于 2018-8-10 23:07
@@ -8849,7 +8849,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id ...</blockquot
 <img src="http://wx4.sinaimg.cn/large/0060lm7Tly1fu508yic65j31kw0jqdkl.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6634#       发表于 2018-8-10 23:10
@@ -8863,7 +8863,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id ...</blockquot
 这个是只有萝卜，还是也会有驾驶员
 
 
------
+*****
 
 ####  xingenge  
 ##### 6635#       发表于 2018-8-10 23:15
@@ -8875,7 +8875,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id ...</blockquot
 他是机设，估计就是机器人美少女吧
 
 
------
+*****
 
 ####  xingenge  
 ##### 6636#       发表于 2018-8-10 23:17
@@ -8893,7 +8893,7 @@ We Are XX！！
 这场地还算是豪华了吧（有些庆功会就随便吃点，果然A爹下的A1还是比较牛逼点）
 
 
------
+*****
 
 ####  02016  
 ##### 6637#       发表于 2018-8-10 23:18
@@ -8905,7 +8905,7 @@ We Are XX！！
 原来如此，谢谢
 
 
------
+*****
 
 ####  02016  
 ##### 6638#       发表于 2018-8-10 23:19
@@ -8920,7 +8920,7 @@ We Are XX！！
 感觉很豪华了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6639#       发表于 2018-8-10 23:54
@@ -8935,7 +8935,7 @@ We Are XX！！
 群里发言：“这片从来不缺钱，就是监督缺心眼”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6640#       发表于 2018-8-11 00:01
@@ -8947,7 +8947,7 @@ We Are XX！！
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">人才
 
 
------
+*****
 
 ####  hl8243  
 ##### 6641#       发表于 2018-8-11 07:23
@@ -8959,7 +8959,7 @@ We Are XX！！
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  EN5  
 ##### 6642#       发表于 2018-8-11 07:55
@@ -8971,7 +8971,7 @@ We Are XX！！
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有力
 
 
------
+*****
 
 ####  xyau  
 ##### 6643#       发表于 2018-8-11 08:33
@@ -8982,7 +8982,7 @@ We Are XX！！
 用触手比X的01有点可爱
 
 
------
+*****
 
 ####  02016  
 ##### 6644#       发表于 2018-8-11 16:39
@@ -9076,7 +9076,7 @@ sakai_sampoダリフラ打ち上げ、<strong>三次会</strong>を中抜けし�
 また別の現場でご一緒しましょう！！
 
 
------
+*****
 
 ####  02016  
 ##### 6645#       发表于 2018-8-11 17:20
@@ -9106,7 +9106,7 @@ Drossel㌠@pxi05324
 <img src="http://ww1.sinaimg.cn/large/006CqqeKgy1fu644letn9j30xc0p0n1i.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  满月美夜子  
 ##### 6646#       发表于 2018-8-12 05:31
@@ -9118,7 +9118,7 @@ Drossel㌠@pxi05324
 哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6647#       发表于 2018-8-12 06:26
@@ -9127,7 +9127,7 @@ Drossel㌠@pxi05324
 到给02放真爱烟花的时候啦
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6648#       发表于 2018-8-12 12:03
@@ -9225,7 +9225,7 @@ Drossel㌠@pxi05324
 2018-8-12 12:03 上传
 
 
------
+*****
 
 ####  02016  
 ##### 6649#       发表于 2018-8-12 13:33
@@ -9237,7 +9237,7 @@ Drossel㌠@pxi05324
 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6650#       发表于 2018-8-12 14:45
@@ -9253,7 +9253,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 <img src="http://ww1.sinaimg.cn/large/006CqqeKly1fu6wyelp9dj30go0m877t.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6651#       发表于 2018-8-12 14:50
@@ -9278,7 +9278,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 <img src="http://ww4.sinaimg.cn/large/006CqqeKly1fu6x3xgc5mj30fa0a7doa.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6652#       发表于 2018-8-12 22:43
@@ -9296,7 +9296,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 <img src="http://i68.tinypic.com/1icznn.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 6653#       发表于 2018-8-12 22:53
@@ -9311,7 +9311,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 最后那张图不错,站在爸爸的臂弯上的小指挥官.
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6654#       发表于 2018-8-12 23:20
@@ -9320,7 +9320,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 过来避难......
 
 
------
+*****
 
 ####  xyau  
 ##### 6655#       发表于 2018-8-12 23:50
@@ -9332,7 +9332,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 去睡吧
 
 
------
+*****
 
 ####  Meteors  
 ##### 6656#       发表于 2018-8-13 01:34
@@ -9343,7 +9343,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 编辑
 
 
------
+*****
 
 ####  满月美夜子  
 ##### 6657#       发表于 2018-8-13 03:50
@@ -9355,7 +9355,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 不错，感谢分享
 
 
------
+*****
 
 ####  SaaB35  
 ##### 6658#       发表于 2018-8-13 05:38
@@ -9370,7 +9370,7 @@ RirakkumaKaito ‏ @RirakkumaKaito  
 强烈嫉妒恨案件大量发生中<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6659#       发表于 2018-8-13 07:05
@@ -9409,7 +9409,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 <img src="http://ww4.sinaimg.cn/large/006CqqeKgy1fu7padspkbj31kw0w0427.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6660#       发表于 2018-8-13 07:15
@@ -9441,7 +9441,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 <img src="http://ww2.sinaimg.cn/large/006CqqeKly1fu7pkrbh0vj30w01kw43l.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6661#       发表于 2018-8-13 17:24
@@ -9451,7 +9451,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fu871ocf72j20nk0xbtcw.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  無名の生足  
 ##### 6662#       发表于 2018-8-13 18:57
@@ -9460,7 +9460,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 失吹那本的通贩：[https://www.aniplexplus.com/itemBjFGwkCL](https://www.aniplexplus.com/itemBjFGwkCL)
 
 
------
+*****
 
 ####  02016  
 ##### 6663#       发表于 2018-8-13 21:47
@@ -9487,7 +9487,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 <img src="http://ww3.sinaimg.cn/large/007cHl0Dly1fu8eqdslq8j30sg0lctan.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 6664#       发表于 2018-8-13 21:49
@@ -9496,7 +9496,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 卧槽！！！这个五郎和小草莓好好看呀！五郎好帅呀！！为什么正片里五郎不是这样的！！
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6665#       发表于 2018-8-13 22:49
@@ -9511,7 +9511,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 已经下单了，九月中旬能到就谢天谢地<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 6666#       发表于 2018-8-13 23:04
@@ -9523,7 +9523,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 初期设定的五郎笑得好蠢，我还蛮想看这样浮夸的五郎的
 
 
------
+*****
 
 ####  xyau  
 ##### 6667#       发表于 2018-8-13 23:15
@@ -9532,7 +9532,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 这个56让我走错到情深深雨蒙蒙……
 
 
------
+*****
 
 ####  02016  
 ##### 6668#       发表于 2018-8-14 00:09
@@ -9553,7 +9553,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 <img src="http://ww1.sinaimg.cn/large/007cHl0Dgy1fu8iweldifj30jg0rs416.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6669#       发表于 2018-8-14 00:12
@@ -9565,7 +9565,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">杜飞？
 
 
------
+*****
 
 ####  xingenge  
 ##### 6670#       发表于 2018-8-14 00:14
@@ -9580,7 +9580,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 看了一下，5000+了
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 6671#       发表于 2018-8-14 09:23
@@ -9595,7 +9595,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 056和015要是这个风格,大概性格都被改了...
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6672#       发表于 2018-8-14 11:37
@@ -9628,7 +9628,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 查看全部评分
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6673#       发表于 2018-8-14 13:18
@@ -9639,7 +9639,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 初期比现在要轻浮一些的感觉
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6674#       发表于 2018-8-15 00:53
@@ -9661,7 +9661,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 2018-8-15 00:53 上传
 
 
------
+*****
 
 ####  xingenge  
 ##### 6675#       发表于 2018-8-15 18:35
@@ -9674,7 +9674,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fuakh2fr5bj20ru0sgn22.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 6676#       发表于 2018-8-15 18:52
@@ -9683,7 +9683,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 小草莓的初期性格设定和可能的表现肯定跟现在差了不少
 
 
------
+*****
 
 ####  Agsd  
 ##### 6677#       发表于 2018-8-15 19:03
@@ -9692,7 +9692,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 还在持续发病的大家<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Agsd  
 ##### 6678#       发表于 2018-8-15 19:04
@@ -9703,7 +9703,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 喔，这张好棒<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Agsd  
 ##### 6679#       发表于 2018-8-15 19:08
@@ -9714,7 +9714,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 对啊，一心一意走在喂屎的路上，打死不回头。<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Agsd  
 ##### 6680#       发表于 2018-8-15 19:11
@@ -9725,7 +9725,7 @@ CCMS、コヤマシゲトさんのダリフラ本。ちょっとエッチにセ�
 才能不足<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nexus1  
 ##### 6681#       发表于 2018-8-15 19:11
@@ -9740,7 +9740,7 @@ Drossel㌠@pxi05324
 五险一金<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6682#       发表于 2018-8-15 19:38
@@ -9754,7 +9754,7 @@ Drossel㌠@pxi05324
 绘本<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6683#       发表于 2018-8-15 19:39
@@ -9770,7 +9770,7 @@ Drossel㌠@pxi05324
 好喜欢这张<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6684#       发表于 2018-8-15 19:40
@@ -9782,7 +9782,7 @@ Drossel㌠@pxi05324
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6685#       发表于 2018-8-15 19:46
@@ -9792,7 +9792,7 @@ Drossel㌠@pxi05324
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 6686#       发表于 2018-8-15 20:32
@@ -9814,7 +9814,7 @@ Drossel㌠@pxi05324
 各イベントの日時・会場・参加費などは左の「開催スケジュール」よりイベント詳細ページをご覧ください。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6687#       发表于 2018-8-15 21:16
@@ -9832,7 +9832,7 @@ Drossel㌠@pxi05324
 就是主题同人志现场贩卖会
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 6688#       发表于 2018-8-15 21:41
@@ -9841,7 +9841,7 @@ Drossel㌠@pxi05324
 锦织哥哥还我国家队！！！
 
 
------
+*****
 
 ####  SaaB35  
 ##### 6689#       发表于 2018-8-16 00:30
@@ -9856,7 +9856,7 @@ Drossel㌠@pxi05324
 做机性恋真的难
 
 
------
+*****
 
 ####  02016  
 ##### 6690#       发表于 2018-8-16 00:47
@@ -9871,7 +9871,7 @@ Drossel㌠@pxi05324
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">国家队专场
 
 
------
+*****
 
 ####  02016  
 ##### 6691#       发表于 2018-8-16 02:16
@@ -9907,7 +9907,7 @@ Drossel㌠@pxi05324
 <img src="http://ww3.sinaimg.cn/large/007cHl0Dly1fubgthbd29j30o40xcwkx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6692#       发表于 2018-8-16 06:57
@@ -9918,7 +9918,7 @@ Drossel㌠@pxi05324
 这张太修过眉了？
 
 
------
+*****
 
 ####  02016  
 ##### 6693#       发表于 2018-8-16 12:55
@@ -9930,7 +9930,7 @@ Drossel㌠@pxi05324
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">修眉+减肥了
 
 
------
+*****
 
 ####  02016  
 ##### 6694#       发表于 2018-8-16 13:00
@@ -9970,7 +9970,7 @@ OIDE@yoshi2_oide
 <img src="http://ww2.sinaimg.cn/large/007cHl0Dly1fubgdjmd3aj30k40sgq7e.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6695#       发表于 2018-8-17 07:04
@@ -9982,7 +9982,7 @@ OIDE@yoshi2_oide
 <img src="http://i65.tinypic.com/zx3dvs.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6696#       发表于 2018-8-17 11:58
@@ -10013,7 +10013,7 @@ OIDE@yoshi2_oide
 <img src="http://ww3.sinaimg.cn/large/007cHl0Dly1fuck5amksgj31cq1kw0w5.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6697#       发表于 2018-8-17 13:48
@@ -10030,7 +10030,7 @@ HIDEN@hirekusking，
 <img src="http://ww1.sinaimg.cn/large/007cHl0Dly1fucnbnimpqj31kw1kg49j.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6698#       发表于 2018-8-17 15:46
@@ -10042,7 +10042,7 @@ HIDEN@hirekusking，
 好像印刷出了一点问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://i.loli.net/2018/08/17/5b768032a073c.jpg" referrerpolicy="no-referrer">第二份文件夹
 
 
------
+*****
 
 ####  xyau  
 ##### 6699#       发表于 2018-8-17 17:10
@@ -10057,7 +10057,7 @@ HIDEN@hirekusking，
 <img src="http://i66.tinypic.com/2zgtfyd.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  神之叹息  
 ##### 6700#       发表于 2018-8-17 17:15
@@ -10066,7 +10066,7 @@ HIDEN@hirekusking，
 我看这楼顶上来，还以为有什么续作消息了。。
 
 
------
+*****
 
 ####  云闻先  
 ##### 6701#       发表于 2018-8-17 17:39
@@ -10083,7 +10083,7 @@ HIDEN@hirekusking，
 果然是开训练机那一首,挺符合他不顾生死的风格的.可惜完全被剧情浪费了.
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6702#       发表于 2018-8-17 19:35
@@ -10112,7 +10112,7 @@ HIDEN@hirekusking，
 8、答疑
 
 
------
+*****
 
 ####  竹下紫一  
 ##### 6703#       发表于 2018-8-17 20:01
@@ -10121,7 +10121,7 @@ HIDEN@hirekusking，
 其实结局我看的不是很懂
 
 
------
+*****
 
 ####  xyau  
 ##### 6704#       发表于 2018-8-17 22:23
@@ -10154,7 +10154,7 @@ xjb翻
 我认为在展示自己描绘的画面同时，能遵循从开始到完成的过程说明这个画面的意义和目的。至今未曾展示的素材相当多，因此会谈到各种各样的故事。我想将是一个在观赏和聆听中获得乐趣的研讨会。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6705#       发表于 2018-8-17 22:27
@@ -10163,7 +10163,7 @@ xjb翻
 ost3试听
 
 
------
+*****
 
 ####  云闻先  
 ##### 6706#       发表于 2018-8-17 23:10
@@ -10172,7 +10172,7 @@ ost3试听
 反复听了好几遍CODE:016,眼前仿佛出现了一代又一代从低谷中奋起,最终冲向天空的少年的身影.这首曲子或许不能简单归类于燃,打破束缚那种意境更加的抽象.可惜了.
 
 
------
+*****
 
 ####  xyau  
 ##### 6707#       发表于 2018-8-17 23:16
@@ -10186,7 +10186,7 @@ ost3试听
 <img src="http://i64.tinypic.com/sauyib.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6708#       发表于 2018-8-17 23:37
@@ -10195,7 +10195,7 @@ ost3试听
 原来有OST3了，还行
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6709#       发表于 2018-8-17 23:38
@@ -10204,7 +10204,7 @@ ost3试听
 07印象不深，感觉橘麻美真的还行……
 
 
------
+*****
 
 ####  Meteors  
 ##### 6710#       发表于 2018-8-18 05:42
@@ -10214,7 +10214,7 @@ ost3试听
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xingenge  
 ##### 6711#       发表于 2018-8-18 11:02
@@ -10226,7 +10226,7 @@ Blu-ray＆DVD5巻～8巻店舗特典描き下ろしイラストを公開！
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fudo8f3m3jj20xb0gp789.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6712#       发表于 2018-8-18 11:37
@@ -10242,7 +10242,7 @@ Blu-ray＆DVD5巻～8巻店舗特典描き下ろしイラストを公開！</blo
 <img src="http://ww3.sinaimg.cn/large/007cHl0Dgy1fudpgbmub5j30ck0hydms.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6713#       发表于 2018-8-18 11:39
@@ -10254,7 +10254,7 @@ Blu-ray＆DVD5巻～8巻店舗特典描き下ろしイラストを公開！</blo
 因为画师不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6714#       发表于 2018-8-18 11:56
@@ -10286,7 +10286,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 <img src="http://i64.tinypic.com/2elwj21.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6715#       发表于 2018-8-18 13:52
@@ -10296,7 +10296,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xyau  
 ##### 6716#       发表于 2018-8-18 17:33
@@ -10308,7 +10308,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 <img src="http://i65.tinypic.com/2hy7lw.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6717#       发表于 2018-8-18 17:56
@@ -10323,7 +10323,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fue06tldk2j20xc0p0e6o.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6718#       发表于 2018-8-18 17:58
@@ -10339,7 +10339,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 一眼就看到“无口”
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6719#       发表于 2018-8-18 18:28
@@ -10354,7 +10354,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 想起以前同克隆来源假药
 
 
------
+*****
 
 ####  626704053  
 ##### 6720#       发表于 2018-8-18 19:01
@@ -10365,7 +10365,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6721#       发表于 2018-8-18 19:05
@@ -10374,7 +10374,7 @@ CloverWorks [@CloverWorks](https://twitter.com/CloverWorks/status/10306545388840
 绝了，郁乃的原案上写的「レズ、匂いフェチ、変態」蕾丝、气味控、变态，而且还有イクノはしっかりイチゴの服嗅いでる絵郁乃闻草莓衣服的画
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6722#       发表于 2018-8-18 19:26
@@ -10389,7 +10389,7 @@ miku：eva-明日香
 郁乃：那朵花-鹤子
 
 
------
+*****
 
 ####  02016  
 ##### 6723#       发表于 2018-8-18 19:28
@@ -10414,7 +10414,7 @@ miku：eva-明日香
 叫竜仕様に換装した各機の設定画も紹介されたが、それぞれ「デルフィニウムPS」「アルジェンティアCY」「クロロフィッツGR」と銘打たれてた。なんだこの記号？
 
 
------
+*****
 
 ####  02016  
 ##### 6724#       发表于 2018-8-18 19:34
@@ -10471,7 +10471,7 @@ miku：eva-明日香
 行って良かった
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6725#       发表于 2018-8-18 19:34
@@ -10486,7 +10486,7 @@ miku：eva-明日香
 心满的剧情很早就定下来了，初期人物草案里就写明了心会和满在一起，一开始还没定下来假搭档是哪个（666、214、甚至56）
 
 
------
+*****
 
 ####  02016  
 ##### 6726#       发表于 2018-8-18 19:42
@@ -10498,7 +10498,7 @@ miku：eva-明日香
 果然是早定下来的<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6727#       发表于 2018-8-18 19:46
@@ -10536,7 +10536,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 查看全部评分
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6728#       发表于 2018-8-18 19:54
@@ -10575,7 +10575,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 2018-8-18 20:01 上传
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6729#       发表于 2018-8-18 19:56
@@ -10586,7 +10586,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 大家不要做这样的人<img src="https://i.loli.net/2018/08/18/5b78097d638b6.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6730#       发表于 2018-8-18 20:19
@@ -10626,7 +10626,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 いや言われてみれば「ああなる程」ってなるのだけど。しかしやっぱりこういうヒトの原体験は80年代やねぇ。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6731#       发表于 2018-8-18 20:35
@@ -10638,7 +10638,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 想一想二广厨莓满上翠雀的可能性……莓满和五心换机就成了各取所需…翠雀组莓满打架（还都上过鹤望兰失败一次），金雀组五心来劝架，而吵架源头216一边莫名其妙/看戏233 这个金雀-翠雀-鹤望兰一条直线展开很好玩啊~
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6732#       发表于 2018-8-18 20:36
@@ -10664,7 +10664,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 2018-8-18 20:36 上传
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6733#       发表于 2018-8-18 20:38
@@ -10673,7 +10673,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">莓想到八月了还在接受炖屎的荼毒
 
 
------
+*****
 
 ####  xingenge  
 ##### 6734#       发表于 2018-8-18 20:44
@@ -10682,7 +10682,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 男式晚礼服是什么鬼，所以大02就是结婚姿态了，其他都是伴郎？
 
 
------
+*****
 
 ####  お菓子食べたい  
 ##### 6735#       发表于 2018-8-18 20:44
@@ -10697,7 +10697,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 就是不知道日拍能不能抢到
 
 
------
+*****
 
 ####  xingenge  
 ##### 6736#       发表于 2018-8-18 20:53
@@ -10706,7 +10706,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 在之前新闻报道中，锦织提到的“02角色印象”的原型不是“拉姆（福星小子）”而是“橙路的鲇川圆”（这个楼上有提到了）
 
 
------
+*****
 
 ####  马肉刺身  
 ##### 6737#       发表于 2018-8-18 20:56
@@ -10715,7 +10715,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">   hyde版本的kiss of death真是好好听啊啊啊
 
 
------
+*****
 
 ####  xingenge  
 ##### 6738#       发表于 2018-8-18 21:07
@@ -10724,7 +10724,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fue5epwuomj20kc0d9qet.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6739#       发表于 2018-8-18 21:22
@@ -10739,7 +10739,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 真的太甜了<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6740#       发表于 2018-8-18 21:44
@@ -10852,7 +10852,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 みたいな話は笑いそうになった
 
 
------
+*****
 
 ####  xingenge  
 ##### 6741#       发表于 2018-8-18 21:57
@@ -10861,7 +10861,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 フトシはデプではなく体育会系の予定だった……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6742#       发表于 2018-8-18 21:57
@@ -10910,7 +10910,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 田中先生の総作監ファイルがキャラクター別にまとめられてて、どれかみたいなありますか？って時にミツルがいいですって発言しようとしたら先にヒロの声が上がったの、ミツルはやっぱりヒロには勝てないキャラなんだなというところで自分の気持ちに整理がついた  #ダリフラ #アニセミ
 
 
------
+*****
 
 ####  02016  
 ##### 6743#       发表于 2018-8-18 21:59
@@ -10922,7 +10922,7 @@ SAMPLEを消してみる、雑でごめんなさい。
 6742楼又补充了一点
 
 
------
+*****
 
 ####  xyau  
 ##### 6744#       发表于 2018-8-18 22:02
@@ -10941,7 +10941,7 @@ FUN'S PROJECTでは会場のご協力をさせていただきました！
 <img src="http://i65.tinypic.com/296nqis.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6745#       发表于 2018-8-18 22:10
@@ -10984,7 +10984,7 @@ ED的学生服女生们有平行世界的里设定，锦织说可以随意二次
 查看全部评分
 
 
------
+*****
 
 ####  02016  
 ##### 6746#       发表于 2018-8-18 22:14
@@ -11005,7 +11005,7 @@ ED的学生服女生们有平行世界的里设定，锦织说可以随意二次
 可以随意二次创作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我更希望官方能再出个平行世界的国家队
 
 
------
+*****
 
 ####  02016  
 ##### 6747#       发表于 2018-8-18 22:18
@@ -11017,7 +11017,7 @@ ED的学生服女生们有平行世界的里设定，锦织说可以随意二次
 是不是代表最初国家队的背景是普通的校园<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  お菓子食べたい  
 ##### 6748#       发表于 2018-8-18 22:23
@@ -11032,7 +11032,7 @@ FUN’S PROJECT公式 @FUNS_PROJECT</blockquote>
 这阵仗画风真国学
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6749#       发表于 2018-8-18 22:23
@@ -11041,7 +11041,7 @@ FUN’S PROJECT公式 @FUNS_PROJECT</blockquote>
 那岂不是只有心满在ed里就成了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6750#       发表于 2018-8-18 22:31
@@ -11050,7 +11050,7 @@ FUN’S PROJECT公式 @FUNS_PROJECT</blockquote>
 第1话，02把16拖进黑暗中，第13话，16把02拉进光明中
 
 
------
+*****
 
 ####  xingenge  
 ##### 6751#       发表于 2018-8-18 22:34
@@ -11059,7 +11059,7 @@ FUN’S PROJECT公式 @FUNS_PROJECT</blockquote>
 A爹陪着锦织哥哥做了本大型同人志影像？？？
 
 
------
+*****
 
 ####  xingenge  
 ##### 6752#       发表于 2018-8-18 22:35
@@ -11068,7 +11068,7 @@ A爹陪着锦织哥哥做了本大型同人志影像？？？
 锦织哥哥还是说自己会承担责任了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6753#       发表于 2018-8-18 22:47
@@ -11080,7 +11080,7 @@ A爹陪着锦织哥哥做了本大型同人志影像？？？
 ファランクス（古代ギリシャ語: φάλαγξ、phalanx）は、古代において用いられた重装歩兵による密集陣形である。 集団が一丸となって攻撃するファランクスは会戦において威力を発揮した。
 
 
------
+*****
 
 ####  xingenge  
 ##### 6754#       发表于 2018-8-18 22:48
@@ -11089,7 +11089,7 @@ A爹陪着锦织哥哥做了本大型同人志影像？？？
 鹤望兰阿帕斯和FRANXX 宇宙ver.是5月24日决定的，大概18话播出之后
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6755#       发表于 2018-8-18 22:56
@@ -11124,7 +11124,7 @@ miku→02：怪物，早点消失吧
 2018-8-18 22:56 上传
 
 
------
+*****
 
 ####  02016  
 ##### 6756#       发表于 2018-8-18 23:04
@@ -11133,7 +11133,7 @@ miku→02：怪物，早点消失吧
 期待已久的漫画大海泳装回来了[https://shonenjumpplus.com/episode/10834108156633726662](https://shonenjumpplus.com/episode/10834108156633726662)  <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">希望快点画到小镇冒险
 
 
------
+*****
 
 ####  02016  
 ##### 6757#       发表于 2018-8-18 23:08
@@ -11145,7 +11145,7 @@ miku→02：怪物，早点消失吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">是不是变成只有心满两个人去探险了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6758#       发表于 2018-8-18 23:19
@@ -11157,7 +11157,7 @@ miku→02：怪物，早点消失吧
 是
 
 
------
+*****
 
 ####  02016  
 ##### 6759#       发表于 2018-8-18 23:23
@@ -11169,7 +11169,7 @@ miku→02：怪物，早点消失吧
 这个改动太好了，超级期待
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6760#       发表于 2018-8-18 23:25
@@ -11180,7 +11180,7 @@ miku→02：怪物，早点消失吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">比正片在那耗时间感觉好多了
 
 
------
+*****
 
 ####  02016  
 ##### 6761#       发表于 2018-8-18 23:28
@@ -11192,7 +11192,7 @@ miku→02：怪物，早点消失吧
 速度加快了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6762#       发表于 2018-8-18 23:28
@@ -11206,7 +11206,7 @@ miku→02：怪物，早点消失吧
 <img src="http://i68.tinypic.com/29ntslz.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6763#       发表于 2018-8-18 23:30
@@ -11228,7 +11228,7 @@ miku→02：怪物，早点消失吧
 <img src="https://img.saraba1st.com/forum/201808/18/233014apulph2qphup1tc1.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6764#       发表于 2018-8-18 23:31
@@ -11242,7 +11242,7 @@ miku→02：怪物，早点消失吧
 左边的签名很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6765#       发表于 2018-8-18 23:35
@@ -11251,7 +11251,7 @@ miku→02：怪物，早点消失吧
 最早イクノ在紧急事态发生的时候与イチゴ一同搭乘却没启动，最后由ゼロツー完成交接
 
 
------
+*****
 
 ####  02016  
 ##### 6766#       发表于 2018-8-18 23:36
@@ -11263,7 +11263,7 @@ miku→02：怪物，早点消失吧
 谢谢，一直想看这个图
 
 
------
+*****
 
 ####  Meteors  
 ##### 6767#       发表于 2018-8-18 23:37
@@ -11273,7 +11273,7 @@ miku→02：怪物，早点消失吧
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6768#       发表于 2018-8-18 23:38
@@ -11284,7 +11284,7 @@ miku→02：怪物，早点消失吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6769#       发表于 2018-8-18 23:39
@@ -11295,7 +11295,7 @@ miku→02：怪物，早点消失吧
 编辑
 
 
------
+*****
 
 ####  お菓子食べたい  
 ##### 6770#       发表于 2018-8-18 23:51
@@ -11309,7 +11309,7 @@ miku→02：怪物，早点消失吧
 哈哈哈哈哈郁乃的缜密心思<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6771#       发表于 2018-8-19 00:25
@@ -11318,7 +11318,7 @@ miku→02：怪物，早点消失吧
 中岛说，今石最初对叫龙的设计是很大的像怪物一样的存在，有像人身体的部件附着，锦织和他的想法结合不起来（吐槽：所以合作崩了，跑路？）
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 6772#       发表于 2018-8-19 01:59
@@ -11330,7 +11330,7 @@ miku→02：怪物，早点消失吧
 确实蝈蝈对配色之类的细节还是蛮讲究的，包括留在地球的机体，所有人都像穿了正装一样。巨大化02也是白色的，像是新娘一样
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6773#       发表于 2018-8-19 09:06
@@ -11388,7 +11388,7 @@ miku→02：怪物，早点消失吧
 2018-8-19 09:05 上传
 
 
------
+*****
 
 ####  xyau  
 ##### 6774#       发表于 2018-8-19 10:29
@@ -11399,7 +11399,7 @@ miku→02：怪物，早点消失吧
 いいえ、同人誌のようなものとされたのはオリジナルアニメタイトルの企画書のことです。ガーッと書いて少部数のコピー誌の体裁にして同好の士(参画を求める未来の人材)に見せるという性質が「同人誌みたいなもの」と指摘されたんです。風説は怖いなw
 
 
------
+*****
 
 ####  xingenge  
 ##### 6775#       发表于 2018-8-19 11:12
@@ -11408,7 +11408,7 @@ miku→02：怪物，早点消失吧
 <img src="https://wx4.sinaimg.cn/mw1024/740ca5e5gy1fueeq9z8qkg20go0chjz3.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shylia  
 ##### 6776#       发表于 2018-8-20 07:49
@@ -11420,7 +11420,7 @@ miku→02：怪物，早点消失吧
 结合阿帕斯和宇宙大战是三部结束开始做的，应该是原本那双大手，想法合不来改成阿帕斯吧？
 
 
------
+*****
 
 ####  xingenge  
 ##### 6777#       发表于 2018-8-20 09:17
@@ -11434,7 +11434,7 @@ miku→02：怪物，早点消失吧
 之前可能还会争论，所以会更好点，之后锦织哥哥任性了，可能也就无视那里了
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6778#       发表于 2018-8-20 18:58
@@ -11445,7 +11445,7 @@ miku→02：怪物，早点消失吧
 但是最后便宜了56啊……
 
 
------
+*****
 
 ####  Meteors  
 ##### 6779#       发表于 2018-8-20 19:08
@@ -11455,7 +11455,7 @@ miku→02：怪物，早点消失吧
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xingenge  
 ##### 6780#       发表于 2018-8-20 19:30
@@ -11468,7 +11468,7 @@ miku→02：怪物，早点消失吧
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fuge4jd430j20xb0ozjw7.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6781#       发表于 2018-8-21 07:03
@@ -11480,7 +11480,7 @@ C95申し込み完了しました。宜しくお願いしますー。
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fugy6tjb6oj20hn0p3kar.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  AminGly  
 ##### 6782#       发表于 2018-8-21 19:19
@@ -11489,7 +11489,7 @@ C95申し込み完了しました。宜しくお願いしますー。
 矢吹老师现在是什么心态呢
 
 
------
+*****
 
 ####  02016  
 ##### 6783#       发表于 2018-8-22 00:26
@@ -11503,7 +11503,7 @@ C95申し込み完了しました。宜しくお願いしますー。</blockquot
 这个推主和tarou2是不是同一个人
 
 
------
+*****
 
 ####  xingenge  
 ##### 6784#       发表于 2018-8-22 00:54
@@ -11515,7 +11515,7 @@ C95申し込み完了しました。宜しくお願いしますー。</blockquot
 岩崎将大所属的社团
 
 
------
+*****
 
 ####  xyau  
 ##### 6785#       发表于 2018-8-22 18:00
@@ -11528,7 +11528,7 @@ C95申し込み完了しました。宜しくお願いしますー。</blockquot
 <img src="http://i66.tinypic.com/rr09jo.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6786#       发表于 2018-8-22 21:34
@@ -11540,7 +11540,7 @@ C95申し込み完了しました。宜しくお願いしますー。</blockquot
 谢谢，难怪看岩崎将大转发这条推特，而且画也记得是岩崎画的
 
 
------
+*****
 
 ####  云闻先  
 ##### 6787#       发表于 2018-8-23 07:15
@@ -11551,7 +11551,7 @@ C95申し込み完了しました。宜しくお願いしますー。</blockquot
 这幅0215是米山舞画的吧.
 
 
------
+*****
 
 ####  xingenge  
 ##### 6788#       发表于 2018-8-23 10:43
@@ -11561,7 +11561,7 @@ C95申し込み完了しました。宜しくお願いしますー。</blockquot
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fujfstexl9j21gu0pqwny.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6789#       发表于 2018-8-23 15:21
@@ -11578,7 +11578,7 @@ C95申し込み完了しました。宜しくお願いしますー。</blockquot
 002015 [https://twitter.com/yonema/status/995805387969282048](https://twitter.com/yonema/status/995805387969282048)
 
 
------
+*****
 
 ####  02016  
 ##### 6790#       发表于 2018-8-23 15:22
@@ -11590,7 +11590,7 @@ https://www.pixiv.net/contest/darli-fra</blockquote>
 这个活动好，有机会看很多优秀作品
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 6791#       发表于 2018-8-23 16:31
@@ -11604,7 +11604,7 @@ https://www.pixiv.net/contest/darli-fra</blockquote>
 <img src="https://wx4.sinaimg.cn/mw690/70745653ly1fujphf2s7cj20eb0cx402.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6792#       发表于 2018-8-23 23:07
@@ -11614,7 +11614,7 @@ https://www.pixiv.net/contest/darli-fra</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  云闻先  
 ##### 6793#       发表于 2018-8-24 06:38
@@ -11623,7 +11623,7 @@ https://www.pixiv.net/contest/darli-fra</blockquote>
 已经不错了(
 
 
------
+*****
 
 ####  xyau  
 ##### 6794#       发表于 2018-8-24 09:54
@@ -11635,7 +11635,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 "想变成那只猫！"
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6795#       发表于 2018-8-24 10:03
@@ -11658,7 +11658,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 2018-8-24 10:02 上传
 
 
------
+*****
 
 ####  xyau  
 ##### 6796#       发表于 2018-8-24 18:03
@@ -11673,7 +11673,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 <img src="https://i.imgur.com/NTxK6ye.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6797#       发表于 2018-8-25 03:05
@@ -11685,7 +11685,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fuldswe5stj20kt0rsjty.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6798#       发表于 2018-8-25 23:09
@@ -11695,7 +11695,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 [看发卡的56和水着15福利](https://shonenjumpplus.com/episode/10834108156634350676)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6799#       发表于 2018-8-28 10:01
@@ -11708,7 +11708,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 56这个画的侧颜还挺赞的
 
 
------
+*****
 
 ####  xyau  
 ##### 6800#       发表于 2018-8-28 11:13
@@ -11720,7 +11720,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 <img src="https://i.imgur.com/0xxbapj.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6801#       发表于 2018-8-29 00:25
@@ -11734,7 +11734,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 14集的封面内容真丰富<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6802#       发表于 2018-8-29 00:46
@@ -11745,7 +11745,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 台本封面<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6803#       发表于 2018-8-29 00:50
@@ -11760,7 +11760,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 <img src="http://ww3.sinaimg.cn/large/007cHl0Dly1fupwcni813j316o1kwall.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6804#       发表于 2018-8-29 00:51
@@ -11774,7 +11774,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 6803楼补了张大图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6805#       发表于 2018-8-29 05:35
@@ -11786,7 +11786,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 <img src="https://i.imgur.com/m5KZFlJ.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6806#       发表于 2018-8-29 05:53
@@ -11815,7 +11815,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 而我们仍不知道这绘本从何而来，那个蓝人究竟是谁……
 
 
------
+*****
 
 ####  xingenge  
 ##### 6807#       发表于 2018-8-29 09:02
@@ -11833,7 +11833,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fuqajwc82yj20s20cnq58.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华发夜眼[CN]  
 ##### 6808#       发表于 2018-8-29 09:06
@@ -11842,7 +11842,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 之前看到一个02的趴趴枕，有小草莓的吗
 
 
------
+*****
 
 ####  云闻先  
 ##### 6809#       发表于 2018-8-29 09:13
@@ -11855,7 +11855,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 第六卷这么挤 剩下两卷怎么玩
 
 
------
+*****
 
 ####  02016  
 ##### 6810#       发表于 2018-8-29 09:14
@@ -11869,7 +11869,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 这卷大BOSS没上，那会不会第七卷是七贤人，第八卷十三小队全家福
 
 
------
+*****
 
 ####  hl8243  
 ##### 6811#       发表于 2018-8-29 11:05
@@ -11885,7 +11885,7 @@ https://ameblo.jp/gsc-mikatan/entry-12399637035.html
 可惜  不知道还能不能看到
 
 
------
+*****
 
 ####  626704053  
 ##### 6812#       发表于 2018-8-29 13:03
@@ -11896,7 +11896,7 @@ ost3也出了啊手机竟然能发图了！我好感动！
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
------
+*****
 
 ####  626704053  
 ##### 6813#       发表于 2018-8-29 13:04
@@ -11907,7 +11907,7 @@ ost3也出了啊手机竟然能发图了！我好感动！
 。为啥我还是发不了图。。
 
 
------
+*****
 
 ####  02016  
 ##### 6814#       发表于 2018-8-29 13:49
@@ -11939,7 +11939,7 @@ ost3也出了啊手机竟然能发图了！我好感动！
 查看全部评分
 
 
------
+*****
 
 ####  xyau  
 ##### 6815#       发表于 2018-8-29 21:24
@@ -11963,7 +11963,7 @@ All three creators come to CRX with celebrated careers in the anime industry, wo
 被福岛P的表情戳中笑点。
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6816#       发表于 2018-8-29 22:11
@@ -11972,7 +11972,7 @@ All three creators come to CRX with celebrated careers in the anime industry, wo
 ditf left a huge mark on anime 爱好者！
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6817#       发表于 2018-8-29 22:27
@@ -11988,7 +11988,7 @@ ditf left a huge mark on anime 爱好者！
 话说这是广的预知梦？
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6818#       发表于 2018-8-29 22:29
@@ -11999,7 +11999,7 @@ ditf left a huge mark on anime 爱好者！
 有可能是franxx全家福？
 
 
------
+*****
 
 ####  02016  
 ##### 6819#       发表于 2018-8-30 00:26
@@ -12011,7 +12011,7 @@ ditf left a huge mark on anime 爱好者！
 可以第七卷七贤人和紫星人，第八卷背景五台弗兰克斯左边显要位置216，右边在地球的八个人成年后的样子
 
 
------
+*****
 
 ####  02016  
 ##### 6820#       发表于 2018-8-30 00:27
@@ -12025,7 +12025,7 @@ ditf left a huge mark on anime 爱好者！
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看着像是预知梦
 
 
------
+*****
 
 ####  xyau  
 ##### 6821#       发表于 2018-8-30 20:29
@@ -12044,7 +12044,7 @@ ditf left a huge mark on anime 爱好者！
 「そういうちょっと病的な部分も含ませたい」
 
 
------
+*****
 
 ####  Meteors  
 ##### 6822#       发表于 2018-8-30 22:22
@@ -12054,7 +12054,7 @@ ditf left a huge mark on anime 爱好者！
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 6823#       发表于 2018-9-1 23:10
@@ -12074,7 +12074,7 @@ ditf left a huge mark on anime 爱好者！
 <img src="http://wx4.sinaimg.cn/large/0060lm7Tly1fuug8mzp6tj30t90lc4ke.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6824#       发表于 2018-9-1 23:12
@@ -12086,7 +12086,7 @@ ditf left a huge mark on anime 爱好者！
 感觉小满和大家的互动很不错，结局也很好<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6825#       发表于 2018-9-2 11:09
@@ -12099,7 +12099,7 @@ ditf left a huge mark on anime 爱好者！
 满的表情好丰富(✪▽✪)
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6826#       发表于 2018-9-2 11:12
@@ -12112,7 +12112,7 @@ ditf left a huge mark on anime 爱好者！
 现在心是蹲在了地上，应该不止拉过来那么简单了吧😍
 
 
------
+*****
 
 ####  02016  
 ##### 6827#       发表于 2018-9-2 14:58
@@ -12138,7 +12138,7 @@ ditf left a huge mark on anime 爱好者！
 <img src="http://ww1.sinaimg.cn/large/006LWy2zly1fuv7cufo6gj318710wgt7.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6828#       发表于 2018-9-2 15:00
@@ -12150,7 +12150,7 @@ ditf left a huge mark on anime 爱好者！
 救人的时候抱在一起，手抓到柔软的地方之类的展开<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6829#       发表于 2018-9-2 15:25
@@ -12162,7 +12162,7 @@ ditf left a huge mark on anime 爱好者！
 这里估计不会这么谐，可能会把满之前和02开机的的重伤给转到这里来
 
 
------
+*****
 
 ####  02016  
 ##### 6830#       发表于 2018-9-2 15:28
@@ -12175,7 +12175,7 @@ ditf left a huge mark on anime 爱好者！
 <img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 6831#       发表于 2018-9-2 15:30
@@ -12187,7 +12187,7 @@ ditf left a huge mark on anime 爱好者！
 这么设计实在鬼才,被铭刻在世界线里的伤势.<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6832#       发表于 2018-9-2 15:34
@@ -12200,7 +12200,7 @@ ditf left a huge mark on anime 爱好者！
 浴室篇这两人也没啥福利贡献吧，两边打架，心照顾满然后说出国8的台词，反而更具说服力；并且福利的话……矢吹老师都强行上了多少福利了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">浴室这种根本没有必要好伐
 
 
------
+*****
 
 ####  02016  
 ##### 6833#       发表于 2018-9-2 15:41
@@ -12212,7 +12212,7 @@ ditf left a huge mark on anime 爱好者！
 也不错，和这周一样两条线并行，心照顾受伤的满，再加点矢吹原创的东西<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6834#       发表于 2018-9-2 17:26
@@ -12228,7 +12228,7 @@ So awesome!!!
 <img src="https://i.imgur.com/NWaWh6N.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6835#       发表于 2018-9-3 01:18
@@ -12238,7 +12238,7 @@ So awesome!!!
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xingenge  
 ##### 6836#       发表于 2018-9-3 08:56
@@ -12250,7 +12250,7 @@ So awesome!!!
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fuw2h22mwdj20p00xc1kx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6837#       发表于 2018-9-3 10:07
@@ -12263,7 +12263,7 @@ So awesome!!!
 本来就扭曲吧……不过砸完以后导致数值下降从而心主动换机，这个过渡会比国11要好些
 
 
------
+*****
 
 ####  amulelernen  
 ##### 6838#       发表于 2018-9-3 10:08
@@ -12276,7 +12276,7 @@ So awesome!!!
 本来就扭曲吧……不过砸完以后导致数值下降从而心主动换机，这个过渡会比国11要好些
 
 
------
+*****
 
 ####  xyau  
 ##### 6839#       发表于 2018-9-3 10:20
@@ -12324,7 +12324,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 <img src="https://i.imgur.com/7fbgsHC.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6840#       发表于 2018-9-3 10:35
@@ -12357,7 +12357,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 查看全部评分
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6841#       发表于 2018-9-3 14:56
@@ -12379,7 +12379,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 五莓合志
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6842#       发表于 2018-9-3 22:42
@@ -12406,7 +12406,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 查看全部评分
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6843#       发表于 2018-9-3 22:44
@@ -12417,7 +12417,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 太草了
 
 
------
+*****
 
 ####  winoros  
 ##### 6844#       发表于 2018-9-3 22:45
@@ -12428,7 +12428,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 草生
 
 
------
+*****
 
 ####  云闻先  
 ##### 6845#       发表于 2018-9-3 22:57
@@ -12442,7 +12442,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 太缺德了.为什么要这么对零二和莓.机娘零二后面那些玩意,我怎么越看越像浮游炮<img src="https://static.saraba1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 6846#       发表于 2018-9-3 23:10
@@ -12451,7 +12451,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 {:1467_1726:}发点小02不好吗
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 6847#       发表于 2018-9-3 23:12
@@ -12460,7 +12460,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 那几个coser是什么情况。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6848#       发表于 2018-9-3 23:13
@@ -12472,7 +12472,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6849#       发表于 2018-9-3 23:14
@@ -12485,7 +12485,7 @@ Nishigori: That's a difficult question, at the moment I wouldn't be able to answ
 编辑<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6850#       发表于 2018-9-3 23:16
@@ -12607,7 +12607,7 @@ Also, just wanted to note that one of the concept designs of 02 featured her in 
 查看全部评分
 
 
------
+*****
 
 ####  Meteors  
 ##### 6851#       发表于 2018-9-3 23:31
@@ -12617,7 +12617,7 @@ Also, just wanted to note that one of the concept designs of 02 featured her in 
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 6852#       发表于 2018-9-4 00:01
@@ -12629,7 +12629,7 @@ Also, just wanted to note that one of the concept designs of 02 featured her in 
 {:1467_1707:}真巨型
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 6853#       发表于 2018-9-4 00:23
@@ -12644,7 +12644,7 @@ The last question of  ...</blockquote>
 锦织居然觉得这是最好的结局，迫真种族主义纳粹肥仔锦织炖屎
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6854#       发表于 2018-9-4 00:29
@@ -12766,7 +12766,7 @@ The last question of  ...</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  02016  
 ##### 6855#       发表于 2018-9-4 00:50
@@ -12780,7 +12780,7 @@ The last question of  ...</blockquote>
 谢谢，翻译辛苦了{:1467_1707:}
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6856#       发表于 2018-9-4 01:51
@@ -12814,7 +12814,7 @@ DIF到了，扫了一张修了一下，太费劲了。。
 查看全部评分
 
 
------
+*****
 
 ####  xyau  
 ##### 6857#       发表于 2018-9-4 07:07
@@ -12826,7 +12826,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 <img src="https://i.imgur.com/akSI8nm.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6858#       发表于 2018-9-4 07:08
@@ -12835,7 +12835,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 锦织，你下次做动画的时候别强欲了，找个正常人听听意见<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这都是什么鬼想法
 
 
------
+*****
 
 ####  a4840639  
 ##### 6859#       发表于 2018-9-4 08:49
@@ -12846,7 +12846,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 如果我没记错的话他好像说原田孝宏就是鹤卷和哉的马甲。（我就记得他说的那人姓hanada或者harada，翻了半天DiTF的职员表只有这个原田孝宏符合，而且原田孝宏这人在网上根本找不到任何作品之外的信息也是可疑）
 
 
------
+*****
 
 ####  magicz2  
 ##### 6860#       发表于 2018-9-4 08:57
@@ -12859,7 +12859,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 原田孝宏是个弟中弟啊，不太可能是鹤卷。
 
 
------
+*****
 
 ####  a4840639  
 ##### 6861#       发表于 2018-9-4 09:04
@@ -12874,7 +12874,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 我的理解是堂堂Khara董事想在外面接活就只能挂个马甲扮猪吃老虎
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 6862#       发表于 2018-9-4 09:17
@@ -12886,7 +12886,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  a4840639  
 ##### 6863#       发表于 2018-9-4 09:41
@@ -12903,7 +12903,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 肯能说的只是ED我理解错了
 
 
------
+*****
 
 ####  云闻先  
 ##### 6864#       发表于 2018-9-4 10:15
@@ -12914,7 +12914,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 今日第二笑话:工具广.
 
 
------
+*****
 
 ####  xyau  
 ##### 6865#       发表于 2018-9-4 10:55
@@ -12927,7 +12927,7 @@ Tons of people at the live drawing for DARLING in the FRANXX!!
 <img src="https://i.imgur.com/k7Xh1wa.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6866#       发表于 2018-9-4 12:13
@@ -12945,7 +12945,7 @@ repo主周日cos了真阿帕斯，panel结束后戴了帽子的部分和田中�
 由于禁止拍摄，repo主不会上传活动的全程录音但会抽空抄录原文。她有02那张画的照片（半成品）也在主持宣布禁止摄录前录了部分影像。她总结活动很有趣也比周日的更放松和非正式。她预告抄录的关键词是“胸”。
 
 
------
+*****
 
 ####  xyau  
 ##### 6867#       发表于 2018-9-4 12:21
@@ -12968,7 +12968,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  性欲モンスター  
 ##### 6868#       发表于 2018-9-4 22:33
@@ -12979,7 +12979,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 👆这个有点像196{:1467_1713:}{:1467_1719:}
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 6869#       发表于 2018-9-5 00:37
@@ -12993,7 +12993,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 锦织炖屎肯定逛贴吧了
 
 
------
+*****
 
 ####  云闻先  
 ##### 6870#       发表于 2018-9-5 06:52
@@ -13004,7 +13004,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 没准是发自内心的觉得做的不错呢.
 
 
------
+*****
 
 ####  reekilynn  
 ##### 6871#       发表于 2018-9-5 12:12
@@ -13015,7 +13015,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 他敢不敢说自己看过平凡的世界，路遥也写了天降外星人。
 
 
------
+*****
 
 ####  云闻先  
 ##### 6872#       发表于 2018-9-5 13:01
@@ -13042,7 +13042,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 铜锣广 唯一指定饲料(零嘴)——但是零二A梦喜欢把他当正餐吃.味道因人而异,据说爱吃的人都给了好评.结局自投罗网,如愿以偿地被零二A梦吃掉.<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  victorws  
 ##### 6873#       发表于 2018-9-5 13:32
@@ -13051,7 +13051,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 {:1467_1707:}哈哈哈
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 6874#       发表于 2018-9-5 23:33
@@ -13063,7 +13063,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 不是说818和这次还有之前的都没怎么提结局嘛23333
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 6875#       发表于 2018-9-6 01:29
@@ -13075,7 +13075,7 @@ The last question of the Q&amp;A was just that! Nishigori-sensei essentially sai
 好尬
 
 
------
+*****
 
 ####  xyau  
 ##### 6876#       发表于 2018-9-6 06:54
@@ -13087,7 +13087,7 @@ CXR报道
 9pm PST(12点) http://www.22westmedia.com/ 有锦织的访谈
 
 
------
+*****
 
 ####  xyau  
 ##### 6877#       发表于 2018-9-6 22:52
@@ -13176,7 +13176,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 查看全部评分
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6878#       发表于 2018-9-6 22:55
@@ -13185,7 +13185,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 大家都来看少女歌剧，又找到一个愿意追生肉的番了，国家队以来的第二个<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6879#       发表于 2018-9-8 00:35
@@ -13196,7 +13196,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 谢谢翻译！！！
 
 
------
+*****
 
 ####  Astraroth  
 ##### 6880#       发表于 2018-9-8 02:43
@@ -13207,7 +13207,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 真实，看完15想反馈的都弃番了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ads147147  
 ##### 6881#       发表于 2018-9-8 08:54
@@ -13219,7 +13219,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 生殖战士淡定的克制了自己diss同性的想法，然后认为在一个有克隆技术和人造培养槽的世界里，百合不配有子女，也不配有幸福<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  magicz2  
 ##### 6882#       发表于 2018-9-8 09:19
@@ -13230,7 +13230,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xyau  
 ##### 6883#       发表于 2018-9-8 23:13
@@ -13240,7 +13240,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 [军大衣9's和水着02福利](https://shonenjumpplus.com/episode/10834108156635160262)
 
 
------
+*****
 
 ####  xingenge  
 ##### 6884#       发表于 2018-9-8 23:14
@@ -13250,7 +13250,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 [http://wx1.sinaimg.cn/large/740ca5e5gy1fv2je8t8mwj214w0u0nhr.jpg](http://wx1.sinaimg.cn/large/740ca5e5gy1fv2je8t8mwj214w0u0nhr.jpg)
 
 
------
+*****
 
 ####  02016  
 ##### 6885#       发表于 2018-9-9 00:07
@@ -13259,7 +13259,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">8月开始都是隔周更新了
 
 
------
+*****
 
 ####  xingenge  
 ##### 6886#       发表于 2018-9-9 02:28
@@ -13271,7 +13271,7 @@ A：我试图换着来——“本周做设计，本周做动画”但是当时�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fv2p08htwhj20xc0x04qp.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6887#       发表于 2018-9-9 06:35
@@ -13294,7 +13294,7 @@ ANN's got a great writeup from @ActionZacku of one of the Darling in the Franxx 
 I know the Trigger/A-1 blame game on Franxx is played out, but all evidence points to Nishigori, not the Trigger staff or the A-1 producers or whatever, as the main driving force behind the show. Nishigori pushed back against a lot of ideas that went against his vision!
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6888#       发表于 2018-9-9 08:22
@@ -13305,7 +13305,7 @@ I know the Trigger/A-1 blame game on Franxx is played out, but all evidence poin
 阿门。。。。
 
 
------
+*****
 
 ####  afsd109  
 ##### 6889#       发表于 2018-9-9 09:18
@@ -13316,7 +13316,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 锦织：这个锅还是让我一个人来背吧
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6890#       发表于 2018-9-9 12:13
@@ -13327,7 +13327,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 猫白，让我们在歌楼相遇吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6891#       发表于 2018-9-9 12:23
@@ -13339,7 +13339,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 挺好的，某种程度上很佩服这样的人 
 
 
------
+*****
 
 ####  02016  
 ##### 6892#       发表于 2018-9-9 13:57
@@ -13353,7 +13353,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">童话paro
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6893#       发表于 2018-9-9 17:41
@@ -13362,7 +13362,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 <img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 6894#       发表于 2018-9-9 18:47
@@ -13374,7 +13374,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 6895#       发表于 2018-9-9 20:54
@@ -13386,7 +13386,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 蝈楼和歌楼又有什么区别呢
 
 
------
+*****
 
 ####  xyau  
 ##### 6896#       发表于 2018-9-9 21:07
@@ -13403,7 +13403,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 821529249
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6897#       发表于 2018-9-9 21:49
@@ -13416,7 +13416,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 再怎么样也不可能上宇宙吧，难不成长劲鹿还是外星人不成<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6898#       发表于 2018-9-9 23:11
@@ -13432,7 +13432,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 <img src="https://i.imgur.com/JvO0xLx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6899#       发表于 2018-9-9 23:13
@@ -13442,7 +13442,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 </blockquote>
 
 
------
+*****
 
 ####  nylonchina1  
 ##### 6900#       发表于 2018-9-9 23:45
@@ -13451,7 +13451,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 问一下，现在是吹老师的dif 漫画在哪里可以看到？
 
 
------
+*****
 
 ####  xyau  
 ##### 6901#       发表于 2018-9-10 10:18
@@ -13464,7 +13464,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 [中译动漫之家](https://manhua.dmzj.com/darlinginthefranxxx/)
 
 
------
+*****
 
 ####  xyau  
 ##### 6902#       发表于 2018-9-10 10:34
@@ -13480,7 +13480,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 不过推主在anisemi看到了监督对16作画细致的修正指示，个人认为可以感受到监督对16非常重视、希望16推可以安心。
 
 
------
+*****
 
 ####  xyau  
 ##### 6903#       发表于 2018-9-10 10:36
@@ -13491,7 +13491,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 .
 
 
------
+*****
 
 ####  02016  
 ##### 6904#       发表于 2018-9-10 11:25
@@ -13503,7 +13503,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 <img src="http://ww2.sinaimg.cn/large/006LWy2zly1fv4a1l4854j30kf0omgmw.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6905#       发表于 2018-9-10 13:19
@@ -13516,7 +13516,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 <img src="http://ww4.sinaimg.cn/large/006LWy2zgy1fv4awrgmxwj316o1kwk2c.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 6906#       发表于 2018-9-10 18:55
@@ -13525,7 +13525,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 蝈蝈有很多种周边没有男角色的款，哪怕所有女生都有相应的款式，也没有男生的份，锦织你还是做一辈子爱豆路吧，下次做偶像片把普劳丢涩也删了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6907#       发表于 2018-9-11 08:00
@@ -13536,7 +13536,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 <img src="https://i.imgur.com/e4mCrsa.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 6908#       发表于 2018-9-11 09:26
@@ -13572,7 +13572,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 2018-9-11 09:26 上传
 
 
------
+*****
 
 ####  02016  
 ##### 6909#       发表于 2018-9-11 11:17
@@ -13584,7 +13584,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">怪不得觉得眼熟
 
 
------
+*****
 
 ####  Meteors  
 ##### 6910#       发表于 2018-9-11 11:51
@@ -13594,7 +13594,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  CODE：214  
 ##### 6911#       发表于 2018-9-11 12:58
@@ -13606,7 +13606,7 @@ CRX 的主持人拿到了田中现场绘制的01，并在收集签名的 Kill la
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 6912#       发表于 2018-9-11 13:01
@@ -13621,7 +13621,7 @@ Kokoro酱！
 哇，居然有214的戏服诶（棒读）<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  CODE：214  
 ##### 6913#       发表于 2018-9-11 13:02
@@ -13633,7 +13633,7 @@ Kokoro酱！
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 6914#       发表于 2018-9-11 13:44
@@ -13658,7 +13658,7 @@ Kokoro酱！
 <img src="http://wx1.sinaimg.cn/large/0060lm7Tly1fv5jns6lnkj309q0dlagi.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6915#       发表于 2018-9-11 15:11
@@ -13668,7 +13668,7 @@ Kokoro酱！
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xingenge  
 ##### 6916#       发表于 2018-9-11 16:24
@@ -13682,7 +13682,7 @@ Kokoro酱！
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fv5oexlxqrj20l21rp44q.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6917#       发表于 2018-9-11 16:29
@@ -13692,7 +13692,7 @@ Kokoro酱！
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 6918#       发表于 2018-9-11 17:30
@@ -13705,7 +13705,7 @@ Kokoro酱！
 表情包真不错{:1467_1799:} 
 
 
------
+*****
 
 ####  ミツル  
 ##### 6919#       发表于 2018-9-11 22:32
@@ -13720,7 +13720,7 @@ Kokoro酱！
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">自虐戏服！
 
 
------
+*****
 
 ####  02016  
 ##### 6920#       发表于 2018-9-11 23:04
@@ -13735,7 +13735,7 @@ Kokoro酱！
 <img src="http://ww1.sinaimg.cn/large/006LWy2zgy1fv5zxuo4p3j3112112ady.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6921#       发表于 2018-9-12 00:05
@@ -13746,7 +13746,7 @@ Kokoro酱！
 毫无违和感🤓
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 6922#       发表于 2018-9-12 02:08
@@ -13763,7 +13763,7 @@ Kokoro酱！
 还有锦织怎么有脸全世界乱跑？自我感觉好上天了吧？
 
 
------
+*****
 
 ####  苇原雪道  
 ##### 6923#       发表于 2018-9-12 08:21
@@ -13774,7 +13774,7 @@ Kokoro酱！
 哈哈哈哈超大灵儿！
 
 
------
+*****
 
 ####  02016  
 ##### 6924#       发表于 2018-9-12 12:01
@@ -13784,7 +13784,7 @@ Kokoro酱！
 <img src="http://wx1.sinaimg.cn/large/0060lm7Tly1fv6mg2838fj30kv0oo401.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6925#       发表于 2018-9-12 12:05
@@ -13799,7 +13799,7 @@ Kokoro酱！
 <img src="http://ww4.sinaimg.cn/large/006LWy2zgy1fv6n7pce2vj305406mgm6.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6926#       发表于 2018-9-12 17:43
@@ -13813,7 +13813,7 @@ Kokoro酱！
 官方真会玩😂
 
 
------
+*****
 
 ####  02016  
 ##### 6927#       发表于 2018-9-12 18:19
@@ -13829,7 +13829,7 @@ Kokoro酱！
 <img src="http://ww2.sinaimg.cn/large/006LWy2zgy1fv6yg7x3bzj306j0bz7f0.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6928#       发表于 2018-9-13 07:47
@@ -13840,7 +13840,7 @@ Kokoro酱！
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fv7kq3tw50j20xc0qo10i.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6929#       发表于 2018-9-13 15:17
@@ -13852,7 +13852,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=70665741</bloc
 这张画得真好，神态特别到位
 
 
------
+*****
 
 ####  xingenge  
 ##### 6930#       发表于 2018-9-15 12:07
@@ -13865,7 +13865,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=70665741</bloc
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fva3gqjgkkj20p00xcjw2.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  B2是念着反  
 ##### 6931#       发表于 2018-9-15 12:09
@@ -13874,7 +13874,7 @@ https://www.pixiv.net/member_illust.php?mode=medium&amp;illust_id=70665741</bloc
 jzgg，张嘴，啊~~~
 
 
------
+*****
 
 ####  02016  
 ##### 6932#       发表于 2018-9-15 13:03
@@ -13888,7 +13888,7 @@ jzgg，张嘴，啊~~~
 锦织哥哥生日快乐，在录副音轨吗
 
 
------
+*****
 
 ####  02016  
 ##### 6933#       发表于 2018-9-15 23:32
@@ -13904,7 +13904,7 @@ jzgg，张嘴，啊~~~
 <img src="http://ww4.sinaimg.cn/large/006LWy2zgy1fvan9n7h8kj30mu0xde0z.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 6934#       发表于 2018-9-16 02:21
@@ -13921,7 +13921,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 比我想象的尺度大(/ω＼)
 
 
------
+*****
 
 ####  xingenge  
 ##### 6935#       发表于 2018-9-16 11:01
@@ -13932,7 +13932,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fvb76k9085j20nh0xc7ak.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 6936#       发表于 2018-9-16 11:03
@@ -13941,7 +13941,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 锦织妇产科！
 
 
------
+*****
 
 ####  Meteors  
 ##### 6937#       发表于 2018-9-16 12:39
@@ -13952,7 +13952,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 编辑
 
 
------
+*****
 
 ####  蓝川澈  
 ##### 6938#       发表于 2018-9-16 16:15
@@ -13961,7 +13961,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 又顶上来了，锦织过个生日你们都不放过他
 
 
------
+*****
 
 ####  free  
 ##### 6939#       发表于 2018-9-16 16:40
@@ -13970,7 +13970,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 哎呀矢吹老湿太懂了，应该说漫画已经彻底破罐子破摔服务死宅了，还是说这个片本来就应该是如此呢？
 
 
------
+*****
 
 ####  塞瑞娜  
 ##### 6940#       发表于 2018-9-16 16:44
@@ -13979,7 +13979,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 建议对顶这个专楼的进行二次清算，再搞个tv完结后回帖数目统计怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6941#       发表于 2018-9-16 20:09
@@ -13993,7 +13993,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">比我想象的也大一点
 
 
------
+*****
 
 ####  02016  
 ##### 6942#       发表于 2018-9-16 20:10
@@ -14005,7 +14005,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 因为后面那条未来的小腿吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6943#       发表于 2018-9-16 22:52
@@ -14014,7 +14014,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">我胡汉三又回来了！
 
 
------
+*****
 
 ####  取个中文名  
 ##### 6944#       发表于 2018-9-17 16:58
@@ -14023,7 +14023,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 <img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6945#       发表于 2018-9-18 07:19
@@ -14038,7 +14038,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fvdbznc9xhj20xb0h3myp.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6946#       发表于 2018-9-18 07:22
@@ -14054,7 +14054,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fvdc2ts2doj20go0xc0wk.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6947#       发表于 2018-9-18 07:24
@@ -14064,7 +14064,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fvdc4wo0vaj20xc0nu7v9.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6948#       发表于 2018-9-18 11:04
@@ -14073,7 +14073,7 @@ https://shonenjumpplus.com/episode/10834108156635398152 下一话要踩脚印看
 大和抚子与猫的故事<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 6949#       发表于 2018-9-18 19:07
@@ -14087,7 +14087,7 @@ https://twitter.com/uuusan000
 这漫画好可爱，恋爱喜剧的展开
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 6950#       发表于 2018-9-18 19:30
@@ -14096,7 +14096,7 @@ https://twitter.com/uuusan000
 淦，锦织哥哥老老实实拍个校园篇不好吗！
 
 
------
+*****
 
 ####  若荼泱  
 ##### 6951#       发表于 2018-9-18 19:43
@@ -14105,7 +14105,7 @@ https://twitter.com/uuusan000
 jzgg好可怜啊，过生日都不可以好好过<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  nihongkai  
 ##### 6952#       发表于 2018-9-18 19:55
@@ -14114,7 +14114,7 @@ jzgg好可怜啊，过生日都不可以好好过<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 6953#       发表于 2018-9-18 23:28
@@ -14123,7 +14123,7 @@ jzgg好可怜啊，过生日都不可以好好过<img src="https://static.saraba
 9a和莓太tmd可爱了！真的太戳我了。。。jz我恨你一辈子！！
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 6954#       发表于 2018-9-18 23:29
@@ -14134,7 +14134,7 @@ jzgg好可怜啊，过生日都不可以好好过<img src="https://static.saraba
 真的。。不想打开又忍不住。。这个片子真的是2018年的一场噩梦，我到现在都没缓过来。太可怕了，太可怕了
 
 
------
+*****
 
 ####  Meteors  
 ##### 6955#       发表于 2018-9-19 13:41
@@ -14145,7 +14145,7 @@ jzgg好可怜啊，过生日都不可以好好过<img src="https://static.saraba
 编辑
 
 
------
+*****
 
 ####  xyau  
 ##### 6956#       发表于 2018-9-19 15:21
@@ -14157,7 +14157,7 @@ OP分镜分析更新</blockquote>
 <img src="https://i.imgur.com/KCwCdj8.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 6957#       发表于 2018-9-19 16:16
@@ -14182,7 +14182,7 @@ OP分镜分析更新</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  02016  
 ##### 6958#       发表于 2018-9-19 16:44
@@ -14209,7 +14209,7 @@ OP分镜分析更新</blockquote>
 <img src="http://ww4.sinaimg.cn/large/006LWy2zly1fvexz50av4j31kw0rqjvf.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6959#       发表于 2018-9-19 18:30
@@ -14219,7 +14219,7 @@ OP分镜分析更新</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xingenge  
 ##### 6960#       发表于 2018-9-21 09:28
@@ -14229,7 +14229,7 @@ OP分镜分析更新</blockquote>
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fvgwkpdykaj20me0sgkjl.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6961#       发表于 2018-9-22 00:24
@@ -14242,7 +14242,7 @@ OP分镜分析更新</blockquote>
 <img src="http://wx3.sinaimg.cn/large/0060lm7Tly1fvhmhp0kydj30bo0gitdy.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6962#       发表于 2018-9-22 23:49
@@ -14253,7 +14253,7 @@ OP分镜分析更新</blockquote>
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fvir3rr2ugj21550u04k7.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6963#       发表于 2018-9-23 00:07
@@ -14265,7 +14265,7 @@ OP分镜分析更新</blockquote>
 有趣<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 6964#       发表于 2018-9-25 21:56
@@ -14274,7 +14274,7 @@ OP分镜分析更新</blockquote>
 233页了……以及这次漫画的五莓糖好棒
 
 
------
+*****
 
 ####  02016  
 ##### 6965#       发表于 2018-9-26 00:54
@@ -14299,7 +14299,7 @@ ToLove結城@Toloveyuki1
 <img src="http://ww2.sinaimg.cn/large/006LWy2zly1fvm9tn5lu0j31kw0w0tid.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6966#       发表于 2018-9-26 10:26
@@ -14322,7 +14322,7 @@ ToLove結城@Toloveyuki1
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fvmq9j9a89j20sg0lc0ut.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6967#       发表于 2018-9-26 16:20
@@ -14334,7 +14334,7 @@ ToLove結城@Toloveyuki1
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fvn0l7s9wwj20oc1kuqd8.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6968#       发表于 2018-9-26 16:59
@@ -14348,7 +14348,7 @@ ToLove結城@Toloveyuki1
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fvn1qdm2tbj21kw10ctjy.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6969#       发表于 2018-9-26 17:04
@@ -14364,7 +14364,7 @@ ToLove結城@Toloveyuki1
 13小队全家福<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 6970#       发表于 2018-9-26 18:13
@@ -14379,7 +14379,7 @@ ToLove結城@Toloveyuki1
 过分了，为何只有封面郁乃同学一人白发苍苍，staff没人性啊。。。（笑）
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 6971#       发表于 2018-9-26 23:05
@@ -14388,7 +14388,7 @@ ToLove結城@Toloveyuki1
 这张图...能脑补郁乃羡慕地看着心满
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 6972#       发表于 2018-9-27 01:36
@@ -14400,7 +14400,7 @@ ToLove結城@Toloveyuki1
 没事，后面两个背景板下一秒就升天投胎了
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6973#       发表于 2018-9-27 10:06
@@ -14409,7 +14409,7 @@ ToLove結城@Toloveyuki1
 总共八卷对吧？那最后一卷大概是国13咯
 
 
------
+*****
 
 ####  ads147147  
 ##### 6974#       发表于 2018-9-27 11:05
@@ -14421,7 +14421,7 @@ ToLove結城@Toloveyuki1
 直美工具人出现都没出现，不是更没人性
 
 
------
+*****
 
 ####  soulife7  
 ##### 6975#       发表于 2018-9-27 17:04
@@ -14433,7 +14433,7 @@ ToLove結城@Toloveyuki1
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 6976#       发表于 2018-9-27 17:28
@@ -14491,7 +14491,7 @@ _Yuki10127@yukito10127
 <img src="http://ww1.sinaimg.cn/large/006LWy2zly1fvqk16bay7j31kw0sgaij.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6977#       发表于 2018-9-28 20:42
@@ -14501,7 +14501,7 @@ _Yuki10127@yukito10127
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fvpjfagxz8j20fz0a77dj.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6978#       发表于 2018-9-28 22:15
@@ -14513,7 +14513,7 @@ _Yuki10127@yukito10127
 编辑<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 6979#       发表于 2018-9-28 22:27
@@ -14528,7 +14528,7 @@ _Yuki10127@yukito10127
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为mato说無断転載禁止（又有点懒得问他），就没转实际的图了
 
 
------
+*****
 
 ####  02016  
 ##### 6980#       发表于 2018-9-28 22:45
@@ -14540,7 +14540,7 @@ _Yuki10127@yukito10127
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 6981#       发表于 2018-9-29 04:09
@@ -14551,7 +14551,7 @@ _Yuki10127@yukito10127
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
------
+*****
 
 ####  xingenge  
 ##### 6982#       发表于 2018-9-29 17:18
@@ -14561,7 +14561,7 @@ GIF可爱，有能力的爬墙看吧：[https://twitter.com/mozu_hayanie/status/
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fvqj2i8qosj20ga0asach.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 6983#       发表于 2018-9-29 17:23
@@ -14573,7 +14573,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 好可爱，封面里的02动起来了
 
 
------
+*****
 
 ####  xyau  
 ##### 6984#       发表于 2018-9-29 23:28
@@ -14584,7 +14584,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 献吻提前到海边了……心疼56
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 6985#       发表于 2018-9-30 01:16
@@ -14597,7 +14597,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 矢吹老湿处理的不错，至少不会出现国14那种尴尬了。
 
 
------
+*****
 
 ####  02016  
 ##### 6986#       发表于 2018-9-30 02:01
@@ -14619,7 +14619,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 </strong>
 
 
------
+*****
 
 ####  xyau  
 ##### 6987#       发表于 2018-9-30 08:31
@@ -14638,7 +14638,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 <img src="https://i.imgur.com/n4yLvbp.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 6988#       发表于 2018-9-30 09:28
@@ -14648,7 +14648,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  xyau  
 ##### 6989#       发表于 2018-9-30 10:07
@@ -14691,7 +14691,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 查看全部评分
 
 
------
+*****
 
 ####  xingenge  
 ##### 6990#       发表于 2018-9-30 12:29
@@ -14702,7 +14702,7 @@ GIF可爱，有能力的爬墙看吧：https://twitter.com/mozu_hayanie/status/1
 事到如今再去争辩锦织作为监督对这部作品的影像已经没有意义，喜欢上的部分也是锦织创作的（虽然不是一个人），讨厌的部分也是锦织创作的（可能是一个人独行），真是矛盾。
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 6991#       发表于 2018-9-30 12:35
@@ -14717,7 +14717,7 @@ Primer plano de "Matador-C ...</blockquote>
 这是谁？少女歌剧吗？
 
 
------
+*****
 
 ####  xingenge  
 ##### 6992#       发表于 2018-9-30 12:37
@@ -14740,7 +14740,7 @@ Primer plano de "Matador-C ...</blockquote>
 话又说回来，本身就无法制止别人发表意见，既然不能互相理解还是算了，昨天看水上的planet with，就说到“这个故事，就以你喜欢的角度来看吧”。
 
 
------
+*****
 
 ####  xyau  
 ##### 6993#       发表于 2018-9-30 13:38
@@ -14751,7 +14751,7 @@ Primer plano de "Matador-C ...</blockquote>
 因为是在西班牙的活动，所以创作了“斗牛士chan”
 
 
------
+*****
 
 ####  xyau  
 ##### 6994#       发表于 2018-9-30 14:03
@@ -14768,7 +14768,7 @@ Primer plano de "Matador-C ...</blockquote>
 通常了解作者意图再回顾作品或许会有新发现，在专楼穷举之下大概变为验证猜测了。
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 6995#       发表于 2018-9-30 15:52
@@ -14783,7 +14783,7 @@ Primer plano de "Matador-C ...</blockquote>
 欢乐，五郎的烦恼是长毛了www
 
 
------
+*****
 
 ####  hl8243  
 ##### 6996#       发表于 2018-9-30 18:41
@@ -14798,7 +14798,7 @@ Primer plano de "Matador-C ...</blockquote>
 这样国22  就有种56争取15   不是56接盘15的感觉
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 6997#       发表于 2018-9-30 19:05
@@ -14807,7 +14807,7 @@ Primer plano de "Matador-C ...</blockquote>
 矢吹老师就是强，，，至少改动得合理多了。
 
 
------
+*****
 
 ####  xyau  
 ##### 6998#       发表于 2018-10-1 11:54
@@ -14818,7 +14818,7 @@ Primer plano de "Matador-C ...</blockquote>
 <img src="http://www.fantasycloud.net/wp-content/uploads/2018/09/nishigori-japan-weekend-madrid.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 6999#       发表于 2018-10-2 14:39
@@ -14827,7 +14827,7 @@ Primer plano de "Matador-C ...</blockquote>
 【毒舌老外】10分钟带你看完国家队
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7000#       发表于 2018-10-2 16:16
@@ -14841,7 +14841,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 通过忽悠沙雕观众来获得好评并且选择性无视差评自我安慰的监督是人间之屑
 
 
------
+*****
 
 ####  skives  
 ##### 7001#       发表于 2018-10-2 17:48
@@ -14854,7 +14854,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 …………<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7002#       发表于 2018-10-2 21:26
@@ -14868,7 +14868,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 原页面不在了，好像也没搜到类似的
 
 
------
+*****
 
 ####  626704053  
 ##### 7003#       发表于 2018-10-2 22:20
@@ -14879,7 +14879,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
------
+*****
 
 ####  xyau  
 ##### 7004#       发表于 2018-10-2 22:24
@@ -14893,7 +14893,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 诶？我这还有缓存……
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 7005#       发表于 2018-10-2 23:15
@@ -14910,7 +14910,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 锦织：满足？嘛一边心满意足一边继续工作啊。虽然后来时间都快没了，也有和想做的东西不一样的部分，但是能拿出来的时间都拿出来了，所以完全不会后悔。
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 7006#       发表于 2018-10-2 23:19
@@ -14930,7 +14930,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 （观众笑声）
 
 
------
+*****
 
 ####  mumubear  
 ##### 7007#       发表于 2018-10-2 23:19
@@ -14959,7 +14959,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 我想锦织胖子要是老老实实作十个美少女唱歌跳舞的片子会好很多。。。
 
 
------
+*****
 
 ####  xingenge  
 ##### 7008#       发表于 2018-10-3 00:18
@@ -14978,7 +14978,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 庵野秀明厉害的事我更同意了，他作品是大家都可以去喜欢的，但是这部不是。
 
 
------
+*****
 
 ####  xingenge  
 ##### 7009#       发表于 2018-10-3 00:23
@@ -14997,7 +14997,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 而且说后悔的话，指不定就如你在7006楼的发言，可能还存有后续
 
 
------
+*****
 
 ####  xyau  
 ##### 7010#       发表于 2018-10-3 11:37
@@ -15007,7 +15007,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 </blockquote>
 
 
------
+*****
 
 ####  xingenge  
 ##### 7011#       发表于 2018-10-3 12:00
@@ -15020,7 +15020,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 另外两张图露了，发的人有打码，之后再要一份无码的
 
 
------
+*****
 
 ####  xingenge  
 ##### 7012#       发表于 2018-10-3 15:02
@@ -15030,7 +15030,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fvv1ojqu48j20m80m8n0q.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7013#       发表于 2018-10-3 20:56
@@ -15040,7 +15040,7 @@ Atsushi Nishigori, creador de Darling in the  ...</blockquote>
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fvvbxa7g8qj20xc0p0n65.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 7014#       发表于 2018-10-4 09:29
@@ -15062,7 +15062,7 @@ mato is god，终于看到儿子了
 [https://imgur.com/a/asLbcpq#KiB2quv](https://imgur.com/a/asLbcpq#KiB2quv)
 
 
------
+*****
 
 ####  626704053  
 ##### 7015#       发表于 2018-10-4 09:52
@@ -15073,7 +15073,7 @@ mato is god，终于看到儿子了
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
------
+*****
 
 ####  xingenge  
 ##### 7016#       发表于 2018-10-4 09:58
@@ -15082,7 +15082,7 @@ mato is god，终于看到儿子了
 [https://shop.comiczin.jp/upload/ ... 816203%20500t02.jpg](https://shop.comiczin.jp/upload/save_image/9784088816203%20500t02.jpg)
 
 
------
+*****
 
 ####  xingenge  
 ##### 7017#       发表于 2018-10-4 10:54
@@ -15092,7 +15092,7 @@ mato is god，终于看到儿子了
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fvw04u5eqej20lt0gdn0p.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7018#       发表于 2018-10-4 12:01
@@ -15102,7 +15102,7 @@ mato is god，终于看到儿子了
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 7019#       发表于 2018-10-4 21:37
@@ -15117,7 +15117,7 @@ mato is god，终于看到儿子了
 谢谢，mato老师是神，原来儿子遗传了妈妈的眼睛
 
 
------
+*****
 
 ####  02016  
 ##### 7020#       发表于 2018-10-4 21:39
@@ -15127,7 +15127,7 @@ mato is god，终于看到儿子了
 可惜ANIMATE的特典没有彩色
 
 
------
+*****
 
 ####  xyau  
 ##### 7021#       发表于 2018-10-6 07:45
@@ -15140,7 +15140,7 @@ mato is god，终于看到儿子了
 另外之前那篇404的文章又可以访问了
 
 
------
+*****
 
 ####  xyau  
 ##### 7022#       发表于 2018-10-6 23:08
@@ -15149,7 +15149,7 @@ mato is god，终于看到儿子了
 [插画9](https://shonenjumpplus.com/episode/10834108156636211665)：沐浴后的7福利和学园制服390
 
 
------
+*****
 
 ####  02016  
 ##### 7023#       发表于 2018-10-7 00:04
@@ -15161,7 +15161,7 @@ mato is god，终于看到儿子了
 老湿的福利一如既往的稳<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">制服大概会画一系列，期待
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7024#       发表于 2018-10-7 23:25
@@ -15173,7 +15173,7 @@ mato is god，终于看到儿子了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  qqqwww1111  
 ##### 7025#       发表于 2018-10-8 00:28
@@ -15182,7 +15182,7 @@ mato is god，终于看到儿子了
 在隔壁古力特楼看到蝈蝈楼原来好多常驻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 7026#       发表于 2018-10-8 20:56
@@ -15196,7 +15196,7 @@ CRX EXPO 官方访谈居然才放出……
 <img src="https://i.imgur.com/ujLv548.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7027#       发表于 2018-10-9 11:52
@@ -15207,7 +15207,7 @@ CRX EXPO 官方访谈居然才放出……
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 7028#       发表于 2018-10-9 16:51
@@ -15220,7 +15220,7 @@ CRX EXPO 官方访谈居然才放出……
 <img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">好唉
 
 
------
+*****
 
 ####  skives  
 ##### 7029#       发表于 2018-10-9 16:52
@@ -15229,7 +15229,7 @@ CRX EXPO 官方访谈居然才放出……
 <img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ゴロー  
 ##### 7030#       发表于 2018-10-9 17:39
@@ -15240,7 +15240,7 @@ CRX EXPO 官方访谈居然才放出……
 自闭了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 7031#       发表于 2018-10-9 22:05
@@ -15254,7 +15254,7 @@ CRX EXPO 官方访谈居然才放出……
 建议重点刷13-15,17，很好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 7032#       发表于 2018-10-9 22:22
@@ -15268,7 +15268,7 @@ CRX EXPO 官方访谈居然才放出……
 你怎么还没病愈，还是好好来群里吹水治病吧。<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7033#       发表于 2018-10-11 08:31
@@ -15283,7 +15283,7 @@ CRX EXPO 官方访谈居然才放出……
 18集专楼[https://bbs.saraba1st.com/2b/for ... age=149#pid39703331](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1673546&amp;page=149#pid39703331)
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7034#       发表于 2018-10-11 08:37
@@ -15295,7 +15295,7 @@ CRX EXPO 官方访谈居然才放出……
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  626704053  
 ##### 7035#       发表于 2018-10-11 12:37
@@ -15308,7 +15308,7 @@ CRX EXPO 官方访谈居然才放出……
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  xyau  
 ##### 7036#       发表于 2018-10-11 16:48
@@ -15335,7 +15335,7 @@ CRX EXPO 官方访谈居然才放出……
 <img src="https://i.imgur.com/rAhP2wu.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7037#       发表于 2018-10-12 11:02
@@ -15347,7 +15347,7 @@ CRX EXPO 官方访谈居然才放出……
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fw59bsu52rj20xc0dgn1r.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7038#       发表于 2018-10-12 12:49
@@ -15357,7 +15357,7 @@ CRX EXPO 官方访谈居然才放出……
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fw5cf80i2nj20go0go410.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7039#       发表于 2018-10-12 17:17
@@ -15398,7 +15398,7 @@ CRX EXPO 官方访谈居然才放出……
 [http://cloverworks.co.jp/news/20181012_1/](http://cloverworks.co.jp/news/20181012_1/)
 
 
------
+*****
 
 ####  xingenge  
 ##### 7040#       发表于 2018-10-12 17:26
@@ -15408,7 +15408,7 @@ CRX EXPO 官方访谈居然才放出……
 <img src="http://wx4.sinaimg.cn/large/0068TvVBgy1fw5kb9p2ylj30xc0p0jww.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  無名の生足  
 ##### 7041#       发表于 2018-10-12 20:01
@@ -15419,7 +15419,7 @@ GSC DARLING in the FRANXX 1/7 莓 10月16日开订 ​​​​https://weibo.com
 <img src="https://wx2.sinaimg.cn/mw690/70745653ly1fw5lleqcu9j20eb1u07gw.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 7042#       发表于 2018-10-12 20:27
@@ -15441,7 +15441,7 @@ Screenshot_20181012-200359.png
 <img src="https://img.saraba1st.com/forum/201810/12/202728qzfsfcs3cfknhwsn.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7043#       发表于 2018-10-13 00:42
@@ -15460,7 +15460,7 @@ Screenshot_20181012-200359.png
 <img src="http://ww4.sinaimg.cn/large/006LWy2zly1fw5x00tju9j30go0bs40p.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 7044#       发表于 2018-10-13 16:02
@@ -15523,7 +15523,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 <img src="https://img.saraba1st.com/forum/201810/13/161602d7m4k34ninkmnunp.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 7045#       发表于 2018-10-13 19:51
@@ -15534,7 +15534,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 015的彩图都出来了，这个还只是灰模
 
 
------
+*****
 
 ####  xingenge  
 ##### 7046#       发表于 2018-10-13 23:15
@@ -15543,7 +15543,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 漫画这回新展开啊
 
 
------
+*****
 
 ####  Meteors  
 ##### 7047#       发表于 2018-10-13 23:32
@@ -15554,7 +15554,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 编辑
 
 
------
+*****
 
 ####  02016  
 ##### 7048#       发表于 2018-10-14 00:05
@@ -15563,7 +15563,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 漫画我兴奋了
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7049#       发表于 2018-10-14 01:05
@@ -15572,7 +15572,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 力挽狂澜！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7050#       发表于 2018-10-14 01:06
@@ -15581,7 +15581,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 力挽狂澜！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  tonberry  
 ##### 7051#       发表于 2018-10-14 07:13
@@ -15592,7 +15592,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 —— 来自 Sony G8441, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  Shylia  
 ##### 7052#       发表于 2018-10-14 13:00
@@ -15607,7 +15607,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 看起来貌似要打9话那煤气罐，9s也加戏了，不过漫画上一话把14话的吻用了，往后发展会怎么样就难说了，搞不好要随矢吹魔改。
 
 
------
+*****
 
 ####  hl8243  
 ##### 7053#       发表于 2018-10-14 21:16
@@ -15618,7 +15618,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 矢吹老师良心啊
 
 
------
+*****
 
 ####  02016  
 ##### 7054#       发表于 2018-10-15 00:14
@@ -15633,7 +15633,7 @@ d3829b12c8fcc3ce027abb4a9f45d688d53f20a7.jpg
 沙滩回完了之后应该接第八集浴室回，但是漫画改了，青春期男生X女生话题从洗澡变成了心来生理期，看生育书思考两性问题<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">最后一页看是要打第九集的煤气罐了
 
 
------
+*****
 
 ####  02016  
 ##### 7055#       发表于 2018-10-15 00:25
@@ -15663,7 +15663,7 @@ Chicke III@壞茸社@ChickeIII
 <img src="http://ww1.sinaimg.cn/large/006LWy2zly1fw87rktfo1j30gh0hidrx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7056#       发表于 2018-10-15 11:50
@@ -15673,7 +15673,7 @@ Chicke III@壞茸社@ChickeIII
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 7057#       发表于 2018-10-15 12:04
@@ -15688,7 +15688,7 @@ Chicke III@壞茸社@ChickeIII
 超级硬核，感受到强烈的爱了
 
 
------
+*****
 
 ####  罗克萨斯  
 ##### 7058#       发表于 2018-10-15 12:33
@@ -15697,7 +15697,7 @@ Chicke III@壞茸社@ChickeIII
 漫画咋了？有没有广和02做爱的剧情？
 
 
------
+*****
 
 ####  02016  
 ##### 7059#       发表于 2018-10-16 00:04
@@ -15726,7 +15726,7 @@ Chicke III@壞茸社@ChickeIII
 <img src="http://ww1.sinaimg.cn/large/006LWy2zly1fw9crrqatij30ey35s11v.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qqqwww1111  
 ##### 7060#       发表于 2018-10-16 00:09
@@ -15738,7 +15738,7 @@ Chicke III@壞茸社@ChickeIII
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 7061#       发表于 2018-10-16 11:30
@@ -15753,7 +15753,7 @@ Chicke III@壞茸社@ChickeIII
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7062#       发表于 2018-10-16 18:11
@@ -15763,7 +15763,7 @@ Chicke III@壞茸社@ChickeIII
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 7063#       发表于 2018-10-17 00:55
@@ -15775,7 +15775,7 @@ Chicke III@壞茸社@ChickeIII
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7064#       发表于 2018-10-20 09:11
@@ -15784,7 +15784,7 @@ Chicke III@壞茸社@ChickeIII
 广播剧VOL.2的第一部分字幕出来了
 
 
------
+*****
 
 ####  xyau  
 ##### 7065#       发表于 2018-10-21 05:12
@@ -15795,7 +15795,7 @@ Chicke III@壞茸社@ChickeIII
 学生ver.016和δ福利（？）
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7066#       发表于 2018-10-22 03:17
@@ -15834,7 +15834,7 @@ Chicke III@壞茸社@ChickeIII
 2018-10-22 03:13 上传
 
 
------
+*****
 
 ####  626704053  
 ##### 7067#       发表于 2018-10-22 03:28
@@ -15847,7 +15847,7 @@ Chicke III@壞茸社@ChickeIII
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  02016  
 ##### 7068#       发表于 2018-10-22 19:17
@@ -15861,7 +15861,7 @@ Chicke III@壞茸社@ChickeIII
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无性设定在这里也严格遵守了
 
 
------
+*****
 
 ####  饭冢武也  
 ##### 7069#       发表于 2018-10-23 10:45
@@ -15870,7 +15870,7 @@ Chicke III@壞茸社@ChickeIII
 这么说漫画还有的追？？
 
 
------
+*****
 
 ####  xingenge  
 ##### 7070#       发表于 2018-10-23 18:09
@@ -15888,7 +15888,7 @@ Chicke III@壞茸社@ChickeIII
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fwibh9ggdhj20xc0oztc6.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7071#       发表于 2018-10-23 18:55
@@ -15903,7 +15903,7 @@ Chicke III@壞茸社@ChickeIII
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  02016  
 ##### 7072#       发表于 2018-10-24 12:56
@@ -15941,7 +15941,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 <img src="http://ww4.sinaimg.cn/large/006LWy2zgy1fwjouxcnqaj30sg0lcads.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7073#       发表于 2018-10-24 13:10
@@ -15952,7 +15952,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  Meteors  
 ##### 7074#       发表于 2018-10-27 23:20
@@ -15963,7 +15963,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 编辑
 
 
------
+*****
 
 ####  gbaing  
 ##### 7075#       发表于 2018-10-27 23:24
@@ -15973,7 +15973,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还是等一个漫画完结再一口气补了，继续观望
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 7076#       发表于 2018-10-27 23:25
@@ -15984,7 +15984,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 等一个圣锦织救国!
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 7077#       发表于 2018-10-27 23:28
@@ -15993,7 +15993,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 你们在哪里看的？可以给个链接吗？发生了什么
 
 
------
+*****
 
 ####  magicz2  
 ##### 7078#       发表于 2018-10-27 23:31
@@ -16007,7 +16007,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 官网就可以点进jump+啊，15把56弹出去了。
 
 
------
+*****
 
 ####  xingenge  
 ##### 7079#       发表于 2018-10-27 23:31
@@ -16019,7 +16019,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fwn79bgg9bj20wj0nrtul.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7080#       发表于 2018-10-27 23:33
@@ -16028,7 +16028,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 下个月就要发售第8卷了，最快12月初就能拿到全卷了，等了好久
 
 
------
+*****
 
 ####  amulelernen  
 ##### 7081#       发表于 2018-10-27 23:37
@@ -16037,7 +16037,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 湿吹救帼了救帼了！无人能够预料的舞台！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">jzdd你看看你
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 7082#       发表于 2018-10-27 23:38
@@ -16046,7 +16046,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 卧槽？世界线改变了？
 
 
------
+*****
 
 ####  兰开夏  
 ##### 7083#       发表于 2018-10-27 23:45
@@ -16058,7 +16058,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 这个楼像个被诅咒的坟头, 远远望过来就会想到今年上半年一系列事件, 久久不能平息<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  astrayveller  
 ##### 7084#       发表于 2018-10-27 23:47
@@ -16067,7 +16067,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这贴已经转型成鞭尸专楼了
 
 
------
+*****
 
 ####  gbaing  
 ##### 7085#       发表于 2018-10-27 23:54
@@ -16077,7 +16077,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不也挺好的么
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7086#       发表于 2018-10-28 00:07
@@ -16086,7 +16086,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 心没被淋，矢吹是再保护心吗😃
 
 
------
+*****
 
 ####  02016  
 ##### 7087#       发表于 2018-10-28 00:15
@@ -16119,7 +16119,7 @@ kame@kame9029  ダリフラBD7巻ゲット
 <img src="http://ww1.sinaimg.cn/large/006LWy2zgy1fwn8xkwzhwj30uk2884cb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7088#       发表于 2018-10-28 00:15
@@ -16141,7 +16141,7 @@ IMG_20181028_001117.jpg
 <img src="https://img.saraba1st.com/forum/201810/28/001523nnh8x6k8zwwyzx58.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7089#       发表于 2018-10-28 00:32
@@ -16153,7 +16153,7 @@ IMG_20181028_001117.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7090#       发表于 2018-10-28 01:05
@@ -16163,7 +16163,7 @@ IMG_20181028_001117.jpg
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7091#       发表于 2018-10-28 01:15
@@ -16218,7 +16218,7 @@ IMG_20181028_001117.jpg
 更多可以去看贴吧的本话讨论帖：[https://tieba.baidu.com/p/5928868378](https://tieba.baidu.com/p/5928868378) 
 
 
------
+*****
 
 ####  兰开夏  
 ##### 7092#       发表于 2018-10-28 01:40
@@ -16227,7 +16227,7 @@ IMG_20181028_001117.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">停下, 不要让我回想起那段天天等待假药结果真物还不如假药的千万分之一的岁月
 
 
------
+*****
 
 ####  magicz2  
 ##### 7093#       发表于 2018-10-28 02:42
@@ -16236,7 +16236,7 @@ IMG_20181028_001117.jpg
 然而矢吹目前还是get到关键点，只能在假药的基础上观望下了。
 
 
------
+*****
 
 ####  Vzero  
 ##### 7094#       发表于 2018-10-28 06:12
@@ -16245,7 +16245,7 @@ IMG_20181028_001117.jpg
 矢吹国国只要稍微撩下衣服，你们这些ptsd还不是争先恐后的要吃药💊
 
 
------
+*****
 
 ####  free  
 ##### 7095#       发表于 2018-10-28 07:49
@@ -16254,7 +16254,7 @@ IMG_20181028_001117.jpg
 主要角色的配对关系和生死不可能改的，还是不要想太多为好
 
 
------
+*****
 
 ####  amulelernen  
 ##### 7096#       发表于 2018-10-28 08:24
@@ -16272,7 +16272,7 @@ IMG_20181028_001117.jpg
 不过其实自己能够主动跑路才是最合理的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  syqs  
 ##### 7097#       发表于 2018-10-28 10:00
@@ -16281,7 +16281,7 @@ IMG_20181028_001117.jpg
 又到了喜闻乐见的假药时间了，住手啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7098#       发表于 2018-10-28 13:57
@@ -16296,7 +16296,7 @@ IMG_20181028_001117.jpg
 不过我感觉不一样也不会不一样到哪里去
 
 
------
+*****
 
 ####  AminGly  
 ##### 7099#       发表于 2018-10-28 14:25
@@ -16305,7 +16305,7 @@ IMG_20181028_001117.jpg
 不要停下来啊（指鞭尸）
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7100#       发表于 2018-10-28 14:41
@@ -16324,7 +16324,7 @@ IMG_20181028_001117.jpg
 不然就是手速比拼啊……弹对方不就等于愿意自己死么……
 
 
------
+*****
 
 ####  torrotame  
 ##### 7101#       发表于 2018-10-28 14:46
@@ -16336,7 +16336,7 @@ IMG_20181028_001117.jpg
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  626704053  
 ##### 7102#       发表于 2018-10-28 14:49
@@ -16347,7 +16347,7 @@ IMG_20181028_001117.jpg
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  soulife7  
 ##### 7103#       发表于 2018-10-28 20:34
@@ -16360,7 +16360,7 @@ IMG_20181028_001117.jpg
 纳尼？红色鹤望兰<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7104#       发表于 2018-10-28 20:43
@@ -16371,7 +16371,7 @@ IMG_20181028_001117.jpg
 编辑
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 7105#       发表于 2018-10-28 23:30
@@ -16380,7 +16380,7 @@ IMG_20181028_001117.jpg
 <img src="https://static.saraba1st.com/image/smiley/carton2017/279.png" referrerpolicy="no-referrer">难道，难道会开启156线吗
 
 
------
+*****
 
 ####  amulelernen  
 ##### 7106#       发表于 2018-10-28 23:53
@@ -16392,7 +16392,7 @@ IMG_20181028_001117.jpg
 哪怕是被001抓走了，开启0115百合线都有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 7107#       发表于 2018-10-28 23:58
@@ -16404,7 +16404,7 @@ IMG_20181028_001117.jpg
 hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7108#       发表于 2018-10-29 12:12
@@ -16433,7 +16433,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 貌似漫画版9话同人已经有了…五郎哭了呢。
 
 
------
+*****
 
 ####  xingenge  
 ##### 7109#       发表于 2018-10-30 18:46
@@ -16447,7 +16447,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fwqfvot796j20xc0lajve.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  云闻先  
 ##### 7110#       发表于 2018-10-30 18:51
@@ -16462,7 +16462,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 奶对了 机娘零二 和并没有露脸的插管阿广
 
 
------
+*****
 
 ####  02016  
 ##### 7111#       发表于 2018-10-30 18:51
@@ -16478,7 +16478,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 真不错<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7112#       发表于 2018-10-30 18:53
@@ -16487,7 +16487,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 图挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 7113#       发表于 2018-10-30 18:58
@@ -16496,7 +16496,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 宇宙玫瑰花，堪比高达F91，我哭了，你们呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  timepro  
 ##### 7114#       发表于 2018-10-30 19:00
@@ -16505,7 +16505,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 封面来说，很美<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  教皇粉星拳  
 ##### 7115#       发表于 2018-10-30 19:05
@@ -16516,7 +16516,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 碟片平均销量正式跌破5000
 
 
------
+*****
 
 ####  skives  
 ##### 7116#       发表于 2018-10-30 19:09
@@ -16525,7 +16525,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 草
 
 
------
+*****
 
 ####  hl8243  
 ##### 7117#       发表于 2018-10-30 19:48
@@ -16536,7 +16536,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 花嫁扎加拉。。。。。。。。。。。
 
 
------
+*****
 
 ####  xingenge  
 ##### 7118#       发表于 2018-10-30 19:48
@@ -16546,7 +16546,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fwqhp3ylcoj20g80cbq9n.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  草化木  
 ##### 7119#       发表于 2018-10-30 20:04
@@ -16555,7 +16555,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 想不到是真有一群人对DitF爱得深沉……傲娇？
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 7120#       发表于 2018-10-30 20:07
@@ -16564,7 +16564,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 不去想正片的话，这个封面还挺好看？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 7121#       发表于 2018-10-30 20:11
@@ -16573,7 +16573,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 有一说一，这个好看的
 
 
------
+*****
 
 ####  qu191404076  
 ##### 7122#       发表于 2018-10-30 20:45
@@ -16582,7 +16582,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 第一次觉得大02漂亮<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 7123#       发表于 2018-10-30 22:16
@@ -16601,7 +16601,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7124#       发表于 2018-10-30 22:22
@@ -16611,7 +16611,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7125#       发表于 2018-10-30 22:26
@@ -16669,7 +16669,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 联系到818访谈，貌似也有说是莓广原设是类似双胞胎的存在？
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 7126#       发表于 2018-10-30 22:38
@@ -16678,7 +16678,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 广莓兄妹不是最早的几个假药吗
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7127#       发表于 2018-10-31 00:43
@@ -16689,7 +16689,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 只是又发现了新材料^_^
 
 
------
+*****
 
 ####  elflie  
 ##### 7128#       发表于 2018-10-31 01:31
@@ -16700,7 +16700,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  gbaing  
 ##### 7129#       发表于 2018-10-31 01:46
@@ -16710,7 +16710,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">庆幸当时没冲动脑子热了收BD
 
 
------
+*****
 
 ####  Meteors  
 ##### 7130#       发表于 2018-10-31 05:03
@@ -16721,7 +16721,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 编辑
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 7131#       发表于 2018-10-31 07:12
@@ -16734,7 +16734,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 我宁愿买十个下面的樱桃小丸子
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 7132#       发表于 2018-10-31 07:16
@@ -16743,7 +16743,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 突然发现这封面上写了个8W8，成了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gbaing  
 ##### 7133#       发表于 2018-10-31 07:19
@@ -16758,7 +16758,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">微博已经有人哀嚎了
 
 
------
+*****
 
 ####  Meteors  
 ##### 7134#       发表于 2018-10-31 13:04
@@ -16768,7 +16768,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  amulelernen  
 ##### 7135#       发表于 2018-10-31 13:24
@@ -16777,7 +16777,7 @@ hhhhhh等个展开<img src="https://static.saraba1st.com/image/smiley/face2017/0
 “通通3500！！！通通3500！！！”
 
 
------
+*****
 
 ####  02016  
 ##### 7136#       发表于 2018-10-31 23:24
@@ -16827,7 +16827,7 @@ Happy Halloween / 3255
 <img src="http://ww1.sinaimg.cn/large/006LWy2zgy1fwru0rosahj314u1kwqf3.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7137#       发表于 2018-11-1 00:17
@@ -16842,7 +16842,7 @@ Happy Halloween / 3255
 度盘 链接: [https://pan.baidu.com/s/1sMllvP_jZLRsumzEgYThVQ](https://pan.baidu.com/s/1sMllvP_jZLRsumzEgYThVQ) 提取码: u24t 
 
 
------
+*****
 
 ####  hl8243  
 ##### 7138#       发表于 2018-11-2 14:04
@@ -16863,7 +16863,7 @@ Happy Halloween / 3255
 矢吹为了纯爱也是拼了
 
 
------
+*****
 
 ####  新年才醒  
 ##### 7139#       发表于 2018-11-2 17:00
@@ -16879,7 +16879,7 @@ Happy Halloween / 3255
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 真这么搞  我莓工具人实锤了。。。
 
 
------
+*****
 
 ####  xingenge  
 ##### 7140#       发表于 2018-11-2 19:49
@@ -16889,7 +16889,7 @@ Happy Halloween / 3255
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fwtyk4nrekj20nj0xc1km.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7141#       发表于 2018-11-2 20:31
@@ -16900,7 +16900,7 @@ Happy Halloween / 3255
 编辑
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7142#       发表于 2018-11-2 21:51
@@ -16919,7 +16919,7 @@ Happy Halloween / 3255
 但是心满弄失忆，讲真jz还真搞不好有你说的这个想法……额……
 
 
------
+*****
 
 ####  Meteors  
 ##### 7143#       发表于 2018-11-2 21:53
@@ -16929,7 +16929,7 @@ Happy Halloween / 3255
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7144#       发表于 2018-11-2 22:02
@@ -16952,7 +16952,7 @@ Happy Halloween / 3255
 （5）猜想一下：既然这话圆了8话的叫龙，9话叫龙为什么吞人、吞了后为何不攻击估计也要圆。看这次9话叫龙表现，看起来是为了抓鹤望兰——是否是01派来抓02，结果误抓了翠雀，又因为是姐妹机所以没发现呢……
 
 
------
+*****
 
 ####  xingenge  
 ##### 7145#       发表于 2018-11-3 15:21
@@ -16962,7 +16962,7 @@ Happy Halloween / 3255
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fwuwfya8baj20xc0qqwja.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ads147147  
 ##### 7146#       发表于 2018-11-3 15:25
@@ -16984,7 +16984,7 @@ Happy Halloween / 3255
 说实话，tv抄eva就算了，漫画应该不会这么干的。。
 
 
------
+*****
 
 ####  xingenge  
 ##### 7147#       发表于 2018-11-3 16:04
@@ -17005,7 +17005,7 @@ Happy Halloween / 3255
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fwuxoit6vpj20m10w1abl.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7148#       发表于 2018-11-4 01:26
@@ -17019,7 +17019,7 @@ Happy Halloween / 3255
 <img src="http://ww3.sinaimg.cn/large/006LWy2zgy1fwvduoj4qpj30mu0xcgpz.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7149#       发表于 2018-11-4 01:33
@@ -17035,7 +17035,7 @@ Happy Halloween / 3255
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7150#       发表于 2018-11-4 01:39
@@ -17046,7 +17046,7 @@ Happy Halloween / 3255
 暗中发糖😘
 
 
------
+*****
 
 ####  Meteors  
 ##### 7151#       发表于 2018-11-4 07:13
@@ -17057,7 +17057,7 @@ Happy Halloween / 3255
 编辑
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7152#       发表于 2018-11-4 10:44
@@ -17066,7 +17066,7 @@ Happy Halloween / 3255
 满总理真美<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  烤脑花  
 ##### 7153#       发表于 2018-11-4 14:08
@@ -17076,7 +17076,7 @@ Happy Halloween / 3255
 老子要干死jz，弄得什么jb玩意
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7154#       发表于 2018-11-4 14:09
@@ -17088,7 +17088,7 @@ Happy Halloween / 3255
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 7155#       发表于 2018-11-4 14:27
@@ -17097,7 +17097,7 @@ Happy Halloween / 3255
 发了，[https://bbs.saraba1st.com/2b/thread-1788191-1-1.html](https://bbs.saraba1st.com/2b/thread-1788191-1-1.html)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7156#       发表于 2018-11-4 14:42
@@ -17115,7 +17115,7 @@ Happy Halloween / 3255
 顺便感觉自己的同人文中了某些（1）216太空念书，广告诉零二以前自己的知识（2）零二为不能亲吻而有些遗憾（3）五莓画画……莓反复重画，五郎帮助她这个桥段，虽然还没发但是已经写好了……但我绝没听过广播剧就写了这段……
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7157#       发表于 2018-11-4 14:43
@@ -17138,7 +17138,7 @@ Happy Halloween / 3255
 莓这张是在画9话这里吧？
 
 
------
+*****
 
 ####  Meteors  
 ##### 7158#       发表于 2018-11-4 16:42
@@ -17148,7 +17148,7 @@ Happy Halloween / 3255
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 7159#       发表于 2018-11-4 19:08
@@ -17160,7 +17160,7 @@ Happy Halloween / 3255
 感谢，翻译辛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7160#       发表于 2018-11-4 19:11
@@ -17172,7 +17172,7 @@ Happy Halloween / 3255
 脑补一下两人转过头发现对方<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">太甜了
 
 
------
+*****
 
 ####  02016  
 ##### 7161#       发表于 2018-11-4 19:11
@@ -17184,7 +17184,7 @@ Happy Halloween / 3255
 没错，就是这里<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">暗示一下话的剧情走向
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7162#       发表于 2018-11-4 21:17
@@ -17195,7 +17195,7 @@ Happy Halloween / 3255
 还是矢吹懂。以后就指望漫画了
 
 
------
+*****
 
 ####  02016  
 ##### 7163#       发表于 2018-11-4 21:22
@@ -17207,7 +17207,7 @@ Happy Halloween / 3255
 期待，漫画已经到第九集，11集不远了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7164#       发表于 2018-11-5 18:01
@@ -17218,7 +17218,7 @@ Happy Halloween / 3255
 矢吹这次把满心放在一张特描上〔虽然心是背景〕，明目张胆的撒暗糖，可见交换搭档不远了😊
 
 
------
+*****
 
 ####  02016  
 ##### 7165#       发表于 2018-11-6 14:16
@@ -17230,7 +17230,7 @@ Happy Halloween / 3255
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">已经闻到甜味了
 
 
------
+*****
 
 ####  xingenge  
 ##### 7166#       发表于 2018-11-8 19:26
@@ -17241,7 +17241,7 @@ Happy Halloween / 3255
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fx0ux4k6qfj20xb0njaez.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7167#       发表于 2018-11-9 12:34
@@ -17259,7 +17259,7 @@ Happy Halloween / 3255
 <img src="http://ww2.sinaimg.cn/large/006LWy2zgy1fx1pazu45cj30f60r8gn7.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  timepro  
 ##### 7168#       发表于 2018-11-9 12:47
@@ -17270,7 +17270,7 @@ Happy Halloween / 3255
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 7169#       发表于 2018-11-9 12:53
@@ -17294,7 +17294,7 @@ Happy Halloween / 3255
 盒子和上面心满婚戒一样就不重复贴了
 
 
------
+*****
 
 ####  02016  
 ##### 7170#       发表于 2018-11-9 12:54
@@ -17309,7 +17309,7 @@ Happy Halloween / 3255
 婚戒<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 7171#       发表于 2018-11-9 13:24
@@ -17321,7 +17321,7 @@ Happy Halloween / 3255
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  timepro  
 ##### 7172#       发表于 2018-11-9 15:26
@@ -17333,7 +17333,7 @@ Happy Halloween / 3255
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  02016  
 ##### 7173#       发表于 2018-11-9 15:47
@@ -17343,7 +17343,7 @@ Happy Halloween / 3255
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">做得很用心
 
 
------
+*****
 
 ####  02016  
 ##### 7174#       发表于 2018-11-9 15:49
@@ -17358,7 +17358,7 @@ Happy Halloween / 3255
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7175#       发表于 2018-11-10 23:03
@@ -17368,7 +17368,7 @@ Happy Halloween / 3255
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fx3d4x3kfkj214s0u0hdt.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7176#       发表于 2018-11-10 23:26
@@ -17380,7 +17380,7 @@ Happy Halloween / 3255
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7177#       发表于 2018-11-11 00:04
@@ -17391,7 +17391,7 @@ Happy Halloween / 3255
 14集会不会没了🤔下一集会是哪集，希望赶快换搭档😆
 
 
------
+*****
 
 ####  02016  
 ##### 7178#       发表于 2018-11-11 01:57
@@ -17403,7 +17403,7 @@ Happy Halloween / 3255
 14集太远了，还看不出会不会没了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">我也希望快换搭档
 
 
------
+*****
 
 ####  626704053  
 ##### 7179#       发表于 2018-11-11 05:43
@@ -17414,7 +17414,7 @@ Happy Halloween / 3255
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7180#       发表于 2018-11-11 20:38
@@ -17429,7 +17429,7 @@ https://fanfunmarket.jp/darli-fra
 失 忆 婚 戒
 
 
------
+*****
 
 ####  02016  
 ##### 7181#       发表于 2018-11-12 09:34
@@ -17442,7 +17442,7 @@ https://fanfunmarket.jp/darli-fra
 <img src="http://wx1.sinaimg.cn/large/0060lm7Tly1fx50xbwrslj31hc0u0wqb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7182#       发表于 2018-11-12 10:31
@@ -17453,7 +17453,7 @@ https://fanfunmarket.jp/darli-fra
 编辑
 
 
------
+*****
 
 ####  626704053  
 ##### 7183#       发表于 2018-11-12 11:20
@@ -17464,7 +17464,7 @@ https://fanfunmarket.jp/darli-fra
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7184#       发表于 2018-11-12 11:51
@@ -17477,7 +17477,7 @@ https://fanfunmarket.jp/darli-fra
 👏
 
 
------
+*****
 
 ####  02016  
 ##### 7185#       发表于 2018-11-16 19:54
@@ -17489,7 +17489,7 @@ https://fanfunmarket.jp/darli-fra
 <img src="http://ww4.sinaimg.cn/large/006LWy2zgy1fxa5dvc01fj30rs0rsabv.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7186#       发表于 2018-11-16 20:28
@@ -17501,7 +17501,7 @@ https://fanfunmarket.jp/darli-fra
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  02016  
 ##### 7187#       发表于 2018-11-16 23:20
@@ -17518,7 +17518,7 @@ https://fanfunmarket.jp/darli-fra
 后藤说的好像是：ヒロキ出生了，愿33岁也能有美好的相遇（不会日语瞎猜的）
 
 
------
+*****
 
 ####  Newfarming2  
 ##### 7188#       发表于 2018-11-17 11:30
@@ -17527,7 +17527,7 @@ https://fanfunmarket.jp/darli-fra
 这楼为什么还在往上盖啊。。。
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 7189#       发表于 2018-11-17 11:50
@@ -17536,7 +17536,7 @@ https://fanfunmarket.jp/darli-fra
 这戒指不错啊，<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">心满意足了。。。
 
 
------
+*****
 
 ####  02016  
 ##### 7190#       发表于 2018-11-18 19:42
@@ -17557,7 +17557,7 @@ https://fanfunmarket.jp/darli-fra
 <img src="http://ww3.sinaimg.cn/large/006LWy2zgy1fxcgak2c8xj30u0140gr8.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7191#       发表于 2018-11-18 21:07
@@ -17566,7 +17566,7 @@ https://fanfunmarket.jp/darli-fra
 <img src="https://i.loli.net/2018/11/18/5bf1635d3f49c.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7192#       发表于 2018-11-19 11:28
@@ -17575,7 +17575,7 @@ https://fanfunmarket.jp/darli-fra
 完整广播剧3翻译出了：[http://tieba.baidu.com/p/5954231495?](http://tieba.baidu.com/p/5954231495?)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7193#       发表于 2018-11-19 11:48
@@ -17587,7 +17587,7 @@ https://fanfunmarket.jp/darli-fra
 听的一首歌。
 
 
------
+*****
 
 ####  Meteors  
 ##### 7194#       发表于 2018-11-19 12:44
@@ -17598,7 +17598,7 @@ https://fanfunmarket.jp/darli-fra
 编辑
 
 
------
+*****
 
 ####  山贼先生  
 ##### 7195#       发表于 2018-11-19 13:13
@@ -17607,7 +17607,7 @@ https://fanfunmarket.jp/darli-fra
 这楼。。。居然还活在漫区第一页<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7196#       发表于 2018-11-19 16:59
@@ -17618,7 +17618,7 @@ https://fanfunmarket.jp/darli-fra
 [https://darli-fra.jp/news/?id=49012&amp;p=1](https://darli-fra.jp/news/?id=49012&amp;p=1)
 
 
------
+*****
 
 ####  626704053  
 ##### 7197#       发表于 2018-11-19 17:26
@@ -17630,7 +17630,7 @@ https://fanfunmarket.jp/darli-fra
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  02016  
 ##### 7198#       发表于 2018-11-20 00:24
@@ -17642,7 +17642,7 @@ https://fanfunmarket.jp/darli-fra
 谢谢通知<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7199#       发表于 2018-11-20 00:27
@@ -17654,7 +17654,7 @@ https://fanfunmarket.jp/darli-fra
 竟然中止了
 
 
------
+*****
 
 ####  02016  
 ##### 7200#       发表于 2018-11-23 16:44
@@ -17771,7 +17771,7 @@ BLUEに錦織監督と田中将賀氏のサインをいただきました。
 <img src="http://ww3.sinaimg.cn/large/006LWy2zgy1fxi3fbh4ofj30hs0d63zn.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7201#       发表于 2018-11-23 21:20
@@ -17782,7 +17782,7 @@ BLUEに錦織監督と田中将賀氏のサインをいただきました。
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  626704053  
 ##### 7202#       发表于 2018-11-23 21:21
@@ -17795,7 +17795,7 @@ BLUEに錦織監督と田中将賀氏のサインをいただきました。
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  xyau  
 ##### 7203#       发表于 2018-11-24 07:34
@@ -17804,7 +17804,7 @@ BLUEに錦織監督と田中将賀氏のサインをいただきました。
 印章有点可爱
 
 
------
+*****
 
 ####  xingenge  
 ##### 7204#       发表于 2018-11-24 10:46
@@ -17824,7 +17824,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fxiyhj30oaj20xc0kh41k.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7205#       发表于 2018-11-24 11:13
@@ -17839,7 +17839,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  xingenge  
 ##### 7206#       发表于 2018-11-24 23:13
@@ -17853,7 +17853,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 另外今天心一狠，把原画集给下单了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yoshiron  
 ##### 7207#       发表于 2018-11-24 23:17
@@ -17862,7 +17862,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 戴了面罩，有长进
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7208#       发表于 2018-11-24 23:22
@@ -17871,7 +17871,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 合情合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 7209#       发表于 2018-11-25 00:54
@@ -17880,7 +17880,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 <img src="https://static.saraba1st.com/image/smiley/carton2017/279.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winoros  
 ##### 7210#       发表于 2018-11-25 00:57
@@ -17889,7 +17889,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">原画集大概半个月后到 到了扫几张图吧
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 7211#       发表于 2018-11-25 01:23
@@ -17901,7 +17901,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 <img src="https://i.loli.net/2018/11/25/5bf9884263011.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7212#       发表于 2018-11-25 01:28
@@ -17915,7 +17915,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 看不懂，从前后文总感觉是想要兽化啊……
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 7213#       发表于 2018-11-25 01:33
@@ -17927,7 +17927,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 之前的漫画有出现过那幅图吗？是不是在回忆什么？
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7214#       发表于 2018-11-25 01:57
@@ -17939,7 +17939,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 兽化鹤望兰第一话出现过吧。而且这话结尾那个十字星，很像是兽化后的眼睛啊……但是如果翠雀兽化，就真不知道接下来要怎么演了。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7215#       发表于 2018-11-25 15:29
@@ -17951,7 +17951,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 [https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1793043&amp;extra=page%3D1&amp;mobile=2](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1793043&amp;extra=page%3D1&amp;mobile=2)
 
 
------
+*****
 
 ####  02016  
 ##### 7216#       发表于 2018-11-25 22:42
@@ -17962,7 +17962,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 [https://www.excite.co.jp/news/article/E1542724433961/](https://www.excite.co.jp/news/article/E1542724433961/)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7217#       发表于 2018-11-25 23:51
@@ -18029,7 +18029,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 查看全部评分
 
 
------
+*****
 
 ####  02016  
 ##### 7218#       发表于 2018-11-26 00:02
@@ -18044,7 +18044,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 谢谢<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7219#       发表于 2018-11-26 09:28
@@ -18063,7 +18063,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 [https://www.excite.co.jp/news/article/E1542725047111/](https://www.excite.co.jp/news/article/E1542725047111/)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7220#       发表于 2018-11-27 10:04
@@ -18186,7 +18186,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 查看全部评分
 
 
------
+*****
 
 ####  02016  
 ##### 7221#       发表于 2018-11-27 11:26
@@ -18201,7 +18201,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7222#       发表于 2018-11-27 17:48
@@ -18212,7 +18212,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 [https://weibo.com/tv/v/H4CPhm0KN?fid=1034:4311025567359386](https://weibo.com/tv/v/H4CPhm0KN?fid=1034:4311025567359386)
 
 
------
+*****
 
 ####  Meteors  
 ##### 7223#       发表于 2018-11-27 18:24
@@ -18222,7 +18222,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  626704053  
 ##### 7224#       发表于 2018-11-27 19:03
@@ -18233,7 +18233,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  xingenge  
 ##### 7225#       发表于 2018-11-28 12:37
@@ -18249,7 +18249,7 @@ ANIPLEX＋:ダーリン・イン・ザ・フランキス ゼロツー</blockquot
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fxno6tmx7qj20sg0lc77u.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7226#       发表于 2018-11-28 13:17
@@ -18303,7 +18303,7 @@ ToLove結城@Toloveyuki1
 <img src="http://ww1.sinaimg.cn/large/006LWy2zgy1fxnpjgx7hmj318v0u047i.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7227#       发表于 2018-11-28 13:21
@@ -18312,7 +18312,7 @@ ToLove結城@Toloveyuki1
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不懂什么时候能看到我的全卷
 
 
------
+*****
 
 ####  Quokka  
 ##### 7228#       发表于 2018-11-28 15:18
@@ -18321,7 +18321,7 @@ ToLove結城@Toloveyuki1
 <img src="https://static.saraba1st.com/image/smiley/carton2017/281.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  noobtizi  
 ##### 7229#       发表于 2018-11-28 15:26
@@ -18332,7 +18332,7 @@ ToLove結城@Toloveyuki1
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 7230#       发表于 2018-11-28 15:46
@@ -18341,7 +18341,7 @@ ToLove結城@Toloveyuki1
 <img src="https://static.saraba1st.com/image/smiley/carton2017/280.png" referrerpolicy="no-referrer">ep2就知道了呀
 
 
------
+*****
 
 ####  02016  
 ##### 7231#       发表于 2018-11-28 21:16
@@ -18350,7 +18350,7 @@ ToLove結城@Toloveyuki1
 求翻译这几张repo的内容[https://twitter.com/temodemo_nor/status/1065983570324275200](https://twitter.com/temodemo_nor/status/1065983570324275200) 
 
 
------
+*****
 
 ####  626704053  
 ##### 7232#       发表于 2018-11-28 21:44
@@ -18361,7 +18361,7 @@ ToLove結城@Toloveyuki1
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 7233#       发表于 2018-11-29 01:18
@@ -18479,7 +18479,7 @@ A：广变回人类，02成神的结局也考虑过，但总之只要是让我�
 查看全部评分
 
 
------
+*****
 
 ####  626704053  
 ##### 7234#       发表于 2018-11-29 01:48
@@ -18490,7 +18490,7 @@ A：广变回人类，02成神的结局也考虑过，但总之只要是让我�
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7235#       发表于 2018-11-29 01:55
@@ -18506,7 +18506,7 @@ Q1：哪些角色比较好画？</blockquote>
 02成神还行，低能监督你除了抄飞跃巅峰还会干点啥
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 7236#       发表于 2018-11-29 02:12
@@ -18515,7 +18515,7 @@ Q1：哪些角色比较好画？</blockquote>
 大手是什么居然有解释了。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 7237#       发表于 2018-11-29 02:38
@@ -18526,7 +18526,7 @@ Q1：哪些角色比较好画？</blockquote>
 他自己也不知道，现场口胡
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7238#       发表于 2018-11-29 03:43
@@ -18535,7 +18535,7 @@ Q1：哪些角色比较好画？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 7239#       发表于 2018-11-29 07:10
@@ -18544,7 +18544,7 @@ Q1：哪些角色比较好画？</blockquote>
 这人简直是个特么的祸害
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 7240#       发表于 2018-11-29 07:29
@@ -18556,7 +18556,7 @@ Q1：哪些角色比较好画？</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Meteors  
 ##### 7241#       发表于 2018-11-29 07:50
@@ -18567,7 +18567,7 @@ Q1：哪些角色比较好画？</blockquote>
 编辑
 
 
------
+*****
 
 ####  soulife7  
 ##### 7242#       发表于 2018-11-29 07:53
@@ -18576,7 +18576,7 @@ Q1：哪些角色比较好画？</blockquote>
 古有褒姒烽火狼烟，今有锦织送屎三斤<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 7243#       发表于 2018-11-29 08:02
@@ -18585,7 +18585,7 @@ Q1：哪些角色比较好画？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  伊斯塔废灵  
 ##### 7244#       发表于 2018-11-29 08:03
@@ -18594,7 +18594,7 @@ Q1：哪些角色比较好画？</blockquote>
 这口💩真的要吃方2019？
 
 
------
+*****
 
 ####  astrayveller  
 ##### 7245#       发表于 2018-11-29 08:36
@@ -18605,7 +18605,7 @@ Q1：哪些角色比较好画？</blockquote>
 — from Xiaomi MI 8 UD, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4
 
 
------
+*****
 
 ####  9α  
 ##### 7246#       发表于 2018-11-29 10:09
@@ -18618,7 +18618,7 @@ Q1：哪些角色比较好画？</blockquote>
 xswl
 
 
------
+*****
 
 ####  626704053  
 ##### 7247#       发表于 2018-11-29 11:36
@@ -18631,7 +18631,7 @@ xswl
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  xingenge  
 ##### 7248#       发表于 2018-11-29 12:10
@@ -18642,7 +18642,7 @@ xswl
 看前面有人发过了
 
 
------
+*****
 
 ####  winoros  
 ##### 7249#       发表于 2018-11-29 12:53
@@ -18658,7 +18658,7 @@ xswl
 <img src="https://i.imgur.com/HIWphix.jpg?1" id="aimg_D3wo2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
------
+*****
 
 ####  遍体精淋af  
 ##### 7250#       发表于 2018-11-29 13:07
@@ -18672,7 +18672,7 @@ xswl
 [http://tieba.baidu.com/p/5963083986?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=9.8.8.13&amp;st=1543468053&amp;unique=FD4240882C0AD3BABDDD473C0B9D3A6F](http://tieba.baidu.com/p/5963083986?share=9105&amp;fr=share&amp;see_lz=0&amp;sfc=copy&amp;client_type=2&amp;client_version=9.8.8.13&amp;st=1543468053&amp;unique=FD4240882C0AD3BABDDD473C0B9D3A6F)
 
 
------
+*****
 
 ####  02016  
 ##### 7251#       发表于 2018-11-29 13:43
@@ -18690,7 +18690,7 @@ Q1：哪些角色比较好画？</blockquote>
 也感受到国家队成员有各种各样的形态，早婚晚婚同志不婚结婚对象不是最初暗恋对象的，没想到未来的定位是晚婚
 
 
------
+*****
 
 ####  swanon  
 ##### 7252#       发表于 2018-11-29 14:03
@@ -18699,7 +18699,7 @@ Q1：哪些角色比较好画？</blockquote>
 不管几次结局都是这样，正如bb剧场里不管怎样奥尔加都无法回避惨剧<img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7253#       发表于 2018-11-29 14:05
@@ -18712,7 +18712,7 @@ Q1：哪些角色比较好画？</blockquote>
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  遍体精淋af  
 ##### 7254#       发表于 2018-11-29 14:36
@@ -18726,7 +18726,7 @@ Q1：哪些角色比较好画？</blockquote>
 改了
 
 
------
+*****
 
 ####  626704053  
 ##### 7255#       发表于 2018-11-29 14:43
@@ -18739,7 +18739,7 @@ Q1：哪些角色比较好画？</blockquote>
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  winoros  
 ##### 7256#       发表于 2018-11-29 23:38
@@ -18794,7 +18794,7 @@ ED1
 查看全部评分
 
 
------
+*****
 
 ####  xingenge  
 ##### 7257#       发表于 2018-11-30 01:14
@@ -18807,7 +18807,7 @@ ED1
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fxpfoxafsgj20jn0rs7iy.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7258#       发表于 2018-11-30 15:52
@@ -18823,7 +18823,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  星隐月明  
 ##### 7259#       发表于 2018-11-30 16:35
@@ -18832,7 +18832,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  旺仔秋秋糖  
 ##### 7260#       发表于 2018-11-30 16:40
@@ -18847,7 +18847,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 这.....不是说不好看哈，但是那个棒棒糖起的皮橛子的作用吗？
 
 
------
+*****
 
 ####  626704053  
 ##### 7261#       发表于 2018-11-30 17:36
@@ -18860,7 +18860,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  ゴロー  
 ##### 7262#       发表于 2018-11-30 18:08
@@ -18878,7 +18878,7 @@ Q1：哪些角色比较好画？</blockquote>
 ptsd又犯了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7263#       发表于 2018-12-3 00:30
@@ -18889,7 +18889,7 @@ ptsd又犯了<img src="https://static.saraba1st.com/image/smiley/face2017/165.pn
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7264#       发表于 2018-12-3 02:33
@@ -18904,7 +18904,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 感觉这套衣服第一话之后就被废弃掉了（为了12话？）
 
 
------
+*****
 
 ####  xingenge  
 ##### 7265#       发表于 2018-12-6 10:19
@@ -18913,7 +18913,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fxwt6csi64j20l20rsgpo.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 7266#       发表于 2018-12-6 10:32
@@ -18922,7 +18922,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这贴？怎么又上来了
 
 
------
+*****
 
 ####  xingenge  
 ##### 7267#       发表于 2018-12-7 18:09
@@ -18933,7 +18933,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fxycde0vkgj20u01lqe42.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yoshiron  
 ##### 7268#       发表于 2018-12-7 19:19
@@ -18945,7 +18945,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 这套红色的不是一直在穿吗
 
 
------
+*****
 
 ####  02016  
 ##### 7269#       发表于 2018-12-7 19:53
@@ -18957,7 +18957,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7270#       发表于 2018-12-8 16:20
@@ -18968,7 +18968,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 感觉第三名中有好多比第二名好看…
 
 
------
+*****
 
 ####  xingenge  
 ##### 7271#       发表于 2018-12-8 23:44
@@ -18986,7 +18986,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fxzro30zalj21500u04qp.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7272#       发表于 2018-12-9 00:03
@@ -19000,7 +19000,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 感觉是为表现出兽化的样子？
 
 
------
+*****
 
 ####  xingenge  
 ##### 7273#       发表于 2018-12-9 00:10
@@ -19012,7 +19012,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 这话其他角色感觉也差点意思
 
 
------
+*****
 
 ####  兰开夏  
 ##### 7274#       发表于 2018-12-9 00:27
@@ -19036,7 +19036,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 现在这项目也算是快要结束了, 这楼时不时出现<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 7275#       发表于 2018-12-9 01:07
@@ -19051,7 +19051,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 56这臀让人没法直视…
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7276#       发表于 2018-12-9 02:18
@@ -19063,7 +19063,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 我是指红外套白衬衫分体式的。。。之后就改成红白一体的拉链了
 
 
------
+*****
 
 ####  dropdead  
 ##### 7277#       发表于 2018-12-9 02:31
@@ -19072,7 +19072,7 @@ https://twitter.com/tanamasa0119/status/1068191159388794880
 这坟头怕不是要延续到1月13日
 
 
------
+*****
 
 ####  novid  
 ##### 7278#       发表于 2018-12-9 03:34
@@ -19088,7 +19088,7 @@ ditfX海绵宝宝（精神污染注意）
 —— 来自 HUAWEI MHA-AL00, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
 
 
------
+*****
 
 ####  Meteors  
 ##### 7279#       发表于 2018-12-9 10:16
@@ -19099,7 +19099,7 @@ ditfX海绵宝宝（精神污染注意）
 编辑
 
 
------
+*****
 
 ####  华发夜眼[CN]  
 ##### 7280#       发表于 2018-12-9 10:20
@@ -19108,7 +19108,7 @@ ditfX海绵宝宝（精神污染注意）
 压咩咯<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7281#       发表于 2018-12-9 11:24
@@ -19119,7 +19119,7 @@ ditfX海绵宝宝（精神污染注意）
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  伊斯塔废灵  
 ##### 7282#       发表于 2018-12-9 11:27
@@ -19128,7 +19128,7 @@ ditfX海绵宝宝（精神污染注意）
 <img src="https://static.saraba1st.com/image/smiley/carton2017/278.png" referrerpolicy="no-referrer">蝈庆节还有1个月啦
 
 
------
+*****
 
 ####  命运の审判官  
 ##### 7283#       发表于 2018-12-9 12:22
@@ -19141,7 +19141,7 @@ ditfX海绵宝宝（精神污染注意）
 ひとりが辛いからふたつの手をつないだ
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7284#       发表于 2018-12-10 19:07
@@ -19156,7 +19156,7 @@ ditfX海绵宝宝（精神污染注意）
 不过感觉剧情还不错…
 
 
------
+*****
 
 ####  626704053  
 ##### 7285#       发表于 2018-12-10 19:35
@@ -19167,7 +19167,7 @@ ditfX海绵宝宝（精神污染注意）
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  kmno4  
 ##### 7286#       发表于 2018-12-10 20:04
@@ -19185,7 +19185,7 @@ ditfX海绵宝宝（精神污染注意）
 果然呢，拍不好是一种番，拍的烂又是另一种，喂shi是一种，欺骗观众是一种，打击观众是一种，而国家队真是可以造成PTSD的一种呢<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7287#       发表于 2018-12-10 20:08
@@ -19201,7 +19201,7 @@ ditfX海绵宝宝（精神污染注意）
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  步六孤  
 ##### 7288#       发表于 2018-12-10 20:11
@@ -19210,7 +19210,7 @@ ditfX海绵宝宝（精神污染注意）
 你们都没好
 
 
------
+*****
 
 ####  626704053  
 ##### 7289#       发表于 2018-12-10 20:13
@@ -19223,7 +19223,7 @@ ditfX海绵宝宝（精神污染注意）
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7290#       发表于 2018-12-11 01:39
@@ -19242,7 +19242,7 @@ ditfX海绵宝宝（精神污染注意）
 2018-12-11 01:37 上传
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7291#       发表于 2018-12-11 10:47
@@ -19270,7 +19270,7 @@ ditfX海绵宝宝（精神污染注意）
 2018-12-11 10:45 上传
 
 
------
+*****
 
 ####  jesperliu  
 ##### 7292#       发表于 2018-12-11 12:09
@@ -19282,7 +19282,7 @@ ditfX海绵宝宝（精神污染注意）
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  02016  
 ##### 7293#       发表于 2018-12-11 15:02
@@ -19294,7 +19294,7 @@ ditfX海绵宝宝（精神污染注意）
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有哪个勇士可以挑战一下穿这个上街
 
 
------
+*****
 
 ####  Meteors  
 ##### 7294#       发表于 2018-12-11 17:22
@@ -19305,7 +19305,7 @@ ditfX海绵宝宝（精神污染注意）
 编辑
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 7295#       发表于 2018-12-11 17:31
@@ -19314,7 +19314,7 @@ ditfX海绵宝宝（精神污染注意）
 已经快一年了吗？唏嘘不已。眼见他起高楼，眼见他宴宾客，当时楼里是何等空前盛况，如今还有几个老人呢。
 
 
------
+*****
 
 ####  free  
 ##### 7296#       发表于 2018-12-11 17:57
@@ -19323,7 +19323,7 @@ ditfX海绵宝宝（精神污染注意）
 唏嘘啥呀，蝈蝈这半年还不够风光吗，绝大多数片一季的楼都没有蝈蝈一话的高
 
 
------
+*****
 
 ####  elflie  
 ##### 7297#       发表于 2018-12-11 18:10
@@ -19332,7 +19332,7 @@ ditfX海绵宝宝（精神污染注意）
 这TM什么神经病衣服
 
 
------
+*****
 
 ####  skives  
 ##### 7298#       发表于 2018-12-11 18:20
@@ -19341,7 +19341,7 @@ ditfX海绵宝宝（精神污染注意）
 嘿，还真敢出。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7299#       发表于 2018-12-13 01:09
@@ -19359,7 +19359,7 @@ ditfX海绵宝宝（精神污染注意）
 米山舞把角色很多都修成了“米山脸”，ed1是她肝出来的。
 
 
------
+*****
 
 ####  步六孤  
 ##### 7300#       发表于 2018-12-13 01:29
@@ -19368,7 +19368,7 @@ ditfX海绵宝宝（精神污染注意）
 睡不着看完了oped访谈，鹤卷和米山一家人怎么会摊上nishigouri（拼音意味）
 
 
------
+*****
 
 ####  free  
 ##### 7301#       发表于 2018-12-13 01:36
@@ -19379,7 +19379,7 @@ ditfX海绵宝宝（精神污染注意）
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Acatv  
 ##### 7302#       发表于 2018-12-13 02:06
@@ -19389,7 +19389,7 @@ ditfX海绵宝宝（精神污染注意）
 不过蝈蝈生前确实在泥潭阔过好长一段时间，二十几座摩天病栋依然还是泥潭今年最靓丽的风景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7303#       发表于 2018-12-13 02:23
@@ -19398,7 +19398,7 @@ ditfX海绵宝宝（精神污染注意）
 这么丑的卫衣锦织你自己穿的出门吗？
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7304#       发表于 2018-12-13 02:24
@@ -19410,7 +19410,7 @@ ditfX海绵宝宝（精神污染注意）
 nishigoMi（指正）
 
 
------
+*****
 
 ####  626704053  
 ##### 7305#       发表于 2018-12-13 02:35
@@ -19421,7 +19421,7 @@ nishigoMi（指正）
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  dropdead  
 ##### 7306#       发表于 2018-12-13 02:53
@@ -19430,7 +19430,7 @@ nishigoMi（指正）
 第六话，从今石那里拿到大量分镜草稿然后雨宫哲负责全话分镜........所以说第一把背刺高雄的是脱离噶咯
 
 
------
+*****
 
 ####  Meteors  
 ##### 7307#       发表于 2018-12-13 03:07
@@ -19441,7 +19441,7 @@ nishigoMi（指正）
 编辑
 
 
------
+*****
 
 ####  步六孤  
 ##### 7308#       发表于 2018-12-13 07:05
@@ -19455,7 +19455,7 @@ nishigoMi（指正）
 — from HUAWEI EML-AL00, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0
 
 
------
+*****
 
 ####  soulife7  
 ##### 7309#       发表于 2018-12-13 07:12
@@ -19466,7 +19466,7 @@ nishigoMi（指正）
 你没好<img src="https://static.saraba1st.com/image/smiley/carton2017/279.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 7310#       发表于 2018-12-13 07:18
@@ -19479,7 +19479,7 @@ nishigoMi（指正）
 我好了
 
 
------
+*****
 
 ####  步六孤  
 ##### 7311#       发表于 2018-12-13 08:32
@@ -19503,7 +19503,7 @@ QQ浏览器截图20181213083046.png
 <img src="https://img.saraba1st.com/forum/201812/13/083224vnfl9z9qdzdl9mm7.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7312#       发表于 2018-12-13 11:57
@@ -19515,7 +19515,7 @@ QQ浏览器截图20181213083046.png
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  dropdead  
 ##### 7313#       发表于 2018-12-13 13:54
@@ -19527,7 +19527,7 @@ QQ浏览器截图20181213083046.png
 怕是本家的路数，重要文戏后好像都接着live演出
 
 
------
+*****
 
 ####  xingenge  
 ##### 7314#       发表于 2018-12-13 17:03
@@ -19545,7 +19545,7 @@ QQ浏览器截图20181213083046.png
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fy585cplkdj20xc0n0q8f.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7315#       发表于 2018-12-13 17:34
@@ -19562,7 +19562,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  626704053  
 ##### 7316#       发表于 2018-12-13 17:49
@@ -19589,7 +19589,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 查看全部评分
 
 
------
+*****
 
 ####  xingenge  
 ##### 7317#       发表于 2018-12-13 20:03
@@ -19600,7 +19600,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fy5deaowj4j20xc0p0qa0.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 7318#       发表于 2018-12-13 20:40
@@ -19609,7 +19609,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  tokimon  
 ##### 7319#       发表于 2018-12-13 20:44
@@ -19618,7 +19618,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 零二已经沦落到跳钢管艳舞博人气了么，田中不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7320#       发表于 2018-12-13 22:59
@@ -19627,7 +19627,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 过于恶俗，消费过世女主，呕了<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7321#       发表于 2018-12-14 00:48
@@ -19653,7 +19653,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fy5lmncukbj20l10rsdwt.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7322#       发表于 2018-12-14 00:59
@@ -19665,7 +19665,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7323#       发表于 2018-12-14 01:00
@@ -19677,7 +19677,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7324#       发表于 2018-12-14 01:01
@@ -19686,7 +19686,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">其实这本杂志想买，还想买那本C95的，那张透明海报实在是太好看了。
 
 
------
+*****
 
 ####  步六孤  
 ##### 7325#       发表于 2018-12-14 01:32
@@ -19695,7 +19695,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 我真的求田中要不然不画要不然就用心画点健全的，aj也是这个也是没必要这么卖一定要画成这样吗之前摸鱼那张02人体比例扭得吓人bd封面构图我都不想说。。。。。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 7326#       发表于 2018-12-14 08:23
@@ -19705,7 +19705,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 “知道了，达令”
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 7327#       发表于 2018-12-14 08:48
@@ -19717,7 +19717,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 相得益彰
 
 
------
+*****
 
 ####  626704053  
 ##### 7328#       发表于 2018-12-14 08:55
@@ -19730,7 +19730,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  tokimon  
 ##### 7329#       发表于 2018-12-14 09:10
@@ -19741,7 +19741,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 草，矢吹画不了黄漫（确信）
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7330#       发表于 2018-12-14 18:21
@@ -19752,7 +19752,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 这次这个封面零二不知为何……感到不适……
 
 
------
+*****
 
 ####  gbaing  
 ##### 7331#       发表于 2018-12-14 18:22
@@ -19761,7 +19761,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">落魄女主演被黑心剧组欺骗不得不出卖色相谋生
 
 
------
+*****
 
 ####  伊斯塔废灵  
 ##### 7332#       发表于 2018-12-14 19:30
@@ -19770,7 +19770,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 日本2018年度热词 17名 darling in the franxx
 
 
------
+*****
 
 ####  Meteors  
 ##### 7333#       发表于 2018-12-14 20:37
@@ -19780,7 +19780,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  626704053  
 ##### 7334#       发表于 2018-12-14 22:30
@@ -19793,7 +19793,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  ryan831231  
 ##### 7335#       发表于 2018-12-14 23:46
@@ -19805,7 +19805,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 有无完整排名？想看看其他作品热度如何
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 7336#       发表于 2018-12-14 23:49
@@ -19817,7 +19817,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  伊斯塔废灵  
 ##### 7337#       发表于 2018-12-15 08:21
@@ -19831,7 +19831,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 不要停下来啊 第四 pop子和pipi子第一
 
 
------
+*****
 
 ####  amulelernen  
 ##### 7338#       发表于 2018-12-15 08:42
@@ -19840,7 +19840,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 编辑
 
 
------
+*****
 
 ####  02016  
 ##### 7339#       发表于 2018-12-15 21:26
@@ -19875,7 +19875,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="http://ww2.sinaimg.cn/large/006LWy2zgy1fy7prg5iswj30u01hctdx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7340#       发表于 2018-12-15 21:27
@@ -19912,7 +19912,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="http://ww1.sinaimg.cn/large/006LWy2zgy1fy7qzh5n60j30u0140tff.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7341#       发表于 2018-12-15 21:32
@@ -19937,7 +19937,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="http://ww3.sinaimg.cn/large/006LWy2zgy1fy7r82k7joj31420u0tgg.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7342#       发表于 2018-12-15 21:35
@@ -19953,7 +19953,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  02016  
 ##### 7343#       发表于 2018-12-15 21:43
@@ -19968,7 +19968,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 映像居酒屋ロボ基地，好像是和官方合作办主题活动中
 
 
------
+*****
 
 ####  626704053  
 ##### 7344#       发表于 2018-12-15 21:44
@@ -19981,7 +19981,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  02016  
 ##### 7345#       发表于 2018-12-15 21:48
@@ -19996,7 +19996,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">羡慕在日本的人，也想去现场感受一下
 
 
------
+*****
 
 ####  02016  
 ##### 7346#       发表于 2018-12-15 23:23
@@ -20010,7 +20010,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 <img src="http://ww4.sinaimg.cn/large/006LWy2zgy1fy7ucq392sj30lc0v44bb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7347#       发表于 2018-12-15 23:37
@@ -20023,7 +20023,7 @@ boku no darling <img src="https://static.saraba1st.com/image/smiley/face2017/148
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7348#       发表于 2018-12-15 23:44
@@ -20047,7 +20047,7 @@ IMG_20181215_233427.jpg
 <img src="https://img.saraba1st.com/forum/201812/15/234419oe919dvnel9qh2hv.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7349#       发表于 2018-12-16 01:21
@@ -20059,7 +20059,7 @@ IMG_20181215_233427.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7350#       发表于 2018-12-16 01:22
@@ -20071,7 +20071,7 @@ IMG_20181215_233427.jpg
 美好<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7351#       发表于 2018-12-16 18:19
@@ -20090,7 +20090,7 @@ IMG_20181215_233427.jpg
 2018-12-16 18:16 上传
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7352#       发表于 2018-12-16 19:20
@@ -20101,7 +20101,7 @@ IMG_20181215_233427.jpg
 郁乃这张是泳装？
 
 
------
+*****
 
 ####  02016  
 ##### 7353#       发表于 2018-12-16 20:20
@@ -20113,7 +20113,7 @@ IMG_20181215_233427.jpg
 是的，郁莓这张泳装也很还原第七集里的设定
 
 
------
+*****
 
 ####  626704053  
 ##### 7354#       发表于 2018-12-16 22:37
@@ -20123,7 +20123,7 @@ IMG_20181215_233427.jpg
 感觉这个还挺可爱的，官方出的女主们ED2里带着的手环，19日截定……</blockquote>
 
 
------
+*****
 
 ####  02016  
 ##### 7355#       发表于 2018-12-17 18:18
@@ -20139,7 +20139,7 @@ IMG_20181215_233427.jpg
 <img src="http://ww3.sinaimg.cn/large/006LWy2zgy1fy9wtzweycj31400u0k11.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7356#       发表于 2018-12-17 18:22
@@ -20155,7 +20155,7 @@ IMG_20181215_233427.jpg
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  626704053  
 ##### 7357#       发表于 2018-12-17 18:25
@@ -20174,7 +20174,7 @@ IMG_20181215_233427.jpg
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0
 
 
------
+*****
 
 ####  02016  
 ##### 7358#       发表于 2018-12-17 18:46
@@ -20190,7 +20190,7 @@ IMG_20181215_233427.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7359#       发表于 2018-12-19 18:45
@@ -20203,7 +20203,7 @@ IMG_20181215_233427.jpg
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fyc8u2tp8bj20xc0ozgsc.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 7360#       发表于 2018-12-19 19:51
@@ -20215,7 +20215,7 @@ IMG_20181215_233427.jpg
 前辈你是真爱呀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7361#       发表于 2018-12-20 00:29
@@ -20229,7 +20229,7 @@ IMG_20181215_233427.jpg
 <img src="http://ww2.sinaimg.cn/large/006LWy2zgy1fyciqewdwfj30u01b11kx.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7362#       发表于 2018-12-20 11:24
@@ -20240,7 +20240,7 @@ IMG_20181215_233427.jpg
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fyd1p54h08j20p00xcq80.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7363#       发表于 2018-12-20 13:07
@@ -20253,7 +20253,7 @@ IMG_20181215_233427.jpg
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.1
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 7364#       发表于 2018-12-20 13:08
@@ -20262,7 +20262,7 @@ IMG_20181215_233427.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">快半年了这个专楼还是能挂在首页上 同时期的一月番早沉到海沟里去了
 
 
------
+*****
 
 ####  NagisaLoveMami  
 ##### 7365#       发表于 2018-12-20 13:16
@@ -20271,7 +20271,7 @@ IMG_20181215_233427.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">扳机社真爱论坛
 
 
------
+*****
 
 ####  xingenge  
 ##### 7366#       发表于 2018-12-21 14:22
@@ -20282,7 +20282,7 @@ IMG_20181215_233427.jpg
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fyecgp563oj20p00xcn1i.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7367#       发表于 2018-12-22 23:23
@@ -20296,7 +20296,7 @@ IMG_20181215_233427.jpg
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fyfxqj1grhj21500u0b1d.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7368#       发表于 2018-12-22 23:30
@@ -20308,7 +20308,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7369#       发表于 2018-12-22 23:31
@@ -20320,7 +20320,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 半月更好煎熬，下一话是明年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 7370#       发表于 2018-12-22 23:38
@@ -20329,7 +20329,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 几个月了终于完了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7371#       发表于 2018-12-23 21:12
@@ -20341,7 +20341,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 大02
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 7372#       发表于 2018-12-23 21:38
@@ -20350,7 +20350,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 总觉得今年有种...泡沫的感觉...
 
 
------
+*****
 
 ####  02016  
 ##### 7373#       发表于 2018-12-24 11:29
@@ -20411,7 +20411,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 <img src="http://ww2.sinaimg.cn/large/006LWy2zly1fyhoj7jt4yj316g0u017b.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7374#       发表于 2018-12-24 19:05
@@ -20420,7 +20420,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 买不起了，这TM600页买毛啊，至少400
 
 
------
+*****
 
 ####  xingenge  
 ##### 7375#       发表于 2018-12-25 00:21
@@ -20434,7 +20434,7 @@ https://twitter.com/yonema/status/1075999410960576512</blockquote>
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fyianp37gvj20pe0mdada.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7376#       发表于 2018-12-25 00:25
@@ -20446,7 +20446,7 @@ https://twitter.com/yonema/status/1077236250258530306</blockquote>
 心真美<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">那个看着像是阿尔法
 
 
------
+*****
 
 ####  626704053  
 ##### 7377#       发表于 2018-12-25 01:30
@@ -20457,7 +20457,7 @@ https://twitter.com/yonema/status/1077236250258530306</blockquote>
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  gbaing  
 ##### 7378#       发表于 2018-12-25 03:02
@@ -20466,7 +20466,7 @@ https://twitter.com/yonema/status/1077236250258530306</blockquote>
 02真好看啊
 
 
------
+*****
 
 ####  大江户战士  
 ##### 7379#       发表于 2018-12-25 03:23
@@ -20481,7 +20481,7 @@ https://twitter.com/yonema/status/1077236250258530306</blockquote>
 米山舞
 
 
------
+*****
 
 ####  步六孤  
 ##### 7380#       发表于 2018-12-25 08:55
@@ -20490,7 +20490,7 @@ https://twitter.com/yonema/status/1077236250258530306</blockquote>
 cw那幅果然是jz画得，求他做做好事多画点（
 
 
------
+*****
 
 ####  626704053  
 ##### 7381#       发表于 2018-12-25 10:54
@@ -20503,7 +20503,7 @@ cw哪幅呀
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  626704053  
 ##### 7382#       发表于 2018-12-25 10:57
@@ -20512,7 +20512,7 @@ cw哪幅呀
 编辑
 
 
------
+*****
 
 ####  步六孤  
 ##### 7383#       发表于 2018-12-25 11:15
@@ -20525,7 +20525,7 @@ cw哪幅呀
 上面武嘉发得cw宣传绘，只有02不是Q版那张
 
 
------
+*****
 
 ####  Meteors  
 ##### 7384#       发表于 2018-12-25 21:45
@@ -20536,7 +20536,7 @@ cw哪幅呀
 编辑
 
 
------
+*****
 
 ####  xingenge  
 ##### 7385#       发表于 2018-12-26 12:51
@@ -20546,7 +20546,7 @@ cw哪幅呀
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fyk1yjz3mvj20xc0hgwh3.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7386#       发表于 2018-12-26 12:55
@@ -20557,7 +20557,7 @@ cw哪幅呀
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7387#       发表于 2018-12-26 18:50
@@ -20579,7 +20579,7 @@ cw哪幅呀
 具体情报网址：[https://bpnavi.jp/s/kuji/pc/medias/show_by_key/darli-fra2](https://bpnavi.jp/s/kuji/pc/medias/show_by_key/darli-fra2)
 
 
------
+*****
 
 ####  xingenge  
 ##### 7388#       发表于 2018-12-26 23:13
@@ -20594,7 +20594,7 @@ cw哪幅呀
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fykjwolwylj20nm0xcdk1.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7389#       发表于 2018-12-27 00:40
@@ -20604,7 +20604,7 @@ cw哪幅呀
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  步六孤  
 ##### 7390#       发表于 2018-12-27 10:53
@@ -20658,7 +20658,7 @@ c95的这本封面也是art本和c94对应，都是锦织画得表纸，根据�
 2018-12-27 10:52 上传
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7391#       发表于 2018-12-27 11:46
@@ -20673,7 +20673,7 @@ c95的这本封面也是art本和c94对应，都是锦织画得表纸，根据�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  步六孤  
 ##### 7392#       发表于 2018-12-27 12:33
@@ -20687,7 +20687,7 @@ c95的这本封面也是art本和c94对应，都是锦织画得表纸，根据�
 要是真仗义重视这企划还真敢让自己这小作坊一年搞3个作品呢
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7393#       发表于 2018-12-27 14:32
@@ -20702,7 +20702,7 @@ c94的art本和 ...</blockquote>
 这和锦织那个什么step by step本什么关系？？
 
 
------
+*****
 
 ####  步六孤  
 ##### 7394#       发表于 2018-12-27 14:37
@@ -20715,7 +20715,7 @@ c94的art本和 ...</blockquote>
 这本是art book没什么关系
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 7395#       发表于 2018-12-27 15:52
@@ -20739,7 +20739,7 @@ c94的art本和 ...</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7396#       发表于 2018-12-27 16:28
@@ -20752,7 +20752,7 @@ c94的art本和 ...</blockquote>
 那本是企划书…?
 
 
------
+*****
 
 ####  步六孤  
 ##### 7397#       发表于 2018-12-27 16:47
@@ -20770,7 +20770,7 @@ step xx step的话
 企画立ち上げから本編に至るまで、多岐にわたる膨大な資料や絵コンテ、 レイアウト修正などをまとめた自身セレクトによる制作資料集，包括企划到本篇的分镜lay out修正等资料
 
 
------
+*****
 
 ####  free  
 ##### 7398#       发表于 2018-12-27 16:48
@@ -20779,7 +20779,7 @@ step xx step的话
 这楼又活了，永不过气的蝈蝈<img src="https://static.saraba1st.com/image/smiley/carton2017/283.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7399#       发表于 2018-12-27 21:50
@@ -20794,7 +20794,7 @@ https://twitter.com/yonema/status/1077945027223990273
 这封面质感太好了，霸气好看
 
 
------
+*****
 
 ####  02016  
 ##### 7400#       发表于 2018-12-27 21:53
@@ -20806,7 +20806,7 @@ https://twitter.com/yonema/status/1077945027223990273
 F赏满的姿势有点帅
 
 
------
+*****
 
 ####  02016  
 ##### 7401#       发表于 2018-12-28 01:45
@@ -20830,7 +20830,7 @@ F赏满的姿势有点帅
 <img src="http://ww1.sinaimg.cn/large/006LWy2zgy1fylu56gi0hj309606bt90.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7402#       发表于 2018-12-28 13:15
@@ -20844,7 +20844,7 @@ F赏满的姿势有点帅
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  步六孤  
 ##### 7403#       发表于 2018-12-28 13:31
@@ -20863,7 +20863,7 @@ dif的表记是Trigger*A-1 picture
 这里面的区别还用说吗
 
 
------
+*****
 
 ####  xingenge  
 ##### 7404#       发表于 2018-12-28 14:40
@@ -20876,7 +20876,7 @@ dif的表记是Trigger*A-1 picture
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fymgc1ov8kj20u03hane5.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7405#       发表于 2018-12-28 15:13
@@ -20886,7 +20886,7 @@ dif的表记是Trigger*A-1 picture
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fymha7pgjuj20p00xc78t.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7406#       发表于 2018-12-28 15:36
@@ -20899,7 +20899,7 @@ dif的表记是Trigger*A-1 picture
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fymhybmomcj20xc0p0n1j.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  saintsimpler  
 ##### 7407#       发表于 2018-12-28 16:35
@@ -20908,7 +20908,7 @@ dif的表记是Trigger*A-1 picture
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">田中和米山舞的都找人买了 锦织GG这本要不要买啊
 
 
------
+*****
 
 ####  步六孤  
 ##### 7408#       发表于 2018-12-28 16:43
@@ -20920,7 +20920,7 @@ dif的表记是Trigger*A-1 picture
 锦织这本比那两本难买多了，要买趁早去跟代购打招呼吧
 
 
------
+*****
 
 ####  saintsimpler  
 ##### 7409#       发表于 2018-12-28 16:51
@@ -20931,7 +20931,7 @@ dif的表记是Trigger*A-1 picture
 感谢告知 本来以为你是说锦织自己这本 翻了一下才看到那本Artbook
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7410#       发表于 2018-12-28 21:07
@@ -20947,7 +20947,7 @@ dif的表记是Trigger*A-1 picture
 但实际上我觉得本家扳机的参与度比ditf还高点。。。
 
 
------
+*****
 
 ####  noobtizi  
 ##### 7411#       发表于 2018-12-28 21:10
@@ -20956,7 +20956,7 @@ dif的表记是Trigger*A-1 picture
 买买买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7412#       发表于 2018-12-28 23:47
@@ -20988,7 +20988,7 @@ tarou2さん(@tarou2)
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fymw4u0yefj20ki0xcgpv.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7413#       发表于 2018-12-29 00:11
@@ -21003,7 +21003,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dropdead  
 ##### 7414#       发表于 2018-12-29 00:43
@@ -21015,7 +21015,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 扳机在本家就是个外援，只是雨宫哲吉成曜这些都下了原画，反观蝈蝈......
 
 
------
+*****
 
 ####  Meteors  
 ##### 7415#       发表于 2018-12-29 00:56
@@ -21025,7 +21025,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  626704053  
 ##### 7416#       发表于 2018-12-29 01:02
@@ -21040,7 +21040,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 舔爆！！！！！！
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7417#       发表于 2018-12-29 14:21
@@ -21108,7 +21108,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 2018-12-29 13:59 上传
 
 
------
+*****
 
 ####  xingenge  
 ##### 7418#       发表于 2018-12-29 17:39
@@ -21120,7 +21120,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 还是完售了
 
 
------
+*****
 
 ####  02016  
 ##### 7419#       发表于 2018-12-29 20:51
@@ -21145,7 +21145,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 <img src="http://ww1.sinaimg.cn/large/006LWy2zgy1fynwljtv71j30no0hsn0w.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  MiTu75  
 ##### 7420#       发表于 2018-12-29 21:02
@@ -21154,7 +21154,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 哪里会有原图啊
 
 
------
+*****
 
 ####  02016  
 ##### 7421#       发表于 2018-12-30 00:04
@@ -21168,7 +21168,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 <img src="http://ww4.sinaimg.cn/large/006LWy2zgy1fyo28kwoenj30mu0xctd3.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 7422#       发表于 2018-12-30 00:07
@@ -21180,7 +21180,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 但我不大信矢吹<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7423#       发表于 2018-12-30 00:08
@@ -21189,7 +21189,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最大的If就是216活下来了呗
 
 
------
+*****
 
 ####  02016  
 ##### 7424#       发表于 2018-12-30 00:09
@@ -21203,7 +21203,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 看来改动会很大<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">就相信他一次吧
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 7425#       发表于 2018-12-30 00:14
@@ -21214,7 +21214,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 完结后我会买全卷支持老湿的
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 7426#       发表于 2018-12-30 00:17
@@ -21223,7 +21223,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 迄今为止都改动得不错<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7427#       发表于 2018-12-30 01:04
@@ -21234,7 +21234,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 剧情变了无所谓，换搭档得有
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7428#       发表于 2018-12-30 01:19
@@ -21243,7 +21243,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 下一次是10话的话会不会是大人告诉纯位数真相了
 
 
------
+*****
 
 ####  02016  
 ##### 7429#       发表于 2018-12-30 09:40
@@ -21255,7 +21255,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 我感觉还是会换搭档的，怎么换的可能有变
 
 
------
+*****
 
 ####  02016  
 ##### 7430#       发表于 2018-12-30 10:15
@@ -21267,7 +21267,7 @@ COMICMARKET95　3日目東シ08-a「atmosphere」</blockquote>
 漫画前面的if展开也很多，但这次矢吹专门做了预告，很可能改动会很大，我感觉下一回可能会是完全跳出动画框架的原创内容，也就是完全不能找到对应的集数
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7431#       发表于 2018-12-30 12:05
@@ -21291,7 +21291,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 <img src="https://img.saraba1st.com/forum/201812/30/120403f2zx1jk1asqifi25.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 7432#       发表于 2018-12-30 12:23
@@ -21303,7 +21303,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 前面铺垫暗示很多，两人换搭档不会变的，我也感觉过程会变，心满的戏份和动画比是变动很大，一直在走if线<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7433#       发表于 2018-12-30 12:37
@@ -21314,7 +21314,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 特别是满比动画傲娇，没那么扭曲，对心的态度，比动画前期好很多，也只会给人不合群的印象。心比动画主动直接一些，感情线很明显了。也算是两个角色对比动画当中的不同之处
 
 
------
+*****
 
 ####  02016  
 ##### 7434#       发表于 2018-12-31 00:26
@@ -21326,7 +21326,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 确实两人和动画里的性格都有一些不同之处<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  暮云雨凝  
 ##### 7435#       发表于 2018-12-31 15:12
@@ -21338,7 +21338,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 前期动画的暗线，漫画直接变成明线了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7436#       发表于 2019-1-1 10:50
@@ -21348,7 +21348,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fyqw6t21q1j20n20xcjt8.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7437#       发表于 2019-1-3 14:25
@@ -21359,7 +21359,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  02016  
 ##### 7438#       发表于 2019-1-4 00:18
@@ -21368,7 +21368,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 泥潭复活了
 
 
------
+*****
 
 ####  伊斯塔废灵  
 ##### 7439#       发表于 2019-1-4 11:38
@@ -21377,7 +21377,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 年度总结一看，整个2018都是蝈
 
 
------
+*****
 
 ####  xingenge  
 ##### 7440#       发表于 2019-1-4 16:02
@@ -21395,7 +21395,7 @@ Screenshot_2018-12-30-12-03-52-555_com.android.browser.png
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fyum0l4dpij20mk0xctbt.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 7441#       发表于 2019-1-4 16:05
@@ -21406,7 +21406,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 好
 
 
------
+*****
 
 ####  noobtizi  
 ##### 7442#       发表于 2019-1-4 21:14
@@ -21420,7 +21420,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 看来是不唱了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7443#       发表于 2019-1-4 22:19
@@ -21432,7 +21432,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 被蝈蝈缠身的一年
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 7444#       发表于 2019-1-5 22:10
@@ -21441,7 +21441,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 说来今天是莓日明天是广日呢…
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 7445#       发表于 2019-1-5 22:28
@@ -21453,7 +21453,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 015 016<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 7446#       发表于 2019-1-6 00:08
@@ -21463,7 +21463,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fyw5prpow7j20xb0nkaye.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhDesire  
 ##### 7447#       发表于 2019-1-7 00:08
@@ -21476,7 +21476,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 女版奥特曼
 
 
------
+*****
 
 ####  若荼泱  
 ##### 7448#       发表于 2019-1-7 00:35
@@ -21489,7 +21489,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 喷了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 7449#       发表于 2019-1-7 02:29
@@ -21500,7 +21500,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 编辑
 
 
------
+*****
 
 ####  坂木静香  
 ##### 7450#       发表于 2019-1-7 05:37
@@ -21512,7 +21512,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 京阿尼这也算帮一月的对手达成心愿了，不知道有没满广ptsd。
 
 
------
+*****
 
 ####  hl8243  
 ##### 7451#       发表于 2019-1-7 08:20
@@ -21525,7 +21525,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 变身前  以泽拉图的身份活跃人们身边
 
 
------
+*****
 
 ####  Meteors  
 ##### 7452#       发表于 2019-1-9 16:18
@@ -21535,7 +21535,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  伊斯塔废灵  
 ##### 7453#       发表于 2019-1-9 16:22
@@ -21547,7 +21547,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 你没好
 
 
------
+*****
 
 ####  dzrykh  
 ##### 7454#       发表于 2019-1-11 11:26
@@ -21556,7 +21556,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 蝈蝈完结后半年没逛漫区，也没看一部番，感觉这些都索然无味了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">（不过好像学习工作都更丰富了），到底好事还是坏事呢
 
 
------
+*****
 
 ####  skives  
 ##### 7455#       发表于 2019-1-11 11:38
@@ -21567,7 +21567,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 脱宅神作
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 7456#       发表于 2019-1-11 11:45
@@ -21579,7 +21579,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 好评，迫真·脱宅神作。
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 7457#       发表于 2019-1-11 12:05
@@ -21590,7 +21590,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 改变人生的动画<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dzrykh  
 ##### 7458#       发表于 2019-1-11 13:06
@@ -21602,7 +21602,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">怎么一点都高兴不起来呢
 
 
------
+*****
 
 ####  咸鱼无双  
 ##### 7459#       发表于 2019-1-11 13:23
@@ -21611,7 +21611,7 @@ https://twitter.com/tanamasa0119/status/1081097934324752386</blockquote>
 nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  astrayveller  
 ##### 7460#       发表于 2019-1-11 13:24
@@ -21622,7 +21622,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 — from Xiaomi MI 8 UD, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
 
 
------
+*****
 
 ####  huimu  
 ##### 7461#       发表于 2019-1-11 13:39
@@ -21634,7 +21634,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 你头像叫鹤望兰xx，来源是米山舞c95本画了广穿红色衣服，注释是鹤望兰xx
 
 
------
+*****
 
 ####  02016  
 ##### 7462#       发表于 2019-1-12 00:56
@@ -21650,7 +21650,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 <img src="http://wx1.sinaimg.cn/large/0060lm7Tly1fz34u7nmxfj30k40sg76o.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  626704053  
 ##### 7463#       发表于 2019-1-12 03:12
@@ -21661,7 +21661,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  潜水员tassadar  
 ##### 7464#       发表于 2019-1-12 04:01
@@ -21670,7 +21670,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 恭喜！
 
 
------
+*****
 
 ####  626704053  
 ##### 7465#       发表于 2019-1-12 08:04
@@ -21683,7 +21683,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 —— 来自 vivo X9s, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
------
+*****
 
 ####  syqs  
 ##### 7466#       发表于 2019-1-12 09:41
@@ -21692,7 +21692,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 相信锦织监督的实力，绝对不会翻车的<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  astrayveller  
 ##### 7467#       发表于 2019-1-12 09:46
@@ -21703,7 +21703,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 — from Xiaomi MI 8 UD, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
 
 
------
+*****
 
 ####  伊斯塔废灵  
 ##### 7468#       发表于 2019-1-12 09:59
@@ -21712,7 +21712,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 开始了吗？蝈庆节？
 
 
------
+*****
 
 ####  ReginaldMorgan  
 ##### 7469#       发表于 2019-1-12 10:06
@@ -21721,7 +21721,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 我永远相信锦织哥哥<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  populareal  
 ##### 7470#       发表于 2019-1-12 11:55
@@ -21730,7 +21730,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 国家队不可能翻车，我要吹锦织敦史！
 
 
------
+*****
 
 ####  huimu  
 ##### 7471#       发表于 2019-1-12 12:10
@@ -21739,7 +21739,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  saintsimpler  
 ##### 7472#       发表于 2019-1-12 12:12
@@ -21748,7 +21748,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 爱奇艺几点更新啊
 
 
------
+*****
 
 ####  Meteors  
 ##### 7473#       发表于 2019-1-12 12:15
@@ -21759,7 +21759,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 编辑
 
 
------
+*****
 
 ####  skives  
 ##### 7474#       发表于 2019-1-12 12:15
@@ -21771,7 +21771,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zhangyichi26  
 ##### 7475#       发表于 2019-1-12 12:17
@@ -21780,7 +21780,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不愧是撕蝈衣
 
 
------
+*****
 
 ####  UCCU1102  
 ##### 7476#       发表于 2019-1-12 12:18
@@ -21789,7 +21789,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 蝈庆节！<img src="https://static.saraba1st.com/image/smiley/carton2017/280.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  言酱啊啊啊  
 ##### 7477#       发表于 2019-1-12 12:21
@@ -21798,7 +21798,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 哦！是今天！
 
 
------
+*****
 
 ####  timepro  
 ##### 7478#       发表于 2019-1-12 12:21
@@ -21809,7 +21809,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  就烦起名字  
 ##### 7479#       发表于 2019-1-12 12:27
@@ -21818,7 +21818,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 02嫁人了 新郎不是016
 
 
------
+*****
 
 ####  oneoutsider  
 ##### 7480#       发表于 2019-1-12 12:50
@@ -21827,7 +21827,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 即使这样我也永远喜欢02<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hl8243  
 ##### 7481#       发表于 2019-1-12 12:51
@@ -21838,7 +21838,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 得  观众疯了
 
 
------
+*****
 
 ####  Acatv  
 ##### 7482#       发表于 2019-1-12 13:44
@@ -21850,7 +21850,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 完美结局
 
 
------
+*****
 
 ####  MiaoJi  
 ##### 7483#       发表于 2019-1-12 14:44
@@ -21859,7 +21859,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">一年一度的发病节?
 
 
------
+*****
 
 ####  闪亮的彗星  
 ##### 7484#       发表于 2019-1-12 14:48
@@ -21868,7 +21868,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 为什么是24话专楼
 
 
------
+*****
 
 ####  zhangyichi26  
 ##### 7485#       发表于 2019-1-12 14:59
@@ -21887,7 +21887,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 人性的光辉在此闪耀
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 7486#       发表于 2019-1-12 15:05
@@ -21898,7 +21898,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 今晚22点30，相约战旗，不见不散。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dropdead  
 ##### 7487#       发表于 2019-1-12 16:05
@@ -21907,7 +21907,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 有今石洋之和扳机，我都不知道这车要怎么翻<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 7488#       发表于 2019-1-12 16:20
@@ -21916,7 +21916,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 居然一年过去了。。。
 
 
------
+*****
 
 ####  Acatv  
 ##### 7489#       发表于 2019-1-12 16:35
@@ -21925,7 +21925,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 谁把直播间地址发一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  noobtizi  
 ##### 7490#       发表于 2019-1-12 16:36
@@ -21934,7 +21934,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 我要吹爆国家队，锦织敦史不可能翻车<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  llopppp  
 ##### 7491#       发表于 2019-1-12 17:04
@@ -21945,7 +21945,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  asion617  
 ##### 7492#       发表于 2019-1-12 17:44
@@ -21954,7 +21954,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/carton2017/284.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 7493#       发表于 2019-1-12 18:59
@@ -21963,7 +21963,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 魔法少女的专楼怎么搜不到，有人给个传送门吗
 
 
------
+*****
 
 ####  love4aids  
 ##### 7494#       发表于 2019-1-12 19:02
@@ -21972,7 +21972,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 直播间地址呢？？？？
 
 
------
+*****
 
 ####  opsaber  
 ##### 7495#       发表于 2019-1-12 19:10
@@ -21981,7 +21981,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 蝈庆节快乐，听蝈歌，看02
 
 
------
+*****
 
 ####  skives  
 ##### 7496#       发表于 2019-1-12 19:12
@@ -21997,7 +21997,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 2019-1-12 19:12 上传
 
 
------
+*****
 
 ####  02016  
 ##### 7497#       发表于 2019-1-12 20:34
@@ -22006,7 +22006,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 蝈庆节留名，节操社伊东叶子画的心，[https://twitter.com/NJifzHVmIitZTbb/status/1083416269771010048](https://twitter.com/NJifzHVmIitZTbb/status/1083416269771010048)
 
 
------
+*****
 
 ####  Meteors  
 ##### 7498#       发表于 2019-1-12 23:00
@@ -22016,7 +22016,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 <blockquote>编辑</blockquote>
 
 
------
+*****
 
 ####  roy1996  
 ##### 7499#       发表于 2019-1-12 23:17
@@ -22025,7 +22025,7 @@ nga居然真的开始搞蝈庆节了<img src="https://static.saraba1st.com/image
 蝈家队不可能翻车，我要吹锦织敦史
 
 
------
+*****
 
 ####  02016  
 ##### 7500#       发表于 2019-1-12 23:19

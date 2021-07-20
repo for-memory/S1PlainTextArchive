@@ -3,7 +3,7 @@
 <<<<<<< HEAD
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  霧島海人  
@@ -155,7 +155,7 @@
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -178,7 +178,7 @@ lei了lei了，015有没有救就看这两集了
 lei了lei了，015有没有救就看这两集了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  蕾丝控  
@@ -201,7 +201,7 @@ lei了lei了，015有没有救就看这两集了
 每天周六晚你们哪里看的直播啊？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -226,7 +226,7 @@ lei了lei了，015有没有救就看这两集了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  shuli  
@@ -249,7 +249,7 @@ lei了lei了，015有没有救就看这两集了
 预热预热。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Alkarlindil  
@@ -271,7 +271,7 @@ lei了lei了，015有没有救就看这两集了
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">来啦，药来啦
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  杨雪崩  
@@ -296,7 +296,7 @@ lei了lei了，015有没有救就看这两集了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  微笑的迪妮莎  
@@ -319,7 +319,7 @@ lei了lei了，015有没有救就看这两集了
 想看015<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  chaos7  
@@ -342,7 +342,7 @@ lei了lei了，015有没有救就看这两集了
 前排等药<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Alkarlindil  
@@ -365,7 +365,7 @@ lei了lei了，015有没有救就看这两集了
 想看小016<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bgmilk  
@@ -390,7 +390,7 @@ lei了lei了，015有没有救就看这两集了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  黑须太一  
@@ -413,7 +413,7 @@ lei了lei了，015有没有救就看这两集了
 就等晚上直播，没有第三话看我要死了……
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  d00233773  
@@ -436,7 +436,7 @@ lei了lei了，015有没有救就看这两集了
 药，给我药！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -459,7 +459,7 @@ lei了lei了，015有没有救就看这两集了
 病人自觉来排队了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -482,7 +482,7 @@ lei了lei了，015有没有救就看这两集了
 药！！ 药！！ 
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Temori  
@@ -505,7 +505,7 @@ lei了lei了，015有没有救就看这两集了
 来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -527,7 +527,7 @@ lei了lei了，015有没有救就看这两集了
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">药药药！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Annie_Hyacinth  
@@ -550,7 +550,7 @@ lei了lei了，015有没有救就看这两集了
 病人待机中<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -573,7 +573,7 @@ lei了lei了，015有没有救就看这两集了
 急诊啊，急需开药<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  vxzms  
@@ -598,7 +598,7 @@ lei了lei了，015有没有救就看这两集了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -621,7 +621,7 @@ lei了lei了，015有没有救就看这两集了
 待机<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -685,7 +685,7 @@ lei了lei了，015有没有救就看这两集了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -710,7 +710,7 @@ lei了lei了，015有没有救就看这两集了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -735,7 +735,7 @@ lei了lei了，015有没有救就看这两集了</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Alkarlindil  
@@ -761,7 +761,7 @@ lei了lei了，015有没有救就看这两集了</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -795,7 +795,7 @@ id=66908484
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  winoros  
@@ -818,7 +818,7 @@ id=66908484
 015！015！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -843,7 +843,7 @@ id=66908484
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -871,7 +871,7 @@ id=66908484
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -894,7 +894,7 @@ id=66908484
 病人来了，顺便等个空难现场。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Alkarlindil  
@@ -916,7 +916,7 @@ id=66908484
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">啊，怎么回事啊我都没注意...
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -943,7 +943,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zadn  
@@ -965,7 +965,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -990,7 +990,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -1013,7 +1013,7 @@ NTR in the FranXXX</blockquote>
 什么时候能给另外三个姑娘多一点戏份就好了，比如今晚326要上线估计就会带上196
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七夜琉璃  
@@ -1036,7 +1036,7 @@ NTR in the FranXXX</blockquote>
 突然就两页了也太快了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -1060,7 +1060,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -1084,7 +1084,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -1109,7 +1109,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  锯子万藏  
@@ -1131,7 +1131,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -1156,7 +1156,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  royalblue1127  
@@ -1180,7 +1180,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -1205,7 +1205,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -1227,7 +1227,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别想了，015没救了。这番名字叫《darling in the franxx》，15和16都没法开franxx，不可能是darling的啦
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  free切  
@@ -1249,7 +1249,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">b站还要等晚上
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -1286,7 +1286,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -1311,7 +1311,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -1335,7 +1335,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -1366,7 +1366,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Alkarlindil  
@@ -1394,7 +1394,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -1417,7 +1417,7 @@ NTR in the FranXXX</blockquote>
 不开franxx，不代表不能在一起<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -1443,7 +1443,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -1468,7 +1468,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  REDXIII  
@@ -1491,7 +1491,7 @@ NTR in the FranXXX</blockquote>
 病人入场了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  fang帅  
@@ -1516,7 +1516,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -1539,7 +1539,7 @@ NTR in the FranXXX</blockquote>
 求02和男主接吻上机一飞冲天，015一边苦笑的剧情<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sandmanzero  
@@ -1561,7 +1561,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无爱二次元  
@@ -1584,7 +1584,7 @@ NTR in the FranXXX</blockquote>
 壁吧专楼化
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -1607,7 +1607,7 @@ NTR in the FranXXX</blockquote>
 呵呵赶紧拍炸了这下一月就没期待了，安心看剩下的
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -1629,7 +1629,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">希望有爆点
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桥田至  
@@ -1652,7 +1652,7 @@ NTR in the FranXXX</blockquote>
 拍炸+1  这样我就不用每个星期那么痛苦了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  抹茶Mattya  
@@ -1675,7 +1675,7 @@ NTR in the FranXXX</blockquote>
 戒断反应好严重<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  OrianaThomson  
@@ -1698,7 +1698,7 @@ NTR in the FranXXX</blockquote>
 我要吃药<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  novid  
@@ -1721,7 +1721,7 @@ NTR in the FranXXX</blockquote>
 给我药 给我药 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  HLGG2  
@@ -1744,7 +1744,7 @@ NTR in the FranXXX</blockquote>
 还有9个半小时<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  孤单时独自狂欢  
@@ -1767,7 +1767,7 @@ NTR in the FranXXX</blockquote>
 戒断反应太强了，我需要第三集
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  vxzms  
@@ -1790,7 +1790,7 @@ NTR in the FranXXX</blockquote>
 好扭曲 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -1813,7 +1813,7 @@ NTR in the FranXXX</blockquote>
 第三集开始回忆，估计这一周没什么人气了。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  激萌的萝莉  
@@ -1838,7 +1838,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  风怒  
@@ -1863,7 +1863,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -1892,7 +1892,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -1917,7 +1917,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mengyao  
@@ -1940,7 +1940,7 @@ NTR in the FranXXX</blockquote>
 药，给我药<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -1965,7 +1965,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -1989,7 +1989,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Kokichi  
@@ -2014,7 +2014,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -2059,7 +2059,7 @@ NTR in the FranXXX</blockquote>
 你们稍微克制点，要是别人来观光直接被吓了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 78#       发表于 2018-1-27 13:49
@@ -2069,7 +2069,7 @@ NTR in the FranXXX</blockquote>
 <img src="http://wx2.sinaimg.cn/large/4906b140ly1fnv4a0uf5mj20hx0m87cs.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  藤井紫  
 ##### 79#       发表于 2018-1-27 13:51
@@ -2090,7 +2090,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -2114,7 +2114,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  第三视点  
@@ -2139,7 +2139,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  丛丹  
@@ -2161,7 +2161,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  topia  
@@ -2183,7 +2183,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">快了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吃我大dio  
@@ -2206,7 +2206,7 @@ NTR in the FranXXX</blockquote>
 急啊 急急急急急急急急
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  秋雨灰灰  
@@ -2229,7 +2229,7 @@ NTR in the FranXXX</blockquote>
 请病人们克制点，就半年了而已
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -2252,7 +2252,7 @@ NTR in the FranXXX</blockquote>
 病栋急需大量药物
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -2275,7 +2275,7 @@ NTR in the FranXXX</blockquote>
 这集播完上架，所以这集应该有爆点吧...大概
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  第三视点  
@@ -2300,7 +2300,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -2325,7 +2325,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  静哮苍穹  
@@ -2350,7 +2350,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  julia黑  
@@ -2373,7 +2373,7 @@ NTR in the FranXXX</blockquote>
 这一周过得太长了，我的戒断反应已经很严重了！！！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  allenlisa3234  
@@ -2398,7 +2398,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  可惜是个变态  
@@ -2424,7 +2424,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -2449,7 +2449,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -2476,7 +2476,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -2499,7 +2499,7 @@ NTR in the FranXXX</blockquote>
 02的脾气片头歌词都透剧了其实。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  戏谑二次元  
@@ -2524,7 +2524,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -2553,7 +2553,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  thistimeforlife  
@@ -2575,7 +2575,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  秋雨灰灰  
@@ -2599,7 +2599,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  royalblue1127  
@@ -2621,7 +2621,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -2646,7 +2646,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无爱二次元  
@@ -2669,7 +2669,7 @@ NTR in the FranXXX</blockquote>
 看来不少人都在养精蓄锐明日出动
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -2691,7 +2691,7 @@ NTR in the FranXXX</blockquote>
 <img src="http://wx3.sinaimg.cn/large/740ca5e5ly1fnv7j6w83fj20xc0irtpt.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  SakraDevanam  
@@ -2715,7 +2715,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  populareal  
@@ -2738,7 +2738,7 @@ NTR in the FranXXX</blockquote>
 待机<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -2763,7 +2763,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  royalblue1127  
@@ -2786,7 +2786,7 @@ NTR in the FranXXX</blockquote>
 015→326：“你不是也喜欢广吗”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塞瑞娜  
@@ -2809,7 +2809,7 @@ NTR in the FranXXX</blockquote>
 一边背着日语单词一边准备制药<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -2831,7 +2831,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吃我大dio  
@@ -2854,7 +2854,7 @@ NTR in the FranXXX</blockquote>
 草草草草 急急急急急 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  fang帅  
@@ -2878,7 +2878,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -2901,7 +2901,7 @@ NTR in the FranXXX</blockquote>
 药！！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  第三视点  
@@ -2941,7 +2941,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 
 ####  你说这个谁懂  
 ##### 115#       发表于 2018-1-27 16:22
@@ -2950,7 +2950,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">翻来覆去
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  我是谁无名氏  
@@ -2972,7 +2972,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">待机
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dorasir  
@@ -2997,7 +2997,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -3022,7 +3022,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  可知歌者也奈何  
@@ -3044,7 +3044,7 @@ NTR in the FranXXX</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">哈哈，这个表情还没用过呢
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  chaos7  
@@ -3072,7 +3072,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -3095,7 +3095,7 @@ NTR in the FranXXX</blockquote>
 虽然说得很浅，但是现在这个舆情有人能拉片就不错了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -3140,7 +3140,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -3163,7 +3163,7 @@ NTR in the FranXXX</blockquote>
 片头里印象最深的是女主从驾驶舱里崩出来后的喊"darling"的口型对的超准....
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -3188,7 +3188,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -3212,7 +3212,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -3237,7 +3237,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -3262,7 +3262,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -3285,7 +3285,7 @@ NTR in the FranXXX</blockquote>
 拉片不错，细心了，本身感想都是主观的，高端的人也不屑做这低俗动画的分析吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -3309,7 +3309,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -3347,7 +3347,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -3373,7 +3373,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  哈迪斯兜帽  
@@ -3398,7 +3398,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -3435,7 +3435,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tachikoma0080  
@@ -3459,7 +3459,7 @@ NTR in the FranXXX</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dorasir  
@@ -3484,7 +3484,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  骈儿  
@@ -3509,7 +3509,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -3539,7 +3539,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  骈儿  
@@ -3567,7 +3567,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  未来起航  
@@ -3593,7 +3593,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  beer  
@@ -3616,7 +3616,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 请问oped歌词有翻译吗？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -3640,7 +3640,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -3688,7 +3688,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -3718,7 +3718,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  learest1  
@@ -3743,7 +3743,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cyberpenk  
@@ -3768,7 +3768,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -3798,7 +3798,7 @@ https://tieba.baidu.com/p/5530533517</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -3946,7 +3946,7 @@ Darling　運命が血管を走るよ
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -3973,7 +3973,7 @@ Darling　運命が血管を走るよ
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -3997,7 +3997,7 @@ Darling　運命が血管を走るよ
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -4034,7 +4034,7 @@ COMMENT
 太有个性了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -4060,7 +4060,7 @@ COMMENT
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -4083,7 +4083,7 @@ COMMENT
 都6页了，受不了了啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -4105,7 +4105,7 @@ COMMENT
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -4132,7 +4132,7 @@ COMMENT
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -4159,7 +4159,7 @@ KISS OF DEATH</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Theory_茶叶  
@@ -4182,7 +4182,7 @@ KISS OF DEATH</blockquote>
 正太！正太！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -4235,7 +4235,7 @@ kiss me now
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  第三视点  
@@ -4260,7 +4260,7 @@ kiss me now
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -4283,7 +4283,7 @@ kiss me now
 黎明前的黑暗，没药我快顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  黑沢逢世  
@@ -4306,7 +4306,7 @@ kiss me now
 我就说怎么一直F5第二话砖楼没反应了...
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -4329,7 +4329,7 @@ kiss me now
 我去，你们是不是有点过度解读了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -4352,7 +4352,7 @@ kiss me now
 这歌词应该是写给男主的，估计就是黑历史曝光或者鬼化怕男主离开她。不过万一02最后便当了015才是最惨的，你永远赢不了一个死人<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -4426,7 +4426,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -4451,7 +4451,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -4481,7 +4481,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -4509,7 +4509,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -4536,7 +4536,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本职是魔法使  
@@ -4561,7 +4561,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -4588,7 +4588,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -4620,7 +4620,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -4645,7 +4645,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -4675,7 +4675,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无爱二次元  
@@ -4699,7 +4699,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  namirin  
@@ -4722,7 +4722,7 @@ Darling 命运在血管之中奔腾
 灵儿不会输的<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -4744,7 +4744,7 @@ Darling 命运在血管之中奔腾
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除了喜欢看015败犬之外，还想看02吃瘪嘛
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -4772,7 +4772,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -4797,7 +4797,7 @@ Darling 命运在血管之中奔腾
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -4878,7 +4878,7 @@ zoido@ponopomochi
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  namirin  
@@ -4905,7 +4905,7 @@ zoido@ponopomochi
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -4930,7 +4930,7 @@ zoido@ponopomochi
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -4992,7 +4992,7 @@ zoido@ponopomochi
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -5020,7 +5020,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -5045,7 +5045,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -5070,7 +5070,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -5097,7 +5097,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -5125,7 +5125,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -5155,7 +5155,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -5183,7 +5183,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -5208,7 +5208,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ryuki  
@@ -5233,7 +5233,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -5258,7 +5258,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -5286,7 +5286,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -5308,7 +5308,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那就预祝男主与056终成眷属啦。015和02一起哭吧。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -5338,7 +5338,7 @@ G社黑化是真黑，不纠结的直接往死里逆袭
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  咸鱼咸又咸  
@@ -5361,7 +5361,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听
 ed网易云音乐有了吗？好像还搜不到啊。ed好好听
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -5387,7 +5387,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -5411,7 +5411,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  咸鱼咸又咸  
@@ -5434,7 +5434,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 刚上y2b，本来又想听一听ed，好像官方删掉了？？？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -5461,7 +5461,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -5486,7 +5486,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -5518,7 +5518,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -5542,7 +5542,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -5567,7 +5567,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无聊者X  
@@ -5593,7 +5593,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -5618,7 +5618,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -5643,7 +5643,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -5668,7 +5668,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  秋雨灰灰  
@@ -5691,7 +5691,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 02变败犬也不会改变对015的爱的！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -5716,7 +5716,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -5741,7 +5741,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  enye  
@@ -5763,7 +5763,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -5787,7 +5787,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -5819,7 +5819,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -5847,7 +5847,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kalavine  
@@ -5872,7 +5872,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -5895,7 +5895,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 赶快拍烂吧，要不每个星期太难熬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吃我大dio  
@@ -5920,7 +5920,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -5943,7 +5943,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 给02取的名字真的会这么快就揭晓吗，十分怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">即使在SP里有上村录音那段
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -5982,7 +5982,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  HLGG2  
@@ -6007,7 +6007,7 @@ ed网易云音乐有了吗？好像还搜不到啊。ed好好听</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  fang帅  
@@ -6033,7 +6033,7 @@ nbht对国家队国内风评被害有没有责任？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -6058,7 +6058,7 @@ nbht对国家队国内风评被害有没有责任？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -6083,7 +6083,7 @@ nbht对国家队国内风评被害有没有责任？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -6105,7 +6105,7 @@ nbht对国家队国内风评被害有没有责任？
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fnvdh4ibvzj20xc0irwvn.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  OrianaThomson  
@@ -6127,7 +6127,7 @@ nbht对国家队国内风评被害有没有责任？
 <img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -6155,7 +6155,7 @@ nbht对国家队国内风评被害有没有责任？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  未来起航  
@@ -6184,7 +6184,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -6209,7 +6209,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -6234,7 +6234,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -6262,7 +6262,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -6287,7 +6287,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -6323,7 +6323,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38369109&amp;ptid=1577974" target="_blank">栗悟饭177 发表于 2018-01-27 19:09:23</a>
 那要是万一出现了什么达令送我的礼物这种极度肉麻的酸臭味剧情怎么办</blockquote>那当然得让15围观啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 =======
------
+*****
 
 ####  kiralzb  
 ##### 233#       发表于 2018-1-27 19:12
@@ -6344,7 +6344,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -6372,7 +6372,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  adonai  
@@ -6394,7 +6394,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">漫区又要充满欢乐的气氛了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -6417,7 +6417,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 你们的戒断反应真严重，我都不敢回复了，怕这楼太水。。<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -6440,7 +6440,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  骈儿  
@@ -6469,7 +6469,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -6494,7 +6494,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  风怒  
@@ -6520,7 +6520,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aptx8285144  
@@ -6543,7 +6543,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 大家今晚在爱奇艺熟肉出来前不要随便在外面标题剧透呀，上次看到标题说要做莓的表情我一下子傻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kmno4  
@@ -6569,7 +6569,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -6598,7 +6598,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -6626,7 +6626,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -6651,7 +6651,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -6677,7 +6677,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -6701,7 +6701,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -6755,7 +6755,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zadn  
@@ -6778,7 +6778,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 这才几点你们就刷了9页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kmno4  
@@ -6803,7 +6803,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -6832,7 +6832,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  戏谑二次元  
@@ -6855,7 +6855,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 开赌开赌，今晚有没有人哭！<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -6880,7 +6880,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -6905,7 +6905,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  戏谑二次元  
@@ -6930,7 +6930,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -6955,7 +6955,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kuonchan  
@@ -6978,7 +6978,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 今晚还有fe，据说fe还不错，终于不用ditf和京紫搞对立了，月球人秒了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -7001,7 +7001,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 其实这种双人驾驶舱感觉很适合其中一个人死在座位上，另一个人化悲愤为力量黑化的展开
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -7023,7 +7023,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">  待机   小时候的领袖怎么就废柴了呢   
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -7048,7 +7048,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -7073,7 +7073,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kmno4  
@@ -7101,7 +7101,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -7129,7 +7129,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Gravitation  
@@ -7151,7 +7151,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">等死我了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  gameseve  
@@ -7174,7 +7174,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 还有2个小时。<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -7198,7 +7198,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  第三视点  
@@ -7223,7 +7223,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -7250,7 +7250,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -7278,7 +7278,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  帕林马哲理  
@@ -7303,7 +7303,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  521op@163.com  
@@ -7330,7 +7330,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sullen  
@@ -7352,7 +7352,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">给我药给我药
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  坏掉了的毛猫熊  
@@ -7374,7 +7374,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">再过几个小时就能看见我老婆辣！！！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -7402,7 +7402,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -7430,7 +7430,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -7453,7 +7453,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 老婆老婆
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aptx8285144  
@@ -7481,7 +7481,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  521op@163.com  
@@ -7519,7 +7519,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  蕾丝控  
@@ -7542,7 +7542,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 没开播就十页，你们怕不是失了智。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -7565,7 +7565,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 萝卜还是最喜欢金雀花的果体围裙，其次是青葙，再次才是鹤望兰
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -7591,7 +7591,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -7613,7 +7613,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">裸体围裙确实是骚
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -7635,7 +7635,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer"> 对着萝卜XXX的世界一定是疯了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -7662,7 +7662,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -7702,7 +7702,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 赤井俊文的推
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -7730,7 +7730,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -7757,7 +7757,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桥田至  
@@ -7782,7 +7782,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -7807,7 +7807,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -7835,7 +7835,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  我是谁无名氏  
@@ -7857,7 +7857,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">太可怕了，这还没播呢。。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -7882,7 +7882,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -7907,7 +7907,7 @@ nbht对国家队国内风评被害有没有责任？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kmno4  
@@ -7936,7 +7936,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塔奇克马  
@@ -7958,7 +7958,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们人类这么狂热的吗?
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zray  
@@ -7981,7 +7981,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 前300留名...专楼里的扭曲病人反应太欢乐了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -8006,7 +8006,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ex44559  
@@ -8032,7 +8032,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -8055,7 +8055,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 不是药片，你们吃什么药啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Hukyouwaon  
@@ -8078,7 +8078,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 有些冷番感觉播到一半都没有这个层数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -8110,7 +8110,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Thalassa  
@@ -8135,7 +8135,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -8160,7 +8160,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  朝鲜日报  
@@ -8182,7 +8182,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">快播啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  槑花林  
@@ -8204,7 +8204,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">药还没煎好嘛……快撑不住了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -8228,7 +8228,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -8264,7 +8264,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Kokichi  
@@ -8289,7 +8289,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塞瑞娜  
@@ -8312,7 +8312,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 还有一个小时
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -8354,7 +8354,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 还有1小时！！！
 
 
------
+*****
 
 ####  shimotsuki14  
 ##### 311#       发表于 2018-1-27 21:30
@@ -8366,7 +8366,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 我说漫区
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -8388,7 +8388,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天要早睡，sad，大家明天早上见
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xwz  
@@ -8411,7 +8411,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 卧槽，这就已经11页了，你们就这么期待欺负草莓酱吗？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -8435,7 +8435,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -8465,7 +8465,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -8490,7 +8490,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -8515,7 +8515,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  unnilennium  
@@ -8537,7 +8537,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">这还没开始你们就水了10页了，太可怕
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lokok  
@@ -8560,7 +8560,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 啊，好想快点看第三话。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -8598,7 +8598,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -8621,7 +8621,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 你这家伙，是银河美少女吗！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -8646,7 +8646,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -8669,7 +8669,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 革命机再来<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -8697,7 +8697,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  enye  
@@ -8726,7 +8726,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -8749,7 +8749,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 摩！砂！雪！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -8772,7 +8772,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 全裸逮鸡
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -8800,7 +8800,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -8823,7 +8823,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 之前微博上的业内就说国家队基本每话的分镜/演出都是有监督实绩的人物....
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -8846,7 +8846,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 沐浴更衣等第三集<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  不灭人形  
@@ -8876,7 +8876,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -8905,7 +8905,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -8929,7 +8929,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  allenlisa3234  
@@ -8951,7 +8951,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">大家都是去战旗小当家么还是
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -8975,7 +8975,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -8998,7 +8998,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 我滴龟龟，磨砂雪
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  qt1995428  
@@ -9022,7 +9022,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -9051,7 +9051,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -9080,7 +9080,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -9104,7 +9104,7 @@ ps：博士还说这龙长的很好。。。话说都是力量型的很容易看
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -9138,7 +9138,7 @@ And this episode was fantastic! HYPE for DL 04!
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -9161,7 +9161,7 @@ And this episode was fantastic! HYPE for DL 04!
 あと30分！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  enye  
@@ -9184,7 +9184,7 @@ And this episode was fantastic! HYPE for DL 04!
 还有半年<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  漫区专号  
@@ -9210,7 +9210,7 @@ And this episode was fantastic! HYPE for DL 04!
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -9233,7 +9233,7 @@ And this episode was fantastic! HYPE for DL 04!
 直播在哪看，谁指个路
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sandmanzero  
@@ -9256,7 +9256,7 @@ And this episode was fantastic! HYPE for DL 04!
 有直播链接吗<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -9279,7 +9279,7 @@ And this episode was fantastic! HYPE for DL 04!
 我京紫今天就要手刃叛徒，一个不留
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -9308,7 +9308,7 @@ And this episode was fantastic! HYPE for DL 04!
 ##### 349#       发表于 2018-1-27 22:03
 
 =======
------
+*****
 
 ####  kiralzb  
 ##### 349#       发表于 2018-1-27 22:03
@@ -9329,7 +9329,7 @@ And this episode was fantastic! HYPE for DL 04!
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  my707776310  
@@ -9354,7 +9354,7 @@ And this episode was fantastic! HYPE for DL 04!
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  elflie  
@@ -9376,7 +9376,7 @@ And this episode was fantastic! HYPE for DL 04!
 <img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">快了快了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sandmanzero  
@@ -9401,7 +9401,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ipcjs  
@@ -9426,7 +9426,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  wangh  
@@ -9449,7 +9449,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 已沐浴更衣，等待中……
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Inle  
@@ -9471,7 +9471,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">猛汉王有国家队有意思吗，没有
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -9496,7 +9496,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tjshibc21  
@@ -9521,7 +9521,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  恶魔娘阿洛  
@@ -9544,7 +9544,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 发病12页还行，咱想艹萝卜
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  TTAA  
@@ -9567,7 +9567,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 什么这片子还会来高雄统子，老子要看国家队！！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -9589,7 +9589,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">被灭烬龙点艹和看生放，根本不用选吧
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  skullgreymon  
@@ -9612,7 +9612,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 真的强，还没开播发帖量就快超过友动了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -9634,7 +9634,7 @@ https://www.zhanqi.tv/meizhi</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">能不能问一下第三话上架是什么意思（
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -9658,7 +9658,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -9680,7 +9680,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">你们看生放 我刷円盘情报去 肯定有站偷跑
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -9705,7 +9705,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -9727,7 +9727,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">准备关泥潭了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  herolike  
@@ -9754,7 +9754,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xzhlj0325  
@@ -9777,7 +9777,7 @@ BD上架，可以预测销量了
 第4话老害级分镜，原画出现数位扳机主力成员，厉害了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  julia黑  
@@ -9800,7 +9800,7 @@ BD上架，可以预测销量了
 爱奇艺几点开始？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  populareal  
@@ -9828,7 +9828,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无爱二次元  
@@ -9852,7 +9852,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -9874,7 +9874,7 @@ BD上架，可以预测销量了
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fnvj2l89kdj20xc0irac9.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -9897,7 +9897,7 @@ BD上架，可以预测销量了
 全裸待机，准备起飞！！！！！！！！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -9920,7 +9920,7 @@ BD上架，可以预测销量了
 还有九分钟，有点害怕😨 这集不会空难吧
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Inle  
@@ -9943,7 +9943,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无爱二次元  
@@ -9966,7 +9966,7 @@ BD上架，可以预测销量了
 还是等熟肉吧
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -9989,7 +9989,7 @@ BD上架，可以预测销量了
 第四话staff是老害带扳机的新生代么？还没补小魔女学园，下个扳机回稳么？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  HLGG2  
@@ -10018,7 +10018,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -10041,7 +10041,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tjshibc21  
@@ -10066,7 +10066,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -10089,7 +10089,7 @@ BD上架，可以预测销量了
 空难是肯定的
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -10115,7 +10115,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Kokichi  
@@ -10141,7 +10141,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  gameseve  
@@ -10167,7 +10167,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  iceskey  
@@ -10190,7 +10190,7 @@ BD上架，可以预测销量了
 求个生放地址啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  gameseve  
@@ -10212,7 +10212,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我也要去准备投票贴去了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -10235,7 +10235,7 @@ BD上架，可以预测销量了
 无心学习<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -10258,7 +10258,7 @@ BD上架，可以预测销量了
 第3話放送まで、あと5分！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  qt1995428  
@@ -10281,7 +10281,7 @@ BD上架，可以预测销量了
 不知道鹤卷，林明美会不会来
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -10306,7 +10306,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  enye  
@@ -10328,7 +10328,7 @@ BD上架，可以预测销量了
 <img src="https://media.giphy.com/media/ncsQI9sF3pa8w/giphy.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无爱二次元  
@@ -10351,7 +10351,7 @@ BD上架，可以预测销量了
 羡慕
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -10378,7 +10378,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  populareal  
@@ -10402,7 +10402,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  SakraDevanam  
@@ -10427,7 +10427,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无爱二次元  
@@ -10450,7 +10450,7 @@ BD上架，可以预测销量了
 全裸是梗吗
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -10475,7 +10475,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  离诀  
@@ -10497,7 +10497,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">兴奋
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  septer  
@@ -10521,7 +10521,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kerfars  
@@ -10543,7 +10543,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">空难也认了，就是想看
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -10568,7 +10568,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  gameseve  
@@ -10591,7 +10591,7 @@ BD上架，可以预测销量了
 开始啦！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -10614,7 +10614,7 @@ BD上架，可以预测销量了
 果然是326视角
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -10637,7 +10637,7 @@ BD上架，可以预测销量了
 看样除了015 326外那些小孩 都是路人吧
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  SakraDevanam  
@@ -10662,7 +10662,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kerfars  
@@ -10685,7 +10685,7 @@ BD上架，可以预测销量了
 黄毛很苦主的感觉
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -10713,7 +10713,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Kokichi  
@@ -10738,7 +10738,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -10761,7 +10761,7 @@ BD上架，可以预测销量了
 还行 男主 有傲天的底子 怂只是有自知之明  但是并不缩。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -10784,7 +10784,7 @@ BD上架，可以预测销量了
 五郎好可怜
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xzhlj0325  
@@ -10807,7 +10807,7 @@ BD上架，可以预测销量了
 015<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">化了吧
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kerfars  
@@ -10830,7 +10830,7 @@ BD上架，可以预测销量了
 326感觉也是个傲娇
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -10853,7 +10853,7 @@ BD上架，可以预测销量了
 训练机有点可爱啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -10875,7 +10875,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">  02 太赞了。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  populareal  
@@ -10898,7 +10898,7 @@ BD上架，可以预测销量了
 角是性癖<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Inle  
@@ -10921,7 +10921,7 @@ BD上架，可以预测销量了
 原来是过安检233
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  圈量子  
@@ -10944,7 +10944,7 @@ BD上架，可以预测销量了
 钢铁女友？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kerfars  
@@ -10966,7 +10966,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">02可爱
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  vxzms  
@@ -10989,7 +10989,7 @@ BD上架，可以预测销量了
 惊了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  SakraDevanam  
@@ -11014,7 +11014,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -11037,7 +11037,7 @@ BD上架，可以预测销量了
 孩子们是不被批准去地下的？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  圈量子  
@@ -11060,7 +11060,7 @@ BD上架，可以预测销量了
 君の名前<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -11083,7 +11083,7 @@ BD上架，可以预测销量了
 原来02想私奔啊，绝了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -11109,7 +11109,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  风怒  
@@ -11134,7 +11134,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -11157,7 +11157,7 @@ BD上架，可以预测销量了
 打同体型的小怪  下副本咯
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  可可贝利  
@@ -11180,7 +11180,7 @@ BD上架，可以预测销量了
 开打
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -11203,7 +11203,7 @@ BD上架，可以预测销量了
 五郎太温柔了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -11226,7 +11226,7 @@ BD上架，可以预测销量了
 那组这么快就不行了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -11249,7 +11249,7 @@ BD上架，可以预测销量了
 进入地下的方式神似EVA:Q
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  圈量子  
@@ -11272,7 +11272,7 @@ BD上架，可以预测销量了
 三机出击怕不是致敬零号机初号机二号机<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -11295,7 +11295,7 @@ BD上架，可以预测销量了
 015好可爱！！！！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  unnilennium  
@@ -11318,7 +11318,7 @@ BD上架，可以预测销量了
 我猜其实不是妹子不行，是男的不行<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kerfars  
@@ -11340,7 +11340,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还以为这集是326主场，结果早早就退出战斗了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Temori  
@@ -11365,7 +11365,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -11388,7 +11388,7 @@ BD上架，可以预测销量了
 大背头皮这一下很开心吧？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -11411,7 +11411,7 @@ BD上架，可以预测销量了
 看了预告就猜那个球就是叫龙本体，猜中了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -11434,7 +11434,7 @@ BD上架，可以预测销量了
 不补刀 不抱头  轻敌  教科书般的新手死的快 233
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Inle  
@@ -11457,7 +11457,7 @@ BD上架，可以预测销量了
 抱脸虫！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  winoros  
@@ -11480,7 +11480,7 @@ BD上架，可以预测销量了
 出事了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -11506,7 +11506,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -11529,7 +11529,7 @@ BD上架，可以预测销量了
 233 叫龙小队 成立 狩猎开始  笑爆
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  SakraDevanam  
@@ -11554,7 +11554,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kerfars  
@@ -11577,7 +11577,7 @@ BD上架，可以预测销量了
 笑死，每个人都有各种理由要和02合体
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zadn  
@@ -11599,7 +11599,7 @@ BD上架，可以预测销量了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -11624,7 +11624,7 @@ BD上架，可以预测销量了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -16026,7 +16026,7 @@ ditf是一个关于农业的故事。
 哈哈哈 装B 少年 没有主角光环 你是在 作死啊    
 
 
------
+*****
 
 ####  zkn1968  
 ##### 448#       发表于 2018-1-27 22:50
@@ -16035,7 +16035,7 @@ ditf是一个关于农业的故事。
 这段节奏不对，JJYY太长时间了
 
 
------
+*****
 
 ####  topia  
 ##### 449#       发表于 2018-1-27 22:51
@@ -16044,7 +16044,7 @@ ditf是一个关于农业的故事。
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  本渡枫  
 ##### 450#       发表于 2018-1-27 22:51
@@ -16053,7 +16053,7 @@ ditf是一个关于农业的故事。
 装B 少年 要被 吸成人干儿咯
 
 
------
+*****
 
 ####  圈量子  
 ##### 451#       发表于 2018-1-27 22:51
@@ -16062,7 +16062,7 @@ ditf是一个关于农业的故事。
 你X过的XXX，现在我也要XX<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Hukyouwaon  
 ##### 452#       发表于 2018-1-27 22:51
@@ -16071,7 +16071,7 @@ ditf是一个关于农业的故事。
 <img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  七七見奈波  
 ##### 453#       发表于 2018-1-27 22:51
@@ -16080,7 +16080,7 @@ ditf是一个关于农业的故事。
 熊孩子组好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 454#       发表于 2018-1-27 22:52
@@ -16089,7 +16089,7 @@ ditf是一个关于农业的故事。
 我操。这急转直下啊
 
 
------
+*****
 
 ####  Inle  
 ##### 455#       发表于 2018-1-27 22:54
@@ -16098,7 +16098,7 @@ ditf是一个关于农业的故事。
 326能活过这集吗
 
 
------
+*****
 
 ####  圈量子  
 ##### 456#       发表于 2018-1-27 22:54
@@ -16107,7 +16107,7 @@ ditf是一个关于农业的故事。
 预测本话介没结束就榨干
 
 
------
+*****
 
 ####  zkn1968  
 ##### 457#       发表于 2018-1-27 22:54
@@ -16116,7 +16116,7 @@ ditf是一个关于农业的故事。
 肉眼可见的老化
 
 
------
+*****
 
 ####  本渡枫  
 ##### 458#       发表于 2018-1-27 22:54
@@ -16125,7 +16125,7 @@ ditf是一个关于农业的故事。
 嫉妒 是会要命的 233
 
 
------
+*****
 
 ####  vxzms  
 ##### 459#       发表于 2018-1-27 22:54
@@ -16134,7 +16134,7 @@ ditf是一个关于农业的故事。
 感觉小哥要跪啊
 
 
------
+*****
 
 ####  winoros  
 ##### 460#       发表于 2018-1-27 22:55
@@ -16143,7 +16143,7 @@ ditf是一个关于农业的故事。
 太作死了，02已经怒了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 461#       发表于 2018-1-27 22:55
@@ -16152,7 +16152,7 @@ ditf是一个关于农业的故事。
 这背头不死留着他过年？
 
 
------
+*****
 
 ####  lost_恩恩  
 ##### 462#       发表于 2018-1-27 22:55
@@ -16161,7 +16161,7 @@ ditf是一个关于农业的故事。
 作画呢？这也太应付了吧
 
 
------
+*****
 
 ####  waox  
 ##### 463#       发表于 2018-1-27 22:55
@@ -16172,7 +16172,7 @@ ditf是一个关于农业的故事。
 老哥你不行啊，02不是你能驾驭住的
 
 
------
+*****
 
 ####  本渡枫  
 ##### 464#       发表于 2018-1-27 22:56
@@ -16181,7 +16181,7 @@ ditf是一个关于农业的故事。
 <img src="https://wx2.sinaimg.cn/mw690/005AXHRRly1fnvk2lm3ztj30vw0jgwvm.jpg" referrerpolicy="no-referrer">    尿了 这机体的表情 真的绝了。。
 
 
------
+*****
 
 ####  SakraDevanam  
 ##### 465#       发表于 2018-1-27 22:56
@@ -16192,7 +16192,7 @@ ditf是一个关于农业的故事。
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  你说这个谁懂  
 ##### 466#       发表于 2018-1-27 22:56
@@ -16201,7 +16201,7 @@ ditf是一个关于农业的故事。
 我操，BD买爆，太好看了
 
 
------
+*****
 
 ####  403权限不够  
 ##### 467#       发表于 2018-1-27 22:56
@@ -16212,7 +16212,7 @@ ditf是一个关于农业的故事。
 太刺激了！！
 
 
------
+*****
 
 ####  昆卡  
 ##### 468#       发表于 2018-1-27 22:56
@@ -16231,7 +16231,7 @@ ditf是一个关于农业的故事。
 "WTF…………"
 
 
------
+*****
 
 ####  amulelernen  
 ##### 469#       发表于 2018-1-27 22:56
@@ -16242,7 +16242,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 但是你是萝卜片啊，要打架啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  m99999  
 ##### 470#       发表于 2018-1-27 22:57
@@ -16251,7 +16251,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 这个……看完上一集骂的这集是不是要骂的更狠了？
 
 
------
+*****
 
 ####  ror  
 ##### 471#       发表于 2018-1-27 22:57
@@ -16260,7 +16260,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 今石不行啊，作画根本没爽起来
 
 
------
+*****
 
 ####  tjshibc21  
 ##### 472#       发表于 2018-1-27 22:57
@@ -16271,7 +16271,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 男主放326去坐鹤望兰的时候 我真的是笑到爆炸了
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 473#       发表于 2018-1-27 22:57
@@ -16280,7 +16280,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">326满足不了啊
 
 
------
+*****
 
 ####  whn1103  
 ##### 474#       发表于 2018-1-27 22:57
@@ -16289,7 +16289,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 卧槽这他妈药劲太炸裂了！！！！
 
 
------
+*****
 
 ####  unnilennium  
 ##### 475#       发表于 2018-1-27 22:57
@@ -16298,7 +16298,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">326这是，七窍出血了？
 
 
------
+*****
 
 ####  feolhn  
 ##### 476#       发表于 2018-1-27 22:57
@@ -16309,7 +16309,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 还是女下男上，居然男主还被ntr，真的我觉得泥潭最脑洞的剧本都写不出来<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bird-lay  
 ##### 477#       发表于 2018-1-27 22:57
@@ -16320,7 +16320,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 不是大家的16而是大家的02吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  艾叶  
 ##### 478#       发表于 2018-1-27 22:57
@@ -16329,7 +16329,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">怎么猜得到这种NTR不成反被榨干的剧情喔
 
 
------
+*****
 
 ####  learest1  
 ##### 479#       发表于 2018-1-27 22:57
@@ -16340,7 +16340,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 —— 来自 HTC U11, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  D．Va  
 ##### 480#       发表于 2018-1-27 22:57
@@ -16349,7 +16349,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 男主每集结尾独白（1/1）
 
 
------
+*****
 
 ####  xingenge  
 ##### 481#       发表于 2018-1-27 22:57
@@ -16362,7 +16362,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 田中将賀さん描き下ろしジャケットやサントラCDvol.1、ブックレットや特典映像、オーディオコメンタリーなど豪華特典となっています！本日より予約受付開始！
 
 
------
+*****
 
 ####  lost_恩恩  
 ##### 482#       发表于 2018-1-27 22:58
@@ -16373,7 +16373,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 加一，这是闹哪样，好歹给点动作作画啊，太失望了
 
 
------
+*****
 
 ####  Temori  
 ##### 483#       发表于 2018-1-27 22:58
@@ -16384,7 +16384,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 484#       发表于 2018-1-27 22:58
@@ -16395,7 +16395,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  d00233773  
 ##### 485#       发表于 2018-1-27 22:58
@@ -16404,7 +16404,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 药劲真的强，嗦不出话<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Hukyouwaon  
 ##### 486#       发表于 2018-1-27 22:58
@@ -16413,7 +16413,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 心疼一波眼镜妹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  田多宇光  
 ##### 487#       发表于 2018-1-27 22:59
@@ -16422,7 +16422,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 下集是没见过的天花板？不是那就要扣分了
 
 
------
+*****
 
 ####  populareal  
 ##### 488#       发表于 2018-1-27 23:00
@@ -16432,7 +16432,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 打斗不过不失吧，今石你摸了啊
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 489#       发表于 2018-1-27 23:00
@@ -16443,7 +16443,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  d00233773  
 ##### 490#       发表于 2018-1-27 23:00
@@ -16452,7 +16452,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 不过本集动作戏还是差一口气啊
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 491#       发表于 2018-1-27 23:00
@@ -16463,7 +16463,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  populareal  
 ##### 492#       发表于 2018-1-27 23:01
@@ -16474,7 +16474,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 风怒
 
 
------
+*****
 
 ####  d00233773  
 ##### 493#       发表于 2018-1-27 23:01
@@ -16483,7 +16483,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 不过本集动作戏还是差一口气啊
 
 
------
+*****
 
 ####  lost_恩恩  
 ##### 494#       发表于 2018-1-27 23:01
@@ -16492,7 +16492,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 这动作场面太敷衍了事了吧，最后打大虫子居然切出去聊天？闹哪样，你好歹是个机器人动画
 
 
------
+*****
 
 ####  bird-lay  
 ##### 495#       发表于 2018-1-27 23:01
@@ -16505,7 +16505,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 这是几重ntr<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lost_恩恩  
 ##### 496#       发表于 2018-1-27 23:01
@@ -16514,7 +16514,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 这动作场面太敷衍了事了吧，最后打大虫子居然切出去聊天？闹哪样，你好歹是个机器人动画
 
 
------
+*****
 
 ####  lost_恩恩  
 ##### 497#       发表于 2018-1-27 23:01
@@ -16523,7 +16523,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 这动作场面太敷衍了事了吧，最后打大虫子居然切出去聊天？闹哪样，你好歹是个机器人动画
 
 
------
+*****
 
 ####  allenlisa3234  
 ##### 498#       发表于 2018-1-27 23:01
@@ -16532,7 +16532,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">完了完了男主又要被黑爆了
 
 
------
+*****
 
 ####  reficul  
 ##### 499#       发表于 2018-1-27 23:01
@@ -16541,7 +16541,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 结果三集下来，打戏只有第一集那一段。。。这集飞向叫龙的背动让我兴奋了一下，然后就没了
 
 
------
+*****
 
 ####  叶子轻  
 ##### 500#       发表于 2018-1-27 23:01
@@ -16550,7 +16550,7 @@ NTR不成反被吸干！！！<img src="https://static.saraba1st.com/image/smile
 zorome叫miku的时候瞬间跳戏木乃伊到我家……
 
 
------
+*****
 
 ####  冷泉夜月  
 ##### 501#       发表于 2018-1-27 23:01
@@ -16559,7 +16559,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 这满的CV，市川苍，配的太烂了。。。完全放不出来，解放天性远远不够<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zkn1968  
 ##### 502#       发表于 2018-1-27 23:01
@@ -16570,7 +16570,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 <img src="http://img.ngacn.cc/attachments/mon_201801/27/-9lddQ5-kza0ZfT3cS14k-go.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 503#       发表于 2018-1-27 23:01
@@ -16579,7 +16579,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 玛德有毒。这话居然又不是靠动作作画是靠药性，喂今石你还行不行。
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 504#       发表于 2018-1-27 23:01
@@ -16588,7 +16588,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 回忆起了被吊带袜天使支配的恐惧。。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 505#       发表于 2018-1-27 23:01
@@ -16597,7 +16597,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 想起一个词，马上风
 
 
------
+*****
 
 ####  Thalassa  
 ##### 506#       发表于 2018-1-27 23:02
@@ -16610,7 +16610,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 对了，之后16的那句心声是不是“其实是在期待着你（02）拒绝（396）的”？没听错的话药力更强了，青春的气息啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Arccueid  
 ##### 507#       发表于 2018-1-27 23:02
@@ -16627,7 +16627,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 (016:你他妈等着被吸死吧
 
 
------
+*****
 
 ####  populareal  
 ##### 508#       发表于 2018-1-27 23:02
@@ -16638,7 +16638,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 息怒息怒
 
 
------
+*****
 
 ####  塔奇克马  
 ##### 509#       发表于 2018-1-27 23:02
@@ -16647,7 +16647,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 就像GALGAME,愤怒的榨干 算ntr么?
 
 
------
+*****
 
 ####  可可贝利  
 ##### 510#       发表于 2018-1-27 23:02
@@ -16656,7 +16656,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 这什么鬼展开<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ntr狂欢啊
 
 
------
+*****
 
 ####  feolhn  
 ##### 511#       发表于 2018-1-27 23:02
@@ -16676,7 +16676,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 锦织你难道准备巨毒，重走革命机老路<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  waox  
 ##### 512#       发表于 2018-1-27 23:02
@@ -16689,7 +16689,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 都不需要男主奋起，别的角色这惨样笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kuonchan  
 ##### 513#       发表于 2018-1-27 23:03
@@ -16698,7 +16698,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 感觉fate开场秒了怎么办？
 
 
------
+*****
 
 ####  kuonchan  
 ##### 514#       发表于 2018-1-27 23:03
@@ -16707,7 +16707,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 感觉fate开场秒了怎么办？
 
 
------
+*****
 
 ####  kuonchan  
 ##### 515#       发表于 2018-1-27 23:03
@@ -16716,7 +16716,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 感觉fate开场秒了怎么办？
 
 
------
+*****
 
 ####  kmno4  
 ##### 516#       发表于 2018-1-27 23:04
@@ -16728,7 +16728,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 不行了，太hi了，接下去先看月球。。。
 
 
------
+*****
 
 ####  allenlisa3234  
 ##### 517#       发表于 2018-1-27 23:04
@@ -16739,7 +16739,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 五郎那个脸棒的
 
 
------
+*****
 
 ####  bgmilk  
 ##### 518#       发表于 2018-1-27 23:04
@@ -16748,7 +16748,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 这打戏还不如隔壁的拉稀圣印战记<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 519#       发表于 2018-1-27 23:04
@@ -16757,7 +16757,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 战斗太水了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  槑花林  
 ##### 520#       发表于 2018-1-27 23:04
@@ -16766,7 +16766,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 196和326要怎么破镜重圆啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  vxzms  
 ##### 521#       发表于 2018-1-27 23:04
@@ -16775,7 +16775,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 就是不给舱内 02 的镜头 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  艾叶  
 ##### 522#       发表于 2018-1-27 23:04
@@ -16784,7 +16784,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 确实这话的战斗完全没有展开就结束了。还有015真是，果然有因为责任心自责的老梗展开啊
 
 
------
+*****
 
 ####  摩天城  
 ##### 523#       发表于 2018-1-27 23:04
@@ -16795,7 +16795,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 但是最后小boss到底怎么样了啊
 
 
------
+*****
 
 ####  kerfars  
 ##### 524#       发表于 2018-1-27 23:04
@@ -16804,7 +16804,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 男主就像一个调教好女主，完全不担心女主背叛，甚至看到女主榨干苦主（？）还有点开心的黄毛
 
 
------
+*****
 
 ####  黑须太一  
 ##### 525#       发表于 2018-1-27 23:04
@@ -16815,7 +16815,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 02这最后的回头，美爆
 
 
------
+*****
 
 ####  D．Va  
 ##### 526#       发表于 2018-1-27 23:05
@@ -16825,7 +16825,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 [https://shonenjumpplus.com/episode/13932016480029359437](https://shonenjumpplus.com/episode/13932016480029359437)
 
 
------
+*****
 
 ####  reficul  
 ##### 527#       发表于 2018-1-27 23:05
@@ -16836,7 +16836,7 @@ zorome叫miku的时候瞬间跳戏木乃伊到我家……
 泥潭抽风还是我网络抽风，回个贴都费劲
 
 
------
+*****
 
 ####  xingenge  
 ##### 528#       发表于 2018-1-27 23:05
@@ -16896,7 +16896,7 @@ DVD完全生産限定版 7,000円(+税) (ANZB-14441～14442)
 ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店及びドットコム)、Amazon(【Amazon.co.jp限定】商品のみ対象)、ゲーマーズ、とらのあな(一部店舗除く)、TSUTAYAオンライン、WonderGOO/新星堂
 
 
------
+*****
 
 ####  wx41122  
 ##### 529#       发表于 2018-1-27 23:05
@@ -16905,7 +16905,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这集有点吹不动啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  BloodWingS  
 ##### 530#       发表于 2018-1-27 23:05
@@ -16914,7 +16914,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 打斗戏好少，有点燃烧不足啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 531#       发表于 2018-1-27 23:05
@@ -16925,7 +16925,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 666这上去几分钟就成木乃伊了。。。。。。。
 
 
------
+*****
 
 ####  hac0101  
 ##### 532#       发表于 2018-1-27 23:05
@@ -16934,7 +16934,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 除了02，受到攻击先倒的果然是女方。
 
 
------
+*****
 
 ####  内裤假面  
 ##### 533#       发表于 2018-1-27 23:05
@@ -16948,7 +16948,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 —— 来自 Meizu PRO 6 Plus, Android 7.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  Annie_Hyacinth  
 ##### 534#       发表于 2018-1-27 23:05
@@ -16959,7 +16959,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 话说这集今石是没发力吗？感觉后面看起来怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D．Va  
 ##### 535#       发表于 2018-1-27 23:05
@@ -16969,7 +16969,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 [https://www.youtube.com/watch?v=mpCYWtKLwvo](https://www.youtube.com/watch?v=mpCYWtKLwvo)
 
 
------
+*****
 
 ####  my707776310  
 ##### 536#       发表于 2018-1-27 23:06
@@ -16980,7 +16980,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 心疼我的196，背头要不你再被榨两次吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whosmex  
 ##### 537#       发表于 2018-1-27 23:06
@@ -16992,7 +16992,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 等271放送。
 
 
------
+*****
 
 ####  vxzms  
 ##### 538#       发表于 2018-1-27 23:06
@@ -17006,7 +17006,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 泥潭吧 我这也费劲
 
 
------
+*****
 
 ####  kerfars  
 ##### 539#       发表于 2018-1-27 23:06
@@ -17015,7 +17015,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过讲真这集战斗的确水，可能是期望值太高了吧
 
 
------
+*****
 
 ####  ティグル  
 ##### 540#       发表于 2018-1-27 23:06
@@ -17024,7 +17024,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 不是作画不行，是太短了，该提起情绪就完了
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 541#       发表于 2018-1-27 23:06
@@ -17033,7 +17033,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 被吸的不省人事惹，02就叫淋淋好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  topia  
 ##### 542#       发表于 2018-1-27 23:06
@@ -17082,7 +17082,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 查看全部评分
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 543#       发表于 2018-1-27 23:06
@@ -17091,7 +17091,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要空难了要空难了
 
 
------
+*****
 
 ####  enenpoi  
 ##### 544#       发表于 2018-1-27 23:06
@@ -17106,7 +17106,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 估计得等今石自己那部 Ditf重点可能不在战斗吧
 
 
------
+*****
 
 ####  deidara  
 ##### 545#       发表于 2018-1-27 23:06
@@ -17120,7 +17120,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 药效是够猛。可是喂不能这样啊，这还是机战么。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">圣锦织成不成啊
 
 
------
+*****
 
 ####  interzhang  
 ##### 546#       发表于 2018-1-27 23:06
@@ -17129,7 +17129,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">背头被吸干了估计就能和眼镜匹配了吧
 
 
------
+*****
 
 ####  xingenge  
 ##### 547#       发表于 2018-1-27 23:07
@@ -17139,7 +17139,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="http://wx2.sinaimg.cn/large/740ca5e5ly1fnvkeiuw2mj20rs0j0n12.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xzhlj0325  
 ##### 548#       发表于 2018-1-27 23:07
@@ -17148,7 +17148,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 一看原画，这不还是a1回嘛，今石连作监都不是，就画了点动作场景分镜。等第4话再吹啦
 
 
------
+*****
 
 ####  kuonchan  
 ##### 549#       发表于 2018-1-27 23:07
@@ -17157,7 +17157,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 要空难了，直降1000
 
 
------
+*****
 
 ####  REDXIII  
 ##### 550#       发表于 2018-1-27 23:07
@@ -17168,7 +17168,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 药效还是足。。。我现在就想看第四集
 
 
------
+*****
 
 ####  ror  
 ##### 551#       发表于 2018-1-27 23:07
@@ -17179,7 +17179,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 所以应该怪今石啊，背动那几段还是有料的，但是切来切去爽不起来
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 552#       发表于 2018-1-27 23:07
@@ -17188,7 +17188,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 今石分镜好快啊，没打斗的时候怪怪的
 
 
------
+*****
 
 ####  sullen  
 ##### 553#       发表于 2018-1-27 23:07
@@ -17197,7 +17197,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 第二集016没了02不行，第三集02没了016不行。下一集总该打了吧，压了这么久了
 
 
------
+*****
 
 ####  kerfars  
 ##### 554#       发表于 2018-1-27 23:08
@@ -17206,7 +17206,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">虽说是被榨干，但是这剧情应该负分了吧，空难不可避
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 555#       发表于 2018-1-27 23:08
@@ -17215,7 +17215,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 节奏不太舒服，感觉提不起劲儿来。。。不过326皮这一下被榨干，还是大快人心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Thalassa  
 ##### 556#       发表于 2018-1-27 23:08
@@ -17231,7 +17231,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 上一话的楼里还有猜会不会全是16的后宫，看起来不是这个走向，271之前的推送消息也说“五对官方CP”来着。
 
 
------
+*****
 
 ####  wyhman  
 ##### 557#       发表于 2018-1-27 23:08
@@ -17240,7 +17240,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 打几个史莱姆还指望能有什么大戏吗。。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 558#       发表于 2018-1-27 23:08
@@ -17249,7 +17249,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 老是喂药就没意思了
 
 
------
+*****
 
 ####  wuliaozheX  
 ##### 559#       发表于 2018-1-27 23:08
@@ -17262,7 +17262,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 话题倒是肯定不缺了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 560#       发表于 2018-1-27 23:08
@@ -17275,7 +17275,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 前三话一集比一集喘不过气
 
 
------
+*****
 
 ####  liliaceae  
 ##### 561#       发表于 2018-1-27 23:09
@@ -17284,7 +17284,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 666看着没那么讨厌了。
 
 
------
+*****
 
 ####  海鸟封  
 ##### 562#       发表于 2018-1-27 23:09
@@ -17293,7 +17293,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">药效够了，别的地方观感不如前两集，什么时候才有一场酣畅淋漓的打斗啊
 
 
------
+*****
 
 ####  内裤假面  
 ##### 563#       发表于 2018-1-27 23:09
@@ -17308,7 +17308,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 —— 来自 Meizu PRO 6 Plus, Android 7.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 564#       发表于 2018-1-27 23:09
@@ -17322,7 +17322,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这都挂了一个了还怎么5对CP啦
 
 
------
+*****
 
 ####  jacklibran  
 ##### 565#       发表于 2018-1-27 23:09
@@ -17334,7 +17334,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 草莓可爱
 
 
------
+*****
 
 ####  populareal  
 ##### 566#       发表于 2018-1-27 23:09
@@ -17343,7 +17343,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 空难预警<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  bird-lay  
 ##### 567#       发表于 2018-1-27 23:09
@@ -17354,7 +17354,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 不知道02在鹤望兰里听见326在背后长篇大论是什么感受
 
 
------
+*****
 
 ####  xingenge  
 ##### 568#       发表于 2018-1-27 23:09
@@ -17364,7 +17364,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="http://wx4.sinaimg.cn/large/740ca5e5ly1fnvkgp65xej20y74k1qcj.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sullen  
 ##### 569#       发表于 2018-1-27 23:10
@@ -17373,7 +17373,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 而且这集动作戏不足我觉得跟技师有关吧，一个黄毛你打那么爽，后面正主怎么办啊？又不是ntr平方
 
 
------
+*****
 
 ####  deidara  
 ##### 570#       发表于 2018-1-27 23:10
@@ -17387,7 +17387,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 秒跪的是大背头啦不是田村少年。
 
 
------
+*****
 
 ####  莉洁莉特  
 ##### 571#       发表于 2018-1-27 23:10
@@ -17399,7 +17399,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 解过这一话缩了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zkn1968  
 ##### 572#       发表于 2018-1-27 23:10
@@ -17413,7 +17413,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 因为三次被榨干，第一个领便当，你信不信？我反正是信了
 
 
------
+*****
 
 ####  mimighost  
 ##### 573#       发表于 2018-1-27 23:10
@@ -17428,7 +17428,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 期待
 
 
------
+*****
 
 ####  塔奇克马  
 ##### 574#       发表于 2018-1-27 23:10
@@ -17445,7 +17445,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 出了02以外打戏我觉得暂时还不能指望.
 
 
------
+*****
 
 ####  アキモト  
 ##### 575#       发表于 2018-1-27 23:10
@@ -17454,7 +17454,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 看完觉得最有趣的竟然是史莱姆
 
 
------
+*****
 
 ####  七七見奈波  
 ##### 576#       发表于 2018-1-27 23:11
@@ -17463,7 +17463,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这集分镜演出是赤井俊文啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  feolhn  
 ##### 577#       发表于 2018-1-27 23:11
@@ -17484,7 +17484,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这集吹不动了，还有点劝退
 
 
------
+*****
 
 ####  摩天城  
 ##### 578#       发表于 2018-1-27 23:11
@@ -17495,7 +17495,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 希望如此吧，反正已经空难预定了
 
 
------
+*****
 
 ####  Thalassa  
 ##### 579#       发表于 2018-1-27 23:11
@@ -17507,7 +17507,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 才一次，还有三分之二的嘛
 
 
------
+*****
 
 ####  艾叶  
 ##### 580#       发表于 2018-1-27 23:11
@@ -17516,7 +17516,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">用半年番来说服自己，这话的感观确实没有前两话好，除了喜闻乐见的那点破事就没啥了。这回我真信这就是个讲人际关系的片了
 
 
------
+*****
 
 ####  D．Va  
 ##### 581#       发表于 2018-1-27 23:12
@@ -17530,7 +17530,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 之前声优就透露过会有换寄驶员的展开
 
 
------
+*****
 
 ####  m99999  
 ##### 582#       发表于 2018-1-27 23:12
@@ -17543,7 +17543,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 同，这集本身不差啊，只是上集太劲了。下集可以期待一下打戏
 
 
------
+*****
 
 ####  摩天城  
 ##### 583#       发表于 2018-1-27 23:13
@@ -17554,7 +17554,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 02战斗服一样，16当时说操作的手感一样
 
 
------
+*****
 
 ####  bird-lay  
 ##### 584#       发表于 2018-1-27 23:13
@@ -17565,7 +17565,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 他们平时都在学些啥
 
 
------
+*****
 
 ####  mimighost  
 ##### 585#       发表于 2018-1-27 23:14
@@ -17579,7 +17579,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 空难？
 
 
------
+*****
 
 ####  Nemo艇长  
 ##### 586#       发表于 2018-1-27 23:14
@@ -17589,7 +17589,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 我又毒死一个
 
 
------
+*****
 
 ####  屈江鸟  
 ##### 587#       发表于 2018-1-27 23:14
@@ -17598,7 +17598,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 能吹的永远是下一集<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  本渡枫  
 ##### 588#       发表于 2018-1-27 23:14
@@ -17607,7 +17607,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这集之后 还黑男主吗？ 性格好转很多啊 觉得男主目前这个状态 不谈02 不谈特殊体质  光头脑来说就算是所有人里最清醒的了 你看其它简直就是一群菜B送死   人干儿兄本集异军突起 再次深化了设定   NTR谈不上 调侃下吧也就   没打爽是事实 信息量不错也不至于沦为完全过渡回  还是期待后面有精彩战斗的  这片子背后索爷爷倾巢而出  绝对不至于没钱  坐等烧钱了   02 真的是 太TM 棒了 。。  机体表情的刻画 真的是妙 设定上来说  跟AW的那个心之殇有的一拼 02运作模式等等一系列谜底快揭开哇。
 
 
------
+*****
 
 ####  whosmex  
 ##### 589#       发表于 2018-1-27 23:14
@@ -17626,7 +17626,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 056：<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 590#       发表于 2018-1-27 23:14
@@ -17635,7 +17635,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">随口一说还真是326要上002.
 
 
------
+*****
 
 ####  艾叶  
 ##### 591#       发表于 2018-1-27 23:14
@@ -17644,7 +17644,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来，之前猜大背头是本质傲娇的扭曲粉，结果你就真特么是那种以前崇拜某人，后面看着对方吊车尾就想踩上一脚满足自己的low货啊，看之后会不会成长了。
 
 
------
+*****
 
 ####  D．Va  
 ##### 592#       发表于 2018-1-27 23:14
@@ -17656,7 +17656,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 02没啥不行的，这集最后应该又是自己操控鹤望兰
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 593#       发表于 2018-1-27 23:14
@@ -17665,7 +17665,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 驾驶舱的问题，已经很好说明了，326猖狂那里给的视角已经最后躺那的镜头，说明他是在上面的，不过这剧情，日本阿宅能受得了你这个？锦织你快跑吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  reficul  
 ##### 594#       发表于 2018-1-27 23:15
@@ -17680,7 +17680,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 今石自己是哪部，也是今年的？
 
 
------
+*****
 
 ####  风怒  
 ##### 595#       发表于 2018-1-27 23:15
@@ -17689,7 +17689,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 确实不怎么炸裂，这话给出的信息也没超出泥潭病人上一话的脑洞
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 596#       发表于 2018-1-27 23:15
@@ -17698,7 +17698,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">说的在理，大背头上机抢戏份还给作画爆炸是不是太不给男主面子了啊（
 
 
------
+*****
 
 ####  klmmmx  
 ##### 597#       发表于 2018-1-27 23:15
@@ -17707,7 +17707,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 我觉得挺好，深藏其中的扭曲，这才是半年番的魅力啊
 
 
------
+*****
 
 ####  本渡枫  
 ##### 598#       发表于 2018-1-27 23:15
@@ -17719,7 +17719,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 男主不缩啊  就是怂  没能力不揽瓷器活儿啊  物理上男主已经是妥妥的傲天底子打好了  这就是在走所谓 心理上成长的过程吧
 
 
------
+*****
 
 ####  天风绯炎  
 ##### 599#       发表于 2018-1-27 23:15
@@ -17734,7 +17734,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  D．Va  
 ##### 600#       发表于 2018-1-27 23:16
@@ -17748,7 +17748,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 至少肯定不是女上男下就是
 
 
------
+*****
 
 ####  bird-lay  
 ##### 601#       发表于 2018-1-27 23:16
@@ -17757,7 +17757,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 下一集该是属于326的陌生的天花板了
 
 
------
+*****
 
 ####  deidara  
 ##### 602#       发表于 2018-1-27 23:16
@@ -17769,7 +17769,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 今晚碟片上架，暴死预定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 603#       发表于 2018-1-27 23:16
@@ -17778,7 +17778,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这集信息量其实比前两集多得多，最能确定的就是孩子们实际上是和大人隔离开的，这能联想到的阴谋太多了
 
 
------
+*****
 
 ####  艾叶  
 ##### 604#       发表于 2018-1-27 23:17
@@ -17790,7 +17790,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 但三话了还没给过鹤望兰启动后的驾驶舱内镜头，摆明了有隐情啊
 
 
------
+*****
 
 ####  D．Va  
 ##### 605#       发表于 2018-1-27 23:17
@@ -17802,7 +17802,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 今年档期没了，起码明年
 
 
------
+*****
 
 ####  waox  
 ##### 606#       发表于 2018-1-27 23:17
@@ -17814,7 +17814,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 有的人看是先开枪再画靶的
 
 
------
+*****
 
 ####  d00233773  
 ##### 607#       发表于 2018-1-27 23:17
@@ -17829,7 +17829,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 不是说下一话扳机回？
 
 
------
+*****
 
 ####  bird-lay  
 ##### 608#       发表于 2018-1-27 23:18
@@ -17840,7 +17840,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 等高清点的看了
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 609#       发表于 2018-1-27 23:18
@@ -17852,7 +17852,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 真是有信心，我是没见过三话这么玩儿的，空难啦暴死啦<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  reficul  
 ##### 610#       发表于 2018-1-27 23:18
@@ -17861,7 +17861,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 自己操作会变成兽形态吧，虽然画面没给（为啥不给啊），但是在下面打虫子时还是保持着人形，326也是还有意识的吧，不过可能就是在昏阙的边缘了
 
 
------
+*****
 
 ####  xingenge  
 ##### 611#       发表于 2018-1-27 23:18
@@ -17874,7 +17874,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="http://wx1.sinaimg.cn/large/740ca5e5ly1fnvkprk980j20e60e6753.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  第三视点  
 ##### 612#       发表于 2018-1-27 23:18
@@ -17885,7 +17885,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  不灭人形  
 ##### 613#       发表于 2018-1-27 23:19
@@ -17899,7 +17899,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 对了她比我大两岁，嗯，就说这么一件事，我的职业是高中老师。
 
 
------
+*****
 
 ####  we89623  
 ##### 614#       发表于 2018-1-27 23:19
@@ -17913,7 +17913,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 不过发现一点，机体痛觉和女驾驶共享（跟EVA一样）
 
 
------
+*****
 
 ####  D．Va  
 ##### 615#       发表于 2018-1-27 23:19
@@ -17923,7 +17923,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="http://ww2.sinaimg.cn/large/8252a54ely1fnvkml33enj20l80xc44a.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fight哒哟  
 ##### 616#       发表于 2018-1-27 23:19
@@ -17932,7 +17932,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 上集上别人，这集被别人上， 禁欲了两集，下一集该爆种了<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zadn  
 ##### 617#       发表于 2018-1-27 23:19
@@ -17944,7 +17944,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 他在2话说的那两句阴阳怪气的话就足够证明他就是这类人了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 618#       发表于 2018-1-27 23:19
@@ -17953,7 +17953,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这集过后男主还是没认清现实我就要难受了
 
 
------
+*****
 
 ####  ティグル  
 ##### 619#       发表于 2018-1-27 23:19
@@ -17964,7 +17964,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 上来的时候已经宕机了
 
 
------
+*****
 
 ####  my707776310  
 ##### 620#       发表于 2018-1-27 23:19
@@ -17973,7 +17973,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 话说回来，02和16过安检哪里真是撩啊，15输的不丢人好吧
 
 
------
+*****
 
 ####  ティグル  
 ##### 621#       发表于 2018-1-27 23:20
@@ -17986,7 +17986,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 015对同性产生了嫉妒情绪，孩子们开始转变了
 
 
------
+*****
 
 ####  sullen  
 ##### 622#       发表于 2018-1-27 23:20
@@ -17998,7 +17998,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这也太快了！怕不是提前画好了！
 
 
------
+*****
 
 ####  m99999  
 ##### 623#       发表于 2018-1-27 23:21
@@ -18007,7 +18007,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这集其实几组人的情感懵懂都有刻画，015对056那欲言又止，隐隐是有种罪恶感的吧？
 
 
------
+*****
 
 ####  kerfars  
 ##### 624#       发表于 2018-1-27 23:21
@@ -18031,7 +18031,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 查看全部评分
 
 
------
+*****
 
 ####  D．Va  
 ##### 625#       发表于 2018-1-27 23:21
@@ -18043,7 +18043,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 肯定是自己操控的，326最后都没意识了，兽形态是因为801已经是第三次，326才第一次
 
 
------
+*****
 
 ####  倒映在瞳中  
 ##### 626#       发表于 2018-1-27 23:21
@@ -18052,7 +18052,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 015听到鹤望兰参战那段失控太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xwz  
 ##### 627#       发表于 2018-1-27 23:21
@@ -18064,7 +18064,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 老实说这集里面3台机体面对大史莱姆的时候那个感觉让我想起星河战队里面大虫子吸脑浆那段……
 
 
------
+*****
 
 ####  lanhao  
 ##### 628#       发表于 2018-1-27 23:22
@@ -18075,7 +18075,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 肯定的呀
 
 
------
+*****
 
 ####  my707776310  
 ##### 629#       发表于 2018-1-27 23:22
@@ -18089,7 +18089,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 好像刚开始同步的时候有一边上升的慢了？不知道是不是我看错了
 
 
------
+*****
 
 ####  whosmex  
 ##### 630#       发表于 2018-1-27 23:22
@@ -18107,7 +18107,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 015又A上去了，002好像输了，015骑脸怎么输怎么输！
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 631#       发表于 2018-1-27 23:22
@@ -18116,7 +18116,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这今石真是摆着看的？不解啊，这完全没必要啊还今石加三轮和宏
 
 
------
+*****
 
 ####  zyw0  
 ##### 632#       发表于 2018-1-27 23:22
@@ -18125,7 +18125,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 赵灵儿，泽拉图之后。又要多个淋淋2的外好了。真的系惨惹
 
 
------
+*****
 
 ####  艾叶  
 ##### 633#       发表于 2018-1-27 23:22
@@ -18137,7 +18137,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 因为看第三话预告他的独白，还稍微有那么点念想，结果真low啊，简直是起点小说式的被抽脸反派。如果要讲述人际关系与成长的话，这货现在应该是在最低点了，我还是觉得以后会学乖的。
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 634#       发表于 2018-1-27 23:23
@@ -18146,7 +18146,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 所以意思是人就可以和02开鹤望兰，不过后果自负……那那套同调什么理论有什么用
 
 
------
+*****
 
 ####  zyw0  
 ##### 635#       发表于 2018-1-27 23:23
@@ -18155,7 +18155,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 这机体驾驶难度真的高，驾驶员稍微有点情绪波动就开不了了....
 
 
------
+*****
 
 ####  本渡枫  
 ##### 636#       发表于 2018-1-27 23:23
@@ -18170,7 +18170,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 我曹  竟然有同感  电话点播电影片段的时候 觉得  最好看的片子 。。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 637#       发表于 2018-1-27 23:23
@@ -18182,7 +18182,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 可能是昏迷的还是能强行吸？但是昏迷了应该直接宕机才对啊，就算02再强也应该是兽形态
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 638#       发表于 2018-1-27 23:24
@@ -18191,7 +18191,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 326应该不会这么快退出，不然196就没东西讲了。。估计还会洗白<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 639#       发表于 2018-1-27 23:24
@@ -18203,7 +18203,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 感觉都挺慢的，给人感觉是勉勉强强上了100
 
 
------
+*****
 
 ####  ティグル  
 ##### 640#       发表于 2018-1-27 23:24
@@ -18214,7 +18214,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 博士还说驾驶员就是要色一点比较好，跟培育机构诞生的这几组完全不一样，这又是一个坑了
 
 
------
+*****
 
 ####  kerfars  
 ##### 641#       发表于 2018-1-27 23:24
@@ -18223,7 +18223,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">普通人才需要同调，02只需要电池
 
 
------
+*****
 
 ####  bird-lay  
 ##### 642#       发表于 2018-1-27 23:24
@@ -18237,7 +18237,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 估计02是被326那堆话说烦了
 
 
------
+*****
 
 ####  未来起航  
 ##### 643#       发表于 2018-1-27 23:24
@@ -18248,7 +18248,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 哪位n1的能不能解释下这一话台词有啥信息量么？要是连信息量都给不起来这一话真就烂了...
 
 
------
+*****
 
 ####  sullen  
 ##### 644#       发表于 2018-1-27 23:25
@@ -18257,7 +18257,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 唯一可惜的是中间打抱脸虫那段，实在有点糊弄了……鹤望兰的打戏我还能接受
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 645#       发表于 2018-1-27 23:25
@@ -18268,7 +18268,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 兽型是02暴走状态
 
 
------
+*****
 
 ####  bird-lay  
 ##### 646#       发表于 2018-1-27 23:25
@@ -18282,7 +18282,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 之前那个男的是被吸干掉线了
 
 
------
+*****
 
 ####  d00233773  
 ##### 647#       发表于 2018-1-27 23:25
@@ -18294,7 +18294,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 其他的机体搭档不同调根本动不了
 
 
------
+*****
 
 ####  ティグル  
 ##### 648#       发表于 2018-1-27 23:27
@@ -18303,7 +18303,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 002连接franxx的方式都跟其他人不一样，不能用这几组的方式来看鹤望兰啊
 
 
------
+*****
 
 ####  D．Va  
 ##### 649#       发表于 2018-1-27 23:27
@@ -18315,7 +18315,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 326和801本质上没区别，都是被02吸干，男主和他们的区别就是他能完美和02同步，至于兽型转人型说不定就是初次限定了，属于一个不可逆的觉醒事件
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 650#       发表于 2018-1-27 23:27
@@ -18329,7 +18329,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 对，02明显是被背头惹毛了，独白应该是我是看在达令的面子上让你来老娘本来就不吊你你结果狂的不行？
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 651#       发表于 2018-1-27 23:27
@@ -18343,7 +18343,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 对，02明显是被背头惹毛了，独白应该是我是看在达令的面子上让你来老娘本来就不吊你你结果狂的不行？
 
 
------
+*****
 
 ####  feolhn  
 ##### 652#       发表于 2018-1-27 23:28
@@ -18352,7 +18352,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 打戏确实有点糊弄，中段的时候就放上了几张不带动的截图，今石这挂名也是稳
 
 
------
+*****
 
 ####  deidara  
 ##### 653#       发表于 2018-1-27 23:28
@@ -18364,7 +18364,7 @@ ANIPLEX＋、アニメイト、HMV・Loppi、ソフマップ(BD/DVD取扱い店�
 我觉得男主这一集的决定没啥问题，有担当有头脑不冲动。男主到底怂不怂，第二集666挑衅他是敢接下的，而且第二集结尾大失败，现在仍然没放弃，只是危急时刻你没有上司同意又不可能强行上机，为了救小队hiro自然要退步。大背头这时候还趁机藐视16，男主呢？虽然被嘲讽但是主要还是担心队友们，包括大背头和02.
 
 
------
+*****
 
 ####  西瓜田里的飞鱼  
 ##### 654#       发表于 2018-1-27 23:28
@@ -18377,7 +18377,7 @@ NTR不成笑喷了
 听说下一话摩砂雪？观望一下，求不要再划水了。
 
 
------
+*****
 
 ####  Thalassa  
 ##### 655#       发表于 2018-1-27 23:29
@@ -18388,7 +18388,7 @@ NTR不成笑喷了
 城市是能移动的，那么应该没有地下部分吧，可是从电梯的地方看过去感觉比第一话中从外面看过去的高度要高，城市的设定还藏着重要的东西。
 
 
------
+*****
 
 ####  allenlisa3234  
 ##### 656#       发表于 2018-1-27 23:29
@@ -18397,7 +18397,7 @@ NTR不成笑喷了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是 男主到底是怎么没认清现实啥了。救人要紧啊。。能上机测试他肯定也想啊
 
 
------
+*****
 
 ####  reficul  
 ##### 657#       发表于 2018-1-27 23:29
@@ -18415,7 +18415,7 @@ NTR不成笑喷了
 我觉得还是这个猜想比较实在
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 658#       发表于 2018-1-27 23:29
@@ -18424,7 +18424,7 @@ NTR不成笑喷了
 这种杂鱼怪会有什么战斗戏
 
 
------
+*****
 
 ####  allenlisa3234  
 ##### 659#       发表于 2018-1-27 23:30
@@ -18436,7 +18436,7 @@ NTR不成笑喷了
 应该不是看错。我看着也感觉是一边102一边100？。。。嘛
 
 
------
+*****
 
 ####  aaron17  
 ##### 660#       发表于 2018-1-27 23:30
@@ -18450,7 +18450,7 @@ NTR不成笑喷了
 信息挺多的，开始揭秘世界观了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 661#       发表于 2018-1-27 23:30
@@ -18462,7 +18462,7 @@ NTR不成笑喷了
 认清只有自己上才行的现实啊，不是别的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 662#       发表于 2018-1-27 23:30
@@ -18473,7 +18473,7 @@ NTR不成笑喷了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  北原依绪  
 ##### 663#       发表于 2018-1-27 23:30
@@ -18484,7 +18484,7 @@ NTR不成笑喷了
 ditf是一个关于农业的故事。
 
 
------
+*****
 
 ####  枫凛劫火  
 ##### 664#       发表于 2018-1-27 23:30
@@ -18493,7 +18493,7 @@ ditf是一个关于农业的故事。
 这集还是很套路 但是藏了大量的信息而且观感是真的不错
 
 
------
+*****
 
 ####  unnilennium  
 ##### 665#       发表于 2018-1-27 23:30
@@ -18503,7 +18503,7 @@ ditf是一个关于农业的故事。
 [https://shonenjumpplus.com/episode/13932016480029359437](https://shonenjumpplus.com/episode/13932016480029359437)
 
 
------
+*****
 
 ####  ramiel  
 ##### 666#       发表于 2018-1-27 23:31
@@ -18517,7 +18517,7 @@ ditf是一个关于农业的故事。
 摩砂雪要出马，婆罗门大兴奋（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 667#       发表于 2018-1-27 23:31
@@ -18530,7 +18530,7 @@ ditf是一个关于农业的故事。
 宕机的时候面部是无色彩的，没有眼睛，参考第二话
 
 
------
+*****
 
 ####  Inle  
 ##### 668#       发表于 2018-1-27 23:31
@@ -18548,7 +18548,7 @@ ditf是一个关于农业的故事。
 666+390真好玩，666本心果然是不坏的
 
 
------
+*****
 
 ####  D．Va  
 ##### 669#       发表于 2018-1-27 23:31
@@ -18560,7 +18560,7 @@ ditf是一个关于农业的故事。
 心疼196作为搭档不够优秀又不得不重新接受这家伙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  jijiuuo  
 ##### 670#       发表于 2018-1-27 23:31
@@ -18569,7 +18569,7 @@ ditf是一个关于农业的故事。
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">果然不是主角都会被榨干啊
 
 
------
+*****
 
 ####  本渡枫  
 ##### 671#       发表于 2018-1-27 23:32
@@ -18578,7 +18578,7 @@ ditf是一个关于农业的故事。
 男主  评价度 大幅上升  NTR只是再次深化设定  326的自白才是这集的戏肉吧   02大概也是在刺激男主  当然归根结底也可以概括为一句话  所有角色都是在为 男主的 心理 成长 服务  。。当男主傲天剧看 还是群像看 都可以了。
 
 
------
+*****
 
 ####  zyw0  
 ##### 672#       发表于 2018-1-27 23:32
@@ -18587,7 +18587,7 @@ ditf是一个关于农业的故事。
 326一开始还没啥事，也就是看着比较累。后面淋淋2说了句：那我要真本事了。直接就被吸干惹，真的惨<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  倒映在瞳中  
 ##### 673#       发表于 2018-1-27 23:32
@@ -18599,7 +18599,7 @@ ditf是一个关于农业的故事。
 太惨
 
 
------
+*****
 
 ####  d00233773  
 ##### 674#       发表于 2018-1-27 23:32
@@ -18612,7 +18612,7 @@ ditf是一个关于农业的故事。
 326和泽拉图之前的搭档都是普通的，ape根本不心疼，所以很轻易就让他去当电池了
 
 
------
+*****
 
 ####  lanhao  
 ##### 675#       发表于 2018-1-27 23:33
@@ -18621,7 +18621,7 @@ ditf是一个关于农业的故事。
 男主知不知道跟02一起上会被吸干啊
 
 
------
+*****
 
 ####  sullen  
 ##### 676#       发表于 2018-1-27 23:33
@@ -18630,7 +18630,7 @@ ditf是一个关于农业的故事。
 话说196的高跟真是……舔爆
 
 
------
+*****
 
 ####  xwz  
 ##### 677#       发表于 2018-1-27 23:33
@@ -18642,7 +18642,7 @@ ditf是一个关于农业的故事。
 身边被一群小虫子围着但是不杀，专等大虫子过来动手
 
 
------
+*****
 
 ####  摩天城  
 ##### 678#       发表于 2018-1-27 23:33
@@ -18657,7 +18657,7 @@ ditf是一个关于农业的故事。
 当男驾驶员生命力耗尽了，只剩02了，就会暴走变为兽形态
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 679#       发表于 2018-1-27 23:34
@@ -18671,7 +18671,7 @@ ditf是一个关于农业的故事。
 不给镜头怕不是怕阿宅暴动了，02在别人的胯下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 680#       发表于 2018-1-27 23:34
@@ -18683,7 +18683,7 @@ ditf是一个关于农业的故事。
 我猜不是。难道锦织不明白那个姿势什么含义么？故意不做出来就是要降低对观众们的憋屈感觉，到现在为止都留着就是为了以后hiro爆种时更有畅快感，强调02和16互相的独特性和依赖性。玛德这个cp简直牢不可破。
 
 
------
+*****
 
 ####  zkn1968  
 ##### 681#       发表于 2018-1-27 23:34
@@ -18695,7 +18695,7 @@ ditf是一个关于农业的故事。
 那不是主角待遇吗，哦铃原也享受过
 
 
------
+*****
 
 ####  艾叶  
 ##### 682#       发表于 2018-1-27 23:34
@@ -18704,7 +18704,7 @@ ditf是一个关于农业的故事。
 说起来这次015和056那个数值好像不同步了吧，加上056和男主聊天问015的剧情，这要是知道了kiss的事，肯定有个同步率再次下降或者机体无法启动的展开了
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 683#       发表于 2018-1-27 23:35
@@ -18715,7 +18715,7 @@ ditf是一个关于农业的故事。
 前面已经有人不爽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 684#       发表于 2018-1-27 23:35
@@ -18731,7 +18731,7 @@ ditf是一个关于农业的故事。
 白头大哥下来的时候也没死吧，还喘气呢……
 
 
------
+*****
 
 ####  reficul  
 ##### 685#       发表于 2018-1-27 23:35
@@ -18745,7 +18745,7 @@ ditf是一个关于农业的故事。
 也可能宕机后会自动回到初始形态？但那也好像不是初始形态啊，只有直播没法找图
 
 
------
+*****
 
 ####  风怒  
 ##### 686#       发表于 2018-1-27 23:36
@@ -18756,7 +18756,7 @@ ditf是一个关于农业的故事。
 326大概还要继续吃瘪吧，二十多话呢不急着洗白，心疼一波196
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 687#       发表于 2018-1-27 23:36
@@ -18771,7 +18771,7 @@ ditf是一个关于农业的故事。
 666和山下七海就是熊一点，长长就好了
 
 
------
+*****
 
 ####  摩天城  
 ##### 688#       发表于 2018-1-27 23:36
@@ -18783,7 +18783,7 @@ ditf是一个关于农业的故事。
 白头大哥下来的时候也没死吧，还喘气呢……</blockquote>的确没死卧槽，02说了句“他已经不行了”，ape说了句“又把雄蕊吃空了吗”，让我觉得这个男的已经死了
 
 
------
+*****
 
 ####  Mika-S  
 ##### 689#       发表于 2018-1-27 23:37
@@ -18809,7 +18809,7 @@ ditf是一个关于农业的故事。
 查看全部评分
 
 
------
+*****
 
 ####  艾叶  
 ##### 690#       发表于 2018-1-27 23:37
@@ -18821,7 +18821,7 @@ ditf是一个关于农业的故事。
 喔，这倒也是。话说积攒了2集的分量，第四话也该社保了吧……下一话搞不好就是两个都市kissing的剧情了？
 
 
------
+*****
 
 ####  D．Va  
 ##### 691#       发表于 2018-1-27 23:37
@@ -18830,7 +18830,7 @@ ditf是一个关于农业的故事。
 这集还以为02会气男主让别人搭档，结果直接就接受了，对男主的认同度和包容度不是一般高，反观015就<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Thalassa  
 ##### 692#       发表于 2018-1-27 23:37
@@ -18842,7 +18842,7 @@ ditf是一个关于农业的故事。
 我觉的初回限定的是016失去记忆，而不是兽变人。081本来快不行了，鹤望兰兽化战叫龙---&gt;彻底被吸干---&gt;换电池---&gt;变成人形
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 693#       发表于 2018-1-27 23:37
@@ -18854,7 +18854,7 @@ ditf是一个关于农业的故事。
 心理肯定有隔阂了，鹤望兰刚出场015那回想那翻译简直绝了
 
 
------
+*****
 
 ####  Kreis  
 ##### 694#       发表于 2018-1-27 23:37
@@ -18863,7 +18863,7 @@ ditf是一个关于农业的故事。
 一个个都想着打戏，难到非得要做成天天突破那样？
 
 
------
+*****
 
 ####  D．Va  
 ##### 695#       发表于 2018-1-27 23:38
@@ -18879,7 +18879,7 @@ ditf是一个关于农业的故事。
 801没死吧，不过动画没交代细节不清楚
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 696#       发表于 2018-1-27 23:38
@@ -18895,7 +18895,7 @@ ditf是一个关于农业的故事。
 第一话那个parasite死了？……
 
 
------
+*****
 
 ####  we89623  
 ##### 697#       发表于 2018-1-27 23:38
@@ -18904,7 +18904,7 @@ ditf是一个关于农业的故事。
 不过话说回来从第二话的同步率数值差距最大的胖子组这集反倒唯一没掉过档的，就是略酱油，下一集估计就是主场回了，毕竟PV2心的画面，还有太的一个画面都是前三集没有出现的。
 
 
------
+*****
 
 ####  d00233773  
 ##### 698#       发表于 2018-1-27 23:38
@@ -18918,7 +18918,7 @@ ditf是一个关于农业的故事。
 我有点扭曲了，锦织真那么做以后恐怕没人敢看他的片子了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  UMINEKO9  
 ##### 699#       发表于 2018-1-27 23:39
@@ -18929,7 +18929,7 @@ ditf是一个关于农业的故事。
 1话是男主，3话是学霸回，2话则很像015的单人回，不过连过去的故事都没讲清楚。第4话别真是胖子回或者眼镜妹回之类的........<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Kreis  
 ##### 700#       发表于 2018-1-27 23:39
@@ -18938,7 +18938,7 @@ ditf是一个关于农业的故事。
 野中正幸和圣河野的美少女已经满足不了了吗
 
 
------
+*****
 
 ####  99mxw  
 ##### 701#       发表于 2018-1-27 23:39
@@ -18947,7 +18947,7 @@ ditf是一个关于农业的故事。
 我永远支持莓！
 
 
------
+*****
 
 ####  bird-lay  
 ##### 702#       发表于 2018-1-27 23:39
@@ -18959,7 +18959,7 @@ ditf是一个关于农业的故事。
 被扔下去的时候还喘了一下，不过看着也差不多了
 
 
------
+*****
 
 ####  lanhao  
 ##### 703#       发表于 2018-1-27 23:39
@@ -18968,7 +18968,7 @@ ditf是一个关于农业的故事。
 生肉没看懂 016如果知道上02会被吸干 为什么还允许大背头上去啊
 
 
------
+*****
 
 ####  七夜琉璃  
 ##### 704#       发表于 2018-1-27 23:39
@@ -18979,7 +18979,7 @@ ditf是一个关于农业的故事。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 705#       发表于 2018-1-27 23:40
@@ -18990,7 +18990,7 @@ ditf是一个关于农业的故事。
 又是角又是**又是和oni发音相近（
 
 
------
+*****
 
 ####  sjbssd  
 ##### 706#       发表于 2018-1-27 23:40
@@ -18998,7 +18998,7 @@ ditf是一个关于农业的故事。
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  zyw0  
 ##### 707#       发表于 2018-1-27 23:41
@@ -19010,7 +19010,7 @@ ditf是一个关于农业的故事。
 第一集暴走的时候那几个教皇一样的老头就说鹤望兰的雄蕾被吞噬殆尽了
 
 
------
+*****
 
 ####  ティグル  
 ##### 708#       发表于 2018-1-27 23:41
@@ -19019,7 +19019,7 @@ ditf是一个关于农业的故事。
 点个屁头，APE不是吃干饭的，现在他们不允许016上鹤望兰，懂了吗
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 709#       发表于 2018-1-27 23:41
@@ -19031,7 +19031,7 @@ ditf是一个关于农业的故事。
 那毕竟是唯一的达令，还能怎么样，当然是惯着他咯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  摩天城  
 ##### 710#       发表于 2018-1-27 23:41
@@ -19045,7 +19045,7 @@ ditf是一个关于农业的故事。
 主要ape说的那句又把雄蕊吃空了吗，让我觉得人已经死了
 
 
------
+*****
 
 ####  Inle  
 ##### 711#       发表于 2018-1-27 23:42
@@ -19060,7 +19060,7 @@ ditf是一个关于农业的故事。
 至于326会不会死在这个情况下肯定不是最优先考虑的，换成056也肯定要让他上
 
 
------
+*****
 
 ####  OrianaThomson  
 ##### 712#       发表于 2018-1-27 23:42
@@ -19069,7 +19069,7 @@ ditf是一个关于农业的故事。
 需要更多的药<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  艾叶  
 ##### 713#       发表于 2018-1-27 23:42
@@ -19081,7 +19081,7 @@ ditf是一个关于农业的故事。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要啊，有点接受不了02的啊嘿颜
 
 
------
+*****
 
 ####  bird-lay  
 ##### 714#       发表于 2018-1-27 23:42
@@ -19093,7 +19093,7 @@ ditf是一个关于农业的故事。
 只是02说要他开啊，上面那些猴子脸不同意也没办法吧
 
 
------
+*****
 
 ####  kuonchan  
 ##### 715#       发表于 2018-1-27 23:43
@@ -19104,7 +19104,7 @@ ditf是一个关于农业的故事。
 男主刚刚之前要求上时，被娜娜他们反对了，所以放弃了(
 
 
------
+*****
 
 ####  whosmex  
 ##### 716#       发表于 2018-1-27 23:43
@@ -19123,7 +19123,7 @@ ditf是一个关于农业的故事。
 赢定了，怎么输
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 717#       发表于 2018-1-27 23:43
@@ -19135,7 +19135,7 @@ ditf是一个关于农业的故事。
 别这药效太强了，受不了的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sjbssd  
 ##### 718#       发表于 2018-1-27 23:44
@@ -19143,7 +19143,7 @@ ditf是一个关于农业的故事。
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  七夜琉璃  
 ##### 719#       发表于 2018-1-27 23:44
@@ -19169,7 +19169,7 @@ ditf是一个关于农业的故事。
 查看全部评分
 
 
------
+*****
 
 ####  d00233773  
 ##### 720#       发表于 2018-1-27 23:44
@@ -19184,7 +19184,7 @@ ditf是一个关于农业的故事。
 毕竟他开了鹤望兰什么事都没有
 
 
------
+*****
 
 ####  D．Va  
 ##### 721#       发表于 2018-1-27 23:44
@@ -19196,7 +19196,7 @@ ditf是一个关于农业的故事。
 回去看了下第一集02出发前的确是人型的，应该是081被吸干然后暴走变兽型了
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 722#       发表于 2018-1-27 23:45
@@ -19207,7 +19207,7 @@ ditf是一个关于农业的故事。
 肯定有这种本子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Thalassa  
 ##### 723#       发表于 2018-1-27 23:45
@@ -19221,7 +19221,7 @@ ditf是一个关于农业的故事。
 这一话她也怂恿016和她私奔呢，能随心所欲的话就没必要私奔了吧
 
 
------
+*****
 
 ####  死宅真恶心  
 ##### 724#       发表于 2018-1-27 23:45
@@ -19232,7 +19232,7 @@ ditf是一个关于农业的故事。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  liliaceae  
 ##### 725#       发表于 2018-1-27 23:45
@@ -19244,7 +19244,7 @@ ditf是一个关于农业的故事。
 鹤望兰上来的时候已经宕机了，326毕竟第一次被榨，坚持到打完了。801前两次应该是人形，第一集开打的时候娜娜见到兽形态也说了居然这时候狂化了。
 
 
------
+*****
 
 ####  Kreis  
 ##### 726#       发表于 2018-1-27 23:46
@@ -19255,7 +19255,7 @@ ditf是一个关于农业的故事。
 是啊 02不想开上头不能逼啊，所以16让她开啊
 
 
------
+*****
 
 ####  骈儿  
 ##### 727#       发表于 2018-1-27 23:46
@@ -19265,7 +19265,7 @@ ditf是一个关于农业的故事。
 staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿看熟肉再瞅瞅<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yy19  
 ##### 728#       发表于 2018-1-27 23:46
@@ -19280,7 +19280,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 嗯。就目前情报而言，大概就是081#雄蕊电量耗尽，要换根【哔哔】【哔哔】的意思吧~~<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  风怒  
 ##### 729#       发表于 2018-1-27 23:46
@@ -19289,7 +19289,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 这人怎么又进来了，上一集砖楼被喷走了我还以为收敛点了呢
 
 
------
+*****
 
 ####  excalibur之魂  
 ##### 730#       发表于 2018-1-27 23:46
@@ -19301,7 +19301,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 不打还是萝卜片吗？改成魔法少女片吧，像小樱那样每集出来耍个帅就行。
 
 
------
+*****
 
 ####  d00233773  
 ##### 731#       发表于 2018-1-27 23:47
@@ -19314,7 +19314,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 016是特殊的，不算
 
 
------
+*****
 
 ####  ティグル  
 ##### 732#       发表于 2018-1-27 23:47
@@ -19323,7 +19323,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 鹤望兰不出击就冚家铲，就这么简单，想不明白还是别看动画了，费电
 
 
------
+*****
 
 ####  Kreis  
 ##### 733#       发表于 2018-1-27 23:47
@@ -19336,7 +19336,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 所以16才会和56说只能上三次的事只是传闻
 
 
------
+*****
 
 ####  Inle  
 ##### 734#       发表于 2018-1-27 23:47
@@ -19356,7 +19356,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 他肯定知道跟02开机有风险，但他不理这么多只要能上就好
 
 
------
+*****
 
 ####  你说这个谁懂  
 ##### 735#       发表于 2018-1-27 23:48
@@ -19366,7 +19366,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 剧情推进了就行了
 
 
------
+*****
 
 ####  lanhao  
 ##### 736#       发表于 2018-1-27 23:48
@@ -19375,7 +19375,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 话说回来大背头被吸了一节电池 不会以后都恢复不了了吧 跟iphone一样
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 737#       发表于 2018-1-27 23:48
@@ -19387,7 +19387,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 喊错数字
 
 
------
+*****
 
 ####  kmno4  
 ##### 738#       发表于 2018-1-27 23:49
@@ -19405,7 +19405,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 我以为给直美的，不过回头016说她在医院，那前面应该是给801的。。。。
 
 
------
+*****
 
 ####  sjbssd  
 ##### 739#       发表于 2018-1-27 23:49
@@ -19413,7 +19413,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  艾叶  
 ##### 740#       发表于 2018-1-27 23:49
@@ -19425,7 +19425,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 你看前搭档坐了2次就变得像是20多岁，搞不好下一话大背头看着就长大了好几岁。
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 741#       发表于 2018-1-27 23:49
@@ -19437,7 +19437,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 估计是这样……不过326这个性格，不下点血本估计扭不回来……
 
 
------
+*****
 
 ####  风怒  
 ##### 742#       发表于 2018-1-27 23:49
@@ -19452,7 +19452,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那个是给第一话的鸟的吧
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 743#       发表于 2018-1-27 23:49
@@ -19466,7 +19466,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那是鸟的
 
 
------
+*****
 
 ####  吃我大dio  
 ##### 744#       发表于 2018-1-27 23:49
@@ -19487,7 +19487,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 这个表情！ 我想艹哭她<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  時期信物  
 ##### 745#       发表于 2018-1-27 23:49
@@ -19502,7 +19502,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那是给鸟的……
 
 
------
+*****
 
 ####  西瓜田里的飞鱼  
 ##### 746#       发表于 2018-1-27 23:49
@@ -19512,7 +19512,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 <img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  本渡枫  
 ##### 747#       发表于 2018-1-27 23:50
@@ -19524,7 +19524,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 男主虽然知道 自己只有上02 一条路了 都已经做好觉悟了  但是当有别人质疑自己的时候  他还不确定 自己能和02 完美搭配  所以自己没有资格和立场去阻拦别人 而且326的话语已经很具攻击性了 男主依然能忍下来  所以看完这集 男主好感度 up max  头脑清醒 自律 克己  不失觉悟与血性。 
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 748#       发表于 2018-1-27 23:50
@@ -19539,7 +19539,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那是给鸟的吧？我总觉得
 
 
------
+*****
 
 ####  enye  
 ##### 749#       发表于 2018-1-27 23:50
@@ -19554,7 +19554,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 这个土堆是给第一话那只鸟的吧
 
 
------
+*****
 
 ####  摩天城  
 ##### 750#       发表于 2018-1-27 23:50
@@ -19565,7 +19565,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 就跟一个小朋友偷偷跑出家，邀请另一个小朋友去游戏厅，然后另一个小朋友说我得去问问我爸爸一样
 
 
------
+*****
 
 ####  bird-lay  
 ##### 751#       发表于 2018-1-27 23:50
@@ -19581,7 +19581,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 这集应该是男主不能上机，但是不出动的话那三组菜鸡就要挂了，所以只能让326和02组队
 
 
------
+*****
 
 ####  my707776310  
 ##### 752#       发表于 2018-1-27 23:50
@@ -19596,7 +19596,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那不是给哪只鸟的么
 
 
------
+*****
 
 ####  hello0607  
 ##### 753#       发表于 2018-1-27 23:50
@@ -19605,7 +19605,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 希望056后面不要为了保护男主啥的被02吸死 小哥感觉插满了flag<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  七七見奈波  
 ##### 754#       发表于 2018-1-27 23:51
@@ -19614,7 +19614,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 人家叫081，不是801<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mimighost  
 ##### 755#       发表于 2018-1-27 23:51
@@ -19629,7 +19629,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 和02开车危险，三次必中招！
 
 
------
+*****
 
 ####  pipaopo  
 ##### 756#       发表于 2018-1-27 23:51
@@ -19641,7 +19641,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 哪来的自由，ape不给权限还把机子抢走不成
 
 
------
+*****
 
 ####  deidara  
 ##### 757#       发表于 2018-1-27 23:51
@@ -19659,7 +19659,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  D．Va  
 ##### 758#       发表于 2018-1-27 23:52
@@ -19671,7 +19671,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 嗯，暴走是因为081被完全榨干再也无法提供凸型因子了，326虽然失去意识但仍旧能够提供凸型因子所以能维持人型，兽型是完全由02的凹型因子驱动，这样就好理解了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 759#       发表于 2018-1-27 23:52
@@ -19686,7 +19686,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那是给鸟的
 
 
------
+*****
 
 ####  d00233773  
 ##### 760#       发表于 2018-1-27 23:52
@@ -19701,7 +19701,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 金刚不坏神功用5次之前什么事都没有<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kmno4  
 ##### 761#       发表于 2018-1-27 23:52
@@ -19716,7 +19716,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 如果开虐的话，就会被拿来开刀。。。挡枪好呢还是什么好呢？？
 
 
------
+*****
 
 ####  本渡枫  
 ##### 762#       发表于 2018-1-27 23:52
@@ -19725,7 +19725,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 到现在了  还当萝卜片 去 评价和 期待的  都是自找没趣的KY吧。。
 
 
------
+*****
 
 ####  whn1103  
 ##### 763#       发表于 2018-1-27 23:52
@@ -19740,7 +19740,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那个那么小……是第一话死的那只鸟的
 
 
------
+*****
 
 ####  lanhao  
 ##### 764#       发表于 2018-1-27 23:52
@@ -19751,7 +19751,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 如果我带入男主我也情愿让大背头上 然后打脸 但是按男主亚撒西的性格 不应该是疯狂劝阻 然后大人们不同意 非要大背头上 这种剧情吗
 
 
------
+*****
 
 ####  塞瑞娜  
 ##### 765#       发表于 2018-1-27 23:53
@@ -19760,7 +19760,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 刚刚发现015的机子是蓝色枪兵啊。。怕不是要出事。。
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 766#       发表于 2018-1-27 23:53
@@ -19769,7 +19769,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 我又卜是SB，我亲自送02上的飞机
 
 
------
+*****
 
 ####  Thalassa  
 ##### 767#       发表于 2018-1-27 23:53
@@ -19784,7 +19784,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那是给那只死的鸟的
 
 
------
+*****
 
 ####  D．Va  
 ##### 768#       发表于 2018-1-27 23:53
@@ -19799,7 +19799,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那不是给那只鸟的么
 
 
------
+*****
 
 ####  deidara  
 ##### 769#       发表于 2018-1-27 23:53
@@ -19810,7 +19810,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sjbssd  
 ##### 770#       发表于 2018-1-27 23:54
@@ -19818,7 +19818,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  塔奇克马  
 ##### 771#       发表于 2018-1-27 23:54
@@ -19833,7 +19833,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 不,说不定这次之后大背头就要天天吸氧才能维持了....
 
 
------
+*****
 
 ####  liliaceae  
 ##### 772#       发表于 2018-1-27 23:54
@@ -19845,7 +19845,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 已经死了的龙套，无所谓了。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sullen  
 ##### 773#       发表于 2018-1-27 23:54
@@ -19860,7 +19860,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 给1话开头的那只小鸟的
 
 
------
+*****
 
 ####  ティグル  
 ##### 774#       发表于 2018-1-27 23:54
@@ -19871,7 +19871,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 这个当口鹤望兰是必须出动的
 
 
------
+*****
 
 ####  槑花林  
 ##### 775#       发表于 2018-1-27 23:55
@@ -19880,7 +19880,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 不过02确实非常矛盾，一边死了也要干死叫龙，一边想要拐跑016。特别有一种少女没想好自己到底要干嘛的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Thalassa  
 ##### 776#       发表于 2018-1-27 23:55
@@ -19896,7 +19896,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 话说那家伙还在啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  七七見奈波  
 ##### 777#       发表于 2018-1-27 23:55
@@ -19908,7 +19908,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 前面不就是在讨论他的被榨干到底是不是意味着就真的死了吗
 
 
------
+*****
 
 ####  xwz  
 ##### 778#       发表于 2018-1-27 23:55
@@ -19917,7 +19917,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 其实可以类比一下，016是鸡神，326是伊扎克<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D．Va  
 ##### 779#       发表于 2018-1-27 23:55
@@ -19929,7 +19929,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 特殊样本指的是男主吧
 
 
------
+*****
 
 ####  ティグル  
 ##### 780#       发表于 2018-1-27 23:56
@@ -19942,7 +19942,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 真的，看动画都费电，自己圆润吧
 
 
------
+*****
 
 ####  xunit  
 ##### 781#       发表于 2018-1-27 23:57
@@ -19957,7 +19957,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 那是给第一话的那只小鸟的
 
 
------
+*****
 
 ####  bird-lay  
 ##### 782#       发表于 2018-1-27 23:57
@@ -19969,7 +19969,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 双枪，有两把刷子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 783#       发表于 2018-1-27 23:57
@@ -19980,7 +19980,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 明显ape已经知道男主能上了 为什么不让看似废材的男主去当燃料而是允许让正派pilot去当燃料这一点也蛮怪的
 
 
------
+*****
 
 ####  ティグル  
 ##### 784#       发表于 2018-1-27 23:57
@@ -19991,7 +19991,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 救个屁的火，被博士带着走而已，APE的人又不敢和博士撕破脸，反正驾驶员地位也很低，拿给002消耗就行了
 
 
------
+*****
 
 ####  kmno4  
 ##### 785#       发表于 2018-1-27 23:57
@@ -20009,7 +20009,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 一机启动不了也照去，要送也不是这样送到啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  槑花林  
 ##### 786#       发表于 2018-1-27 23:57
@@ -20021,7 +20021,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 对APE来说，这帮人都死光也要02血液样本不变啊，APE也没求着02出动啊
 
 
------
+*****
 
 ####  hu14  
 ##### 787#       发表于 2018-1-27 23:58
@@ -20030,7 +20030,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 虽然还没看，但是很明显男主还没有意识是自己的主角光环嘛.......这种情况下男主在理性上自然会选择让成功率高的上，不然跟第二话一样宕机害死队友怎么办。
 
 
------
+*****
 
 ####  摩天城  
 ##### 788#       发表于 2018-1-27 23:58
@@ -20042,7 +20042,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 第二集有说怕污染血脉
 
 
------
+*****
 
 ####  ティグル  
 ##### 789#       发表于 2018-1-27 23:58
@@ -20055,7 +20055,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 第二集不是说得明明白白的吗
 
 
------
+*****
 
 ####  Thalassa  
 ##### 790#       发表于 2018-1-27 23:58
@@ -20066,7 +20066,7 @@ staff表力还行啊，不过这集确实没啥太好看的动作戏，等会儿
 edited
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 791#       发表于 2018-1-27 23:58
@@ -20081,7 +20081,7 @@ edited
 但是你们让一个从小就受洗脑教育的人第二话就冲破格纳库是不是有点过分。。。。。。
 
 
------
+*****
 
 ####  d00233773  
 ##### 792#       发表于 2018-1-27 23:58
@@ -20095,7 +20095,7 @@ edited
 016这么做对普通人来说合情合理，不过这毕竟是萝卜片，和苏帕萝卜主角比，龙马，甲儿，凯，卡米那……做这种选择肯定是自己上
 
 
------
+*****
 
 ####  本渡枫  
 ##### 793#       发表于 2018-1-27 23:58
@@ -20108,7 +20108,7 @@ edited
 算了  男主长期失败下 还能坚持不懈 没崩溃  还有奋起的心思  已经难能可贵了  还苛求他去和与残次的自己不同  已被承认的驾驶员去争    懒得搭理动辄扯现实  弃设定与角色处境于不顾的BB    反正角色又不能跳起来反驳  开心就好
 
 
------
+*****
 
 ####  sullen  
 ##### 794#       发表于 2018-1-27 23:59
@@ -20124,7 +20124,7 @@ edited
 3、所以决定。而且通过小动作来看他是强忍着以伙伴优先的，好评。
 
 
------
+*****
 
 ####  lanhao  
 ##### 795#       发表于 2018-1-27 23:59
@@ -20137,7 +20137,7 @@ edited
 我的错 没认真看<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  风怒  
 ##### 796#       发表于 2018-1-27 23:59
@@ -20146,7 +20146,7 @@ edited
 说来也怪，既然第二话说了016是特殊样本有待观察，又不允许和02上机，那ape那帮猴子打算怎么观察啊
 
 
------
+*****
 
 ####  骈儿  
 ##### 797#       发表于 2018-1-27 23:59
@@ -20155,7 +20155,7 @@ edited
 326登机在地下对付史莱姆那段应该是特意隐藏的，在雄蕊不行的情况下鹤望兰很可能已经进入野兽模式了，替大背头默哀几秒<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">我还挺喜欢这种上进的角色的，别真的被吸干了
 
 
------
+*****
 
 ####  sjbssd  
 ##### 798#       发表于 2018-1-27 23:59
@@ -20163,7 +20163,7 @@ edited
 提示: 该帖被管理员或版主屏蔽
 
 
------
+*****
 
 ####  D．Va  
 ##### 799#       发表于 2018-1-27 23:59
@@ -20175,7 +20175,7 @@ edited
 这就是使命和自身意愿的矛盾性了，是很好的戏剧冲突要素
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 800#       发表于 2018-1-28 00:00
@@ -20187,7 +20187,7 @@ edited
 说真的男主可能一点都不亚撒西。。。。。。。。。感觉有还点黑
 
 
------
+*****
 
 ####  艾叶  
 ##### 801#       发表于 2018-1-28 00:00
@@ -20196,7 +20196,7 @@ edited
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有的人真是，跑进专楼来假装认真讨论是想干嘛，不想看就不看嘛，还准备输出自己的扭曲看法吗。
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 802#       发表于 2018-1-28 00:00
@@ -20205,7 +20205,7 @@ edited
 02和016的对比也很有意思啊，02很有反叛精神，016现在就是个乖小孩。
 
 
------
+*****
 
 ####  sullen  
 ##### 803#       发表于 2018-1-28 00:00
@@ -20214,7 +20214,7 @@ edited
 <img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">看完B站熟肉就换手机，电脑会看见屏蔽掉的人说话，仿佛吃了苍蝇般恶心，。
 
 
------
+*****
 
 ####  骈儿  
 ##### 804#       发表于 2018-1-28 00:00
@@ -20223,7 +20223,7 @@ edited
 对了，b站是什么时候有熟肉？
 
 
------
+*****
 
 ####  ティグル  
 ##### 805#       发表于 2018-1-28 00:00
@@ -20234,7 +20234,7 @@ edited
 第三集开头不是在给016扫描吗。。。
 
 
------
+*****
 
 ####  Thalassa  
 ##### 806#       发表于 2018-1-28 00:00
@@ -20246,7 +20246,7 @@ edited
 说016是“上次那个孩子”，002是“特殊样本”
 
 
------
+*****
 
 ####  不灭人形  
 ##### 807#       发表于 2018-1-28 00:00
@@ -20257,7 +20257,7 @@ edited
 就和eva那样，打水天使是一个倒叙吗（）
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 808#       发表于 2018-1-28 00:01
@@ -20271,7 +20271,7 @@ edited
 你觉得这么发展比较好么
 
 
------
+*****
 
 ####  本渡枫  
 ##### 809#       发表于 2018-1-28 00:01
@@ -20280,7 +20280,7 @@ edited
 笑  张嘴就来扯现实的 才是 滚NM远 看NM的动画片啊 
 
 
------
+*****
 
 ####  谏山创  
 ##### 810#       发表于 2018-1-28 00:01
@@ -20291,7 +20291,7 @@ edited
 回去捧你的紫罗兰好不好，一边拼命提紫罗兰bug找理由，一边diss男主，你好棒棒哦。
 
 
------
+*****
 
 ####  D．Va  
 ##### 811#       发表于 2018-1-28 00:01
@@ -20303,7 +20303,7 @@ edited
 你回错人了吧
 
 
------
+*****
 
 ####  sullen  
 ##### 812#       发表于 2018-1-28 00:01
@@ -20325,7 +20325,7 @@ edited
 <img src="https://img.saraba1st.com/forum/201801/28/000133u3fffjk333bycyq1.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 813#       发表于 2018-1-28 00:01
@@ -20341,7 +20341,7 @@ edited
 不是蠢就是坏，别理就是了
 
 
------
+*****
 
 ####  七七見奈波  
 ##### 814#       发表于 2018-1-28 00:01
@@ -20353,7 +20353,7 @@ edited
 打捞上来时是人形
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 815#       发表于 2018-1-28 00:02
@@ -20367,7 +20367,7 @@ edited
 你只是联想到自己的恋爱经历共情过头了
 
 
------
+*****
 
 ####  jacket  
 ##### 816#       发表于 2018-1-28 00:02
@@ -20376,7 +20376,7 @@ edited
 看着好没新意
 
 
------
+*****
 
 ####  艾叶  
 ##### 817#       发表于 2018-1-28 00:02
@@ -20388,7 +20388,7 @@ edited
 其实我觉得一个城市最后选出来就这么几队小孩子，APE这个拿人当消耗品的态度也有点奇怪。再怎么也该算是短时间内补充比较困难的资源啊，培养这些孩子至少也要花个十来年吧
 
 
------
+*****
 
 ####  ティグル  
 ##### 818#       发表于 2018-1-28 00:02
@@ -20397,7 +20397,7 @@ edited
 实际上救走三机后nana马上就要求鹤望兰撤退了，但是326非要装逼，002只能让他装到七孔流血了
 
 
------
+*****
 
 ####  kuonchan  
 ##### 819#       发表于 2018-1-28 00:02
@@ -20406,7 +20406,7 @@ edited
 怎么又暴躁了？来来来，我们和谐讨论，不要急╮(︶﹏︶)╭
 
 
------
+*****
 
 ####  本渡枫  
 ##### 820#       发表于 2018-1-28 00:03
@@ -20415,7 +20415,7 @@ edited
 男主 傲天 编剧开挂 就你看的出？  你个现实成功人士 没法去理解认同   目前还是败犬的男主   这有什么好跳的 那是你自己问题 这就是326与男主的循环  来个比你成功的 你就是男主  别人就可以喷你了   幼不幼稚 
 
 
------
+*****
 
 ####  恶魔娘阿洛  
 ##### 821#       发表于 2018-1-28 00:03
@@ -20424,7 +20424,7 @@ edited
 sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么LOW。。。。。。别人也没法和你有共感啊，车轱辘话说一百遍也成不了真理啊
 
 
------
+*****
 
 ####  谏山创  
 ##### 822#       发表于 2018-1-28 00:03
@@ -20437,7 +20437,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 她是女侠，别理。
 
 
------
+*****
 
 ####  OrianaThomson  
 ##### 823#       发表于 2018-1-28 00:03
@@ -20446,7 +20446,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 326是真的惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 824#       发表于 2018-1-28 00:04
@@ -20457,7 +20457,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 是的，对待孩子们的态度和制造他们的成本不对称，我前面就说了，这是个大爆点
 
 
------
+*****
 
 ####  kuonchan  
 ##### 825#       发表于 2018-1-28 00:04
@@ -20466,7 +20466,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 上面老哥不要这么暴躁(´-ι_-｀)
 
 
------
+*****
 
 ####  摩天城  
 ##### 826#       发表于 2018-1-28 00:04
@@ -20478,7 +20478,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 那之前02弄死的那么多搭档呢
 
 
------
+*****
 
 ####  D．Va  
 ##### 827#       发表于 2018-1-28 00:04
@@ -20493,7 +20493,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 <img src="http://ww1.sinaimg.cn/large/8252a54ely1fnvm1o5zadj21kw0w0kdt.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Kreis  
 ##### 828#       发表于 2018-1-28 00:04
@@ -20502,7 +20502,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 泥谭钓鱼也得找个好借口，这种情况不该喷16圣母吗。
 
 
------
+*****
 
 ####  521op@163.com  
 ##### 829#       发表于 2018-1-28 00:05
@@ -20514,7 +20514,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">和我一样，看到某个sxb了
 
 
------
+*****
 
 ####  lanhao  
 ##### 830#       发表于 2018-1-28 00:05
@@ -20525,7 +20525,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 015....
 
 
------
+*****
 
 ####  Thalassa  
 ##### 831#       发表于 2018-1-28 00:05
@@ -20537,7 +20537,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 这次可能没有变兽，因为326还没被吸干；这样的话把第一话解释为是因为彻底没电了才变兽形的也行的通？
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 832#       发表于 2018-1-28 00:06
@@ -20546,7 +20546,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 你们说的哪个，我都没弄清楚情况，给个ID？
 
 
------
+*****
 
 ####  403权限不够  
 ##### 833#       发表于 2018-1-28 00:06
@@ -20555,7 +20555,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 02和326开很正常啊，你们不让我和达令开，没问题啊，来用人命填呗，看谁耗得过谁，老娘就当被狗咬了行不行？
 
 
------
+*****
 
 ####  D．Va  
 ##### 834#       发表于 2018-1-28 00:06
@@ -20567,7 +20567,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 不会的，如果完全榨干用不了凸型因子那么打完后也应该是暴走兽型
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 835#       发表于 2018-1-28 00:06
@@ -20577,7 +20577,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 <img src="https://ssherder.com/static/img/characters/art/588x882/13207.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  本渡枫  
 ##### 836#       发表于 2018-1-28 00:06
@@ -20586,7 +20586,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
  哈哈哈  一眼 紫罗兰都没看  撒泼打滚黑男主的  傻逼是 吹紫罗兰的?  谢提醒  那就是纯脑残 根本没有搭理的必要了  让他继续跳好了  现实成功人士来教育指导  你妈下面宽才能出来这么大的脸  不送  
 
 
------
+*****
 
 ####  Thalassa  
 ##### 837#       发表于 2018-1-28 00:06
@@ -20598,7 +20598,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 城市都是量产的，孩子们量产起来应该也难度不大吧？
 
 
------
+*****
 
 ####  骈儿  
 ##### 838#       发表于 2018-1-28 00:07
@@ -20612,7 +20612,7 @@ sjbssd这货怎么KY到这种程度。。。。。。。。讲道理黑的这么
 我记得真嗣上机后不是正向时间顺序<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 839#       发表于 2018-1-28 00:07
@@ -20640,7 +20640,7 @@ QQ20180127-080418.png
 <img src="https://img.saraba1st.com/forum/201801/28/000608a4wwwq1vuwzw591m.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 840#       发表于 2018-1-28 00:07
@@ -20652,7 +20652,7 @@ QQ20180127-080418.png
 毕竟谐音是英雄嘛
 
 
------
+*****
 
 ####  风怒  
 ##### 841#       发表于 2018-1-28 00:07
@@ -20664,7 +20664,7 @@ QQ20180127-080418.png
 原来是这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，等b站熟肉出来再看下7和8讨论的是啥
 
 
------
+*****
 
 ####  bird-lay  
 ##### 842#       发表于 2018-1-28 00:07
@@ -20677,7 +20677,7 @@ QQ20180127-080418.png
 明明之前还有上机训练和模拟战
 
 
------
+*****
 
 ####  艾叶  
 ##### 843#       发表于 2018-1-28 00:07
@@ -20689,7 +20689,7 @@ QQ20180127-080418.png
 我觉得可能是APE多半有克隆人速成的手段，只是也许有什么限制。OP画面那里后排三个，看着就真是克隆人RBQ啊
 
 
------
+*****
 
 ####  whosmex  
 ##### 844#       发表于 2018-1-28 00:07
@@ -20707,7 +20707,7 @@ QQ20180127-080418.png
 要开好机器人，生物一定要学好[逃
 
 
------
+*****
 
 ####  d00233773  
 ##### 845#       发表于 2018-1-28 00:08
@@ -20720,7 +20720,7 @@ QQ20180127-080418.png
 陌生的天花板，朋友<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 846#       发表于 2018-1-28 00:08
@@ -20732,7 +20732,7 @@ QQ20180127-080418.png
 难度不大为嘛才养了10来个。。
 
 
------
+*****
 
 ####  D．Va  
 ##### 847#       发表于 2018-1-28 00:08
@@ -20744,7 +20744,7 @@ QQ20180127-080418.png
 ？
 
 
------
+*****
 
 ####  ティグル  
 ##### 848#       发表于 2018-1-28 00:09
@@ -20757,7 +20757,7 @@ QQ20180127-080418.png
 我还是觉得真的会是某个脑洞的发展，其实APE是人类的敌人
 
 
------
+*****
 
 ####  ティグル  
 ##### 849#       发表于 2018-1-28 00:10
@@ -20768,7 +20768,7 @@ QQ20180127-080418.png
 其实APE对待叫龙的态度也很奇怪，总之这个设定还是埋得很深，需要继续看下去
 
 
------
+*****
 
 ####  艾叶  
 ##### 850#       发表于 2018-1-28 00:10
@@ -20780,7 +20780,7 @@ QQ20180127-080418.png
 就是把雄蕊当成消耗品的状况有点奇怪嘛，按照目前来看，就算02是特殊样本，这么消耗品一般使用雄蕊感觉就是APE有非常多的雄蕊备用啊，这和主角群这边透露的信息是冲突的。
 
 
------
+*****
 
 ####  d00233773  
 ##### 851#       发表于 2018-1-28 00:10
@@ -20797,7 +20797,7 @@ QQ20180127-080418.png
 比如这集之后390和666会成长一大截
 
 
------
+*****
 
 ####  ティグル  
 ##### 852#       发表于 2018-1-28 00:10
@@ -20806,7 +20806,7 @@ QQ20180127-080418.png
 271又压成了一坨屎。。。
 
 
------
+*****
 
 ####  塔奇克马  
 ##### 853#       发表于 2018-1-28 00:10
@@ -20820,7 +20820,7 @@ QQ20180127-080418.png
 不知道千挑万选淘汰掉的小孩子会怎么样....
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 854#       发表于 2018-1-28 00:11
@@ -20829,7 +20829,7 @@ QQ20180127-080418.png
 7跟8说的是    从来没看过跟02一起受到创伤这么小的，难道是特殊检体？
 
 
------
+*****
 
 ####  本渡枫  
 ##### 855#       发表于 2018-1-28 00:11
@@ -20843,7 +20843,7 @@ QQ20180127-080418.png
 真正能上场的战士  肯定首先 要训练 做到 无畏  这些小屁孩 听到  对手是 体型小的怪 并不是第一集那种大家伙的时候 松了口气  从这一点来说 根本就是上战场送死的新兵蛋子  根本不是合格的战士 犯那么多致命的错误也不意外了
 
 
------
+*****
 
 ####  bird-lay  
 ##### 856#       发表于 2018-1-28 00:11
@@ -20857,7 +20857,7 @@ QQ20180127-080418.png
 而且第一集说的是入队仪式，说明是有别的队伍的，只不过还没出场
 
 
------
+*****
 
 ####  liliaceae  
 ##### 857#       发表于 2018-1-28 00:11
@@ -20869,7 +20869,7 @@ QQ20180127-080418.png
 前面不是在讨论326被榨汁么。看那病怏怏的状态，被榨三次如果活下来那真是生不如死了。
 
 
------
+*****
 
 ####  lanhao  
 ##### 858#       发表于 2018-1-28 00:12
@@ -20880,7 +20880,7 @@ QQ20180127-080418.png
 特殊样本是女主吧
 
 
------
+*****
 
 ####  Temori  
 ##### 859#       发表于 2018-1-28 00:12
@@ -20906,7 +20906,7 @@ QQ20180127-080418.png
 另外感觉16这话要被黑惨了，想想其实做得还行吧。只能说还是太乖。
 
 
------
+*****
 
 ####  ティグル  
 ##### 860#       发表于 2018-1-28 00:12
@@ -20919,7 +20919,7 @@ QQ20180127-080418.png
 第三话看到孩子们幼时的样子很心痛
 
 
------
+*****
 
 ####  Kreis  
 ##### 861#       发表于 2018-1-28 00:12
@@ -20928,7 +20928,7 @@ QQ20180127-080418.png
 嗯...遇上史莱姆02有提过之前也有不少（？）全灭的都市。孩子们的成本可能不算很高。
 
 
------
+*****
 
 ####  bird-lay  
 ##### 862#       发表于 2018-1-28 00:12
@@ -20940,7 +20940,7 @@ QQ20180127-080418.png
 淘汰给02之类的特殊个体当电池？
 
 
------
+*****
 
 ####  D．Va  
 ##### 863#       发表于 2018-1-28 00:13
@@ -20954,7 +20954,7 @@ QQ20180127-080418.png
 看男主驾驶训练机应该还是有相关训练的，对叫龙型模拟战大概是真没有
 
 
------
+*****
 
 ####  D．Va  
 ##### 864#       发表于 2018-1-28 00:13
@@ -20966,7 +20966,7 @@ QQ20180127-080418.png
 字幕里不应该理解成男主么
 
 
------
+*****
 
 ####  ティグル  
 ##### 865#       发表于 2018-1-28 00:15
@@ -20977,7 +20977,7 @@ QQ20180127-080418.png
 出击前的情报未表明敌方数量，而且还有两只母体在场，就这仨菜鸡能逃这么远已经不错了
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 866#       发表于 2018-1-28 00:15
@@ -20989,7 +20989,7 @@ QQ20180127-080418.png
 大概就没……了？你看703被带走上车（？）时候那个神情
 
 
------
+*****
 
 ####  Thalassa  
 ##### 867#       发表于 2018-1-28 00:15
@@ -21001,7 +21001,7 @@ QQ20180127-080418.png
 嗯...没问题，我编辑掉不要误导人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  waox  
 ##### 868#       发表于 2018-1-28 00:16
@@ -21013,7 +21013,7 @@ QQ20180127-080418.png
 这就很科学了
 
 
------
+*****
 
 ####  lanhao  
 ##### 869#       发表于 2018-1-28 00:16
@@ -21025,7 +21025,7 @@ QQ20180127-080418.png
 字幕里不应该理解成男主么</blockquote>
 
 
------
+*****
 
 ####  摩天城  
 ##### 870#       发表于 2018-1-28 00:16
@@ -21037,7 +21037,7 @@ QQ20180127-080418.png
 是有点乱，但其实主角们掌握的情报吧，未必是多真实的，等我仔细思考一下怎么解释
 
 
------
+*****
 
 ####  interzhang  
 ##### 871#       发表于 2018-1-28 00:17
@@ -21051,7 +21051,7 @@ QQ20180127-080418.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">326这算是被02强行调低了能力值了吧，也许在身体上以后和196就能匹配起来了（虽然这个人核心问题在心理）
 
 
------
+*****
 
 ####  艾叶  
 ##### 872#       发表于 2018-1-28 00:18
@@ -21060,7 +21060,7 @@ QQ20180127-080418.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">其实这话鹤望兰从上面下坠的时候蛮帅气的，问题是后面用枪戳爆叫龙的时候个人感觉非常没有机械感，熟料玩具的感觉……
 
 
------
+*****
 
 ####  D．Va  
 ##### 873#       发表于 2018-1-28 00:18
@@ -21072,7 +21072,7 @@ QQ20180127-080418.png
 因为02有叫龙血统啊，男主这种特殊样本自然不会轻易允许和02接触，而其他孩子只是普通寄驶员就没这方面的担心了
 
 
------
+*****
 
 ####  本渡枫  
 ##### 874#       发表于 2018-1-28 00:18
@@ -21081,7 +21081,7 @@ QQ20180127-080418.png
 这集里各种对表情的刻画    看着已经很爽了  比战斗打精彩了都爽  <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 875#       发表于 2018-1-28 00:18
@@ -21092,7 +21092,7 @@ QQ20180127-080418.png
 本来就是爆浆虫的感觉，和莫霍级不一样
 
 
------
+*****
 
 ####  wyjbnb  
 ##### 876#       发表于 2018-1-28 00:19
@@ -21101,7 +21101,7 @@ QQ20180127-080418.png
 跟02搭档有个代价是强制长大吧？好像就16没这个问题
 
 
------
+*****
 
 ####  风怒  
 ##### 877#       发表于 2018-1-28 00:19
@@ -21114,7 +21114,7 @@ QQ20180127-080418.png
 如果要回收的是016，搞不好是处理的意思吧，就和其他离开的驾驶员一样？
 
 
------
+*****
 
 ####  lanhao  
 ##### 878#       发表于 2018-1-28 00:20
@@ -21125,7 +21125,7 @@ QQ20180127-080418.png
 嗯 打字时候理解了 我自己编辑掉了 不要误导到人了 谢谢解答
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 879#       发表于 2018-1-28 00:20
@@ -21138,7 +21138,7 @@ QQ20180127-080418.png
 细细回想一下，感觉是小叫龙弹来弹去的音效太搞笑了？
 
 
------
+*****
 
 ####  ティグル  
 ##### 880#       发表于 2018-1-28 00:20
@@ -21150,7 +21150,7 @@ QQ20180127-080418.png
 回收002，002是被博士擅自带走的
 
 
------
+*****
 
 ####  D．Va  
 ##### 881#       发表于 2018-1-28 00:21
@@ -21164,7 +21164,7 @@ QQ20180127-080418.png
 正式的stamen（雄蕊）
 
 
------
+*****
 
 ####  骈儿  
 ##### 882#       发表于 2018-1-28 00:21
@@ -21175,7 +21175,7 @@ QQ20180127-080418.png
 想起来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我这记性
 
 
------
+*****
 
 ####  kiralzb  
 ##### 883#       发表于 2018-1-28 00:21
@@ -21184,7 +21184,7 @@ QQ20180127-080418.png
 看完了，今晚，我将加入战场<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 884#       发表于 2018-1-28 00:21
@@ -21196,7 +21196,7 @@ QQ20180127-080418.png
 有，只是代价很小，第三集开头有说
 
 
------
+*****
 
 ####  521op@163.com  
 ##### 885#       发表于 2018-1-28 00:22
@@ -21208,7 +21208,7 @@ QQ20180127-080418.png
 你只是没见识过那sb的行径了。等你看多了这人的表演，明白了舍生取义的道理，就会和我们一起喷他了
 
 
------
+*****
 
 ####  艾叶  
 ##### 886#       发表于 2018-1-28 00:22
@@ -21220,7 +21220,7 @@ QQ20180127-080418.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">主要是打戏看着提上来一口气就没了，最后02开始认真模式的场景还一笔带过了。不过也可以理解，正牌达令都没上机呢，不可能弄太爆炸的打戏。
 
 
------
+*****
 
 ####  kmno4  
 ##### 887#       发表于 2018-1-28 00:22
@@ -21243,7 +21243,7 @@ QQ20180127-080418.png
 但驾驶员淘汰率看编号很高啊，这都炮灰，手上的牌很多麽？？
 
 
------
+*****
 
 ####  kiralzb  
 ##### 888#       发表于 2018-1-28 00:23
@@ -21252,7 +21252,7 @@ QQ20180127-080418.png
 那个满地打滚的好像已经滚走了吧，听他放屁真是影响心情
 
 
------
+*****
 
 ####  Thalassa  
 ##### 889#       发表于 2018-1-28 00:24
@@ -21268,7 +21268,7 @@ QQ20180127-080418.png
 而002是APE直属部队，开始也提到了是“去十三都市了，又是她的心血来潮吗？博士也太宠她了”，说回收也只能是002这个本该在APE身边的
 
 
------
+*****
 
 ####  kiralzb  
 ##### 890#       发表于 2018-1-28 00:25
@@ -21283,7 +21283,7 @@ QQ20180127-080418.png
 本来是很简单的任务，就是给他们练手的，鬼知道熊孩子失误后对面喊了一村叔伯兄弟过来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 891#       发表于 2018-1-28 00:25
@@ -21292,7 +21292,7 @@ QQ20180127-080418.png
 326说了，那我直接来当你的搭档好了，我们可能会成为最棒的搭档。然后02就毛了。您配吗，笑死了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 892#       发表于 2018-1-28 00:26
@@ -21304,7 +21304,7 @@ QQ20180127-080418.png
 所以说说的到底是哪个，我不想来回翻，麻烦给个ID
 
 
------
+*****
 
 ####  ティグル  
 ##### 893#       发表于 2018-1-28 00:26
@@ -21317,7 +21317,7 @@ QQ20180127-080418.png
 nana和博士谈话里说了这批是新型机，实验味很重，可能是有这个原因在里面
 
 
------
+*****
 
 ####  521op@163.com  
 ##### 894#       发表于 2018-1-28 00:26
@@ -21329,7 +21329,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 sjb开头的那个
 
 
------
+*****
 
 ####  摩天城  
 ##### 895#       发表于 2018-1-28 00:26
@@ -21341,7 +21341,7 @@ sjb开头的那个
 别管了，还是想想剧情吧
 
 
------
+*****
 
 ####  Temori  
 ##### 896#       发表于 2018-1-28 00:27
@@ -21353,7 +21353,7 @@ sjb开头的那个
 原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">下次估计就没问题了
 
 
------
+*****
 
 ####  华发夜眼[CN]  
 ##### 897#       发表于 2018-1-28 00:27
@@ -21362,7 +21362,7 @@ sjb开头的那个
 这集感觉有点不行啊。打小怪感觉太儿戏了点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  vongola  
 ##### 898#       发表于 2018-1-28 00:28
@@ -21371,7 +21371,7 @@ sjb开头的那个
 02和之前想的不太一样，对性也不是多么熟悉看来，015简直稳得不行
 
 
------
+*****
 
 ####  ティグル  
 ##### 899#       发表于 2018-1-28 00:28
@@ -21384,7 +21384,7 @@ sjb开头的那个
 结果是过渡回，人物作画倒是爆炸了，看得很舒服
 
 
------
+*****
 
 ####  D．Va  
 ##### 900#       发表于 2018-1-28 00:28
@@ -21399,7 +21399,7 @@ sjb开头的那个
 <img src="http://ww2.sinaimg.cn/large/8252a54ely1fnvmrbpom8j21400miacc.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  helmwige  
 ##### 901#       发表于 2018-1-28 00:29
@@ -21408,7 +21408,7 @@ sjb开头的那个
 绝了，台词NTR味爆表，staff留了个底线没把002被骑的画面画出来吧，但是这样反而有种打码的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 902#       发表于 2018-1-28 00:29
@@ -21417,7 +21417,7 @@ sjb开头的那个
 男主心里还是想02拒绝的，但是为了大局不得不这么做
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 903#       发表于 2018-1-28 00:29
@@ -21426,7 +21426,7 @@ sjb开头的那个
 回收说的是鹤望兰跟雄蕊，77已经知道02要干什么了
 
 
------
+*****
 
 ####  frightmia  
 ##### 904#       发表于 2018-1-28 00:30
@@ -21435,7 +21435,7 @@ sjb开头的那个
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男主把02让出去连句好听的话都不跟02说，如果驾驶真是性暗示的话就相当于把自己女人给别人操。
 
 
------
+*****
 
 ####  my707776310  
 ##### 905#       发表于 2018-1-28 00:30
@@ -21449,7 +21449,7 @@ sjb开头的那个
 dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015，男主是黄毛发型都和056有点像，作者还在推上画了张女主和015<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whn1103  
 ##### 906#       发表于 2018-1-28 00:31
@@ -21465,7 +21465,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  ティグル  
 ##### 907#       发表于 2018-1-28 00:32
@@ -21480,7 +21480,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 这不是精米的话我觉得可能是智力上有一定缺陷
 
 
------
+*****
 
 ####  julia黑  
 ##### 908#       发表于 2018-1-28 00:32
@@ -21489,7 +21489,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 等了一星期就喂了点药，打戏基本不存在，差评！
 
 
------
+*****
 
 ####  julia黑  
 ##### 909#       发表于 2018-1-28 00:33
@@ -21501,7 +21501,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 我至今还是觉得大背头是傲娇的扭曲粉。
 
 
------
+*****
 
 ####  m99999  
 ##### 910#       发表于 2018-1-28 00:35
@@ -21510,7 +21510,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 staff应该是表现男主在忍，02不是立马答应的，是盯着男主紧握的右手后才答应。
 
 
------
+*****
 
 ####  whn1103  
 ##### 911#       发表于 2018-1-28 00:35
@@ -21523,7 +21523,7 @@ staff应该是表现男主在忍，02不是立马答应的，是盯着男主紧�
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 912#       发表于 2018-1-28 00:35
@@ -21532,7 +21532,7 @@ staff应该是表现男主在忍，02不是立马答应的，是盯着男主紧�
 男主最后那个独白，只对自己伸出的手跟当时她是这么说的，能带我逃离这个地方。看来是有点觉悟了，下次再让就没理由了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cooljoe  
 ##### 913#       发表于 2018-1-28 00:35
@@ -21545,7 +21545,7 @@ staff应该是表现男主在忍，02不是立马答应的，是盯着男主紧�
 这微妙的NTR苦主的赶脚...
 
 
------
+*****
 
 ####  无爱二次元  
 ##### 914#       发表于 2018-1-28 00:35
@@ -21556,7 +21556,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 好像第一节就上了女主吧？
 
 
------
+*****
 
 ####  天光逸  
 ##### 915#       发表于 2018-1-28 00:36
@@ -21569,7 +21569,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 顺带我比起莓更心疼五郎啊，这故意搞得那么苦主的感觉吧……明明不是恋爱剧情却看得胃疼。还真是药了
 
 
------
+*****
 
 ####  偶像程序员POI  
 ##### 916#       发表于 2018-1-28 00:36
@@ -21578,7 +21578,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 刚刚看完。NTR倒没什么感觉，我能理解016在这种环境下肯定唯命是从。本心也是想拯救同伴。怂什么的完全是上帝视角。这集还是在展开设定或者说是侧面描述02和男主的特殊性。至于没什么战斗只能说这种秒杀小怪不愿意着重画战斗
 
 
------
+*****
 
 ####  kiralzb  
 ##### 917#       发表于 2018-1-28 00:36
@@ -21597,7 +21597,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 鹤望兰S眼神超好评，背头艹02的画面本子肯定有，背头的表情台词都不用改可以直接用了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wddely  
 ##### 918#       发表于 2018-1-28 00:37
@@ -21607,7 +21607,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 还有02darling不离嘴 甩了016就好玩了
 
 
------
+*****
 
 ####  最后的法芙娜  
 ##### 919#       发表于 2018-1-28 00:38
@@ -21616,7 +21616,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 没想到326小哥作死那么快，一开始我还以为你是那种寡言，但心里照顾搭档的人，连666熊孩子都比你好的多了
 
 
------
+*****
 
 ####  my707776310  
 ##### 920#       发表于 2018-1-28 00:38
@@ -21627,7 +21627,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 下一话或许因为人手不够让男主和02上？要不让五郎也被榨一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  昆卡  
 ##### 921#       发表于 2018-1-28 00:38
@@ -21639,7 +21639,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 主角组里不会有坏人的  他也只是恨铁不成钢吧
 
 
------
+*****
 
 ####  awertg  
 ##### 922#       发表于 2018-1-28 00:38
@@ -21658,7 +21658,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 这里016他们应该进不来吧？
 
 
------
+*****
 
 ####  ティグル  
 ##### 923#       发表于 2018-1-28 00:38
@@ -21670,7 +21670,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 从002的态度来看，她已经认定自己跟016绑定了，不太可能出现你说的情况
 
 
------
+*****
 
 ####  my707776310  
 ##### 924#       发表于 2018-1-28 00:38
@@ -21682,7 +21682,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 对，是那本
 
 
------
+*****
 
 ####  曇天_  
 ##### 925#       发表于 2018-1-28 00:38
@@ -21693,7 +21693,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 反观666就可爱了很多。
 
 
------
+*****
 
 ####  本渡枫  
 ##### 926#       发表于 2018-1-28 00:39
@@ -21702,7 +21702,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 326虽然嚣张 看不起人  但是他讲的话 用的理由可是没被承认驾驶资格的男主当下所无法反驳的  02问男主  我被别人上 你真的乐意吗 明明特写都给到男主攥拳头了  也就吹京紫的瞎子还在那边狂吠了   
 
 
------
+*****
 
 ####  ティグル  
 ##### 927#       发表于 2018-1-28 00:39
@@ -21713,7 +21713,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 电梯，只能这么看一眼
 
 
------
+*****
 
 ####  偶像程序员POI  
 ##### 928#       发表于 2018-1-28 00:39
@@ -21722,7 +21722,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 还有就是背头那几个肏02的恶趣味镜头说不是故意的我不信
 
 
------
+*****
 
 ####  zhaoyanggolden  
 ##### 929#       发表于 2018-1-28 00:39
@@ -21731,7 +21731,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 APE这组织真的太随意了。8个人，配完对ile就不管了。难道不应该为了应对紧急情况一早进行各种配对测试码？这一集也是，连城里的叫龙数量都搞不清楚，到底在干什么……
 
 
------
+*****
 
 ####  kiralzb  
 ##### 930#       发表于 2018-1-28 00:40
@@ -21743,7 +21743,7 @@ APE这组织真的太随意了。8个人，配完对ile就不管了。难道不�
 电梯会经过而已吧，出不去的
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 931#       发表于 2018-1-28 00:40
@@ -21759,7 +21759,7 @@ APE这组织真的太随意了。8个人，配完对ile就不管了。难道不�
 或者这个球形的小叫龙，本身就有一种异质感。。。我反正有一些不适
 
 
------
+*****
 
 ####  cooljoe  
 ##### 932#       发表于 2018-1-28 00:40
@@ -21772,7 +21772,7 @@ APE这组织真的太随意了。8个人，配完对ile就不管了。难道不�
 第三集直接打回原形，“这女人是谁都可以的，只不过你不会被吸干而已”
 
 
------
+*****
 
 ####  最后的法芙娜  
 ##### 933#       发表于 2018-1-28 00:41
@@ -21781,7 +21781,7 @@ APE这组织真的太随意了。8个人，配完对ile就不管了。难道不�
 不会被女人吸干也是能力啊
 
 
------
+*****
 
 ####  kerfars  
 ##### 934#       发表于 2018-1-28 00:41
@@ -21790,7 +21790,7 @@ APE这组织真的太随意了。8个人，配完对ile就不管了。难道不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实我觉得这集男主再上一次机完全没问题的，让给326观感的确有点糟糕了
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 935#       发表于 2018-1-28 00:41
@@ -21801,7 +21801,7 @@ APE这组织真的太随意了。8个人，配完对ile就不管了。难道不�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 936#       发表于 2018-1-28 00:41
@@ -21837,7 +21837,7 @@ emmm，再仔细一想有点微妙
 查看全部评分
 
 
------
+*****
 
 ####  天风绯炎  
 ##### 937#       发表于 2018-1-28 00:41
@@ -21854,7 +21854,7 @@ emmm，再仔细一想有点微妙
 有催熟的可能，那是不是可以缩减克隆孩子（？）的培育周期，人格直接复制或者灌注
 
 
------
+*****
 
 ####  kiralzb  
 ##### 938#       发表于 2018-1-28 00:43
@@ -21870,7 +21870,7 @@ emmm，再仔细一想有点微妙
 16哪来的自己有多nb了，拼死抓住最后一根稻草而已，还能坚持开训练机已经是主角光环了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 939#       发表于 2018-1-28 00:44
@@ -21879,7 +21879,7 @@ emmm，再仔细一想有点微妙
 这叫龙怎么长得这么像毒爆虫
 
 
------
+*****
 
 ####  艾叶  
 ##### 940#       发表于 2018-1-28 00:44
@@ -21893,7 +21893,7 @@ emmm，再仔细一想有点微妙
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 941#       发表于 2018-1-28 00:44
@@ -21906,7 +21906,7 @@ emmm，再仔细一想有点微妙
 还好没给正脸，不然那个表情。。。
 
 
------
+*****
 
 ####  马马虎虎  
 ##### 942#       发表于 2018-1-28 00:45
@@ -31483,7 +31483,7 @@ QQ图片20180128020030.png
 
 
 =======
------
+*****
 
 ####  kiralzb  
 ##### 943#       发表于 2018-1-28 00:45
@@ -31495,7 +31495,7 @@ QQ图片20180128020030.png
 一直精英没法写成长啊，这么快就出事肯定马上就是15和56的回合了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  梦诗歌雪  
 ##### 944#       发表于 2018-1-28 00:45
@@ -31504,7 +31504,7 @@ QQ图片20180128020030.png
 反正02榨干过的男人多了，也不差这一个。这次就是当着男主面再榨干一个给他点刺激吧，下次再战怎么也没有理由拒绝了。另外前面楼有说指挥官让新兵蛋子去送死的，但这把一开始的情报就只是个杂鱼怪啊，本来就是新手教学任务，所以才派新兵蛋子去练手，后面发现有大量小怪和母体那都是计划外的，只能说指挥部情报工作做得太差，安排上是没有问题的
 
 
------
+*****
 
 ####  本渡枫  
 ##### 945#       发表于 2018-1-28 00:45
@@ -31517,7 +31517,7 @@ QQ图片20180128020030.png
 326对男主的态度 就是一模一样的东西  践踏发泄也是一种自我保护 
 
 
------
+*****
 
 ####  awertg  
 ##### 946#       发表于 2018-1-28 00:46
@@ -31526,7 +31526,7 @@ QQ图片20180128020030.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">真真儿是奔着出本子去的，台词都不用改了
 
 
------
+*****
 
 ####  Kreis  
 ##### 947#       发表于 2018-1-28 00:47
@@ -31535,7 +31535,7 @@ QQ图片20180128020030.png
 会催熟？那是不是能看到长大的15？wtmsb
 
 
------
+*****
 
 ####  helmwige  
 ##### 948#       发表于 2018-1-28 00:47
@@ -31547,7 +31547,7 @@ QQ图片20180128020030.png
 分明都性明示了，002：我跟其他男人也没问题？，328疯狂表示换人爽到，自己能力没问题，公频狂嚎炫耀相性<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 949#       发表于 2018-1-28 00:47
@@ -31558,7 +31558,7 @@ QQ图片20180128020030.png
 配上压抑的剧情就更压抑了，不知道这股情绪什么时候才能得到释放
 
 
------
+*****
 
 ####  cooljoe  
 ##### 950#       发表于 2018-1-28 00:47
@@ -31581,7 +31581,7 @@ QQ图片20180128020030.png
 跟16在一起的时候，甚至还有点小温柔---这是不是性格崩坏了，到底是什么性格
 
 
------
+*****
 
 ####  马马虎虎  
 ##### 951#       发表于 2018-1-28 00:47
@@ -31596,7 +31596,7 @@ QQ图片20180128020030.png
 这动画屌就屌在你作为上帝视觉观众各种脑补加料套路，但是如果稍微换位思考站在背景设定下就能得到男主的言行其实非常正常，反而按照观众的套路摄像展开会显得不自然。
 
 
------
+*****
 
 ####  怀沙汨罗  
 ##### 952#       发表于 2018-1-28 00:48
@@ -31610,7 +31610,7 @@ QQ图片20180128020030.png
 —— 来自 HUAWEI BLN-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.1.0
 
 
------
+*****
 
 ####  wddely  
 ##### 953#       发表于 2018-1-28 00:48
@@ -31621,7 +31621,7 @@ QQ图片20180128020030.png
 我想看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 954#       发表于 2018-1-28 00:48
@@ -31634,7 +31634,7 @@ QQ图片20180128020030.png
 队！长！失！格！吃着碗里的想着锅里的<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  junoxdd  
 ##### 955#       发表于 2018-1-28 00:49
@@ -31656,7 +31656,7 @@ QQ图片20180128020030.png
 <img src="https://img.saraba1st.com/forum/201801/28/004727s0o3o003eac7t0nv.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 956#       发表于 2018-1-28 00:49
@@ -31665,7 +31665,7 @@ QQ图片20180128020030.png
 看到有人说326像那花里的考哥
 
 
------
+*****
 
 ####  UMINEKO9  
 ##### 957#       发表于 2018-1-28 00:49
@@ -31678,7 +31678,7 @@ QQ图片20180128020030.png
 小队合作那段不是机器人换成真人也没违和感，这几个孩子是真的没什么实战经验啊
 
 
------
+*****
 
 ####  艾叶  
 ##### 958#       发表于 2018-1-28 00:49
@@ -31690,7 +31690,7 @@ QQ图片20180128020030.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不过下一话应该是02和男主的上机回了
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 959#       发表于 2018-1-28 00:50
@@ -31706,7 +31706,7 @@ QQ图片20180128020030.png
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  kmno4  
 ##### 960#       发表于 2018-1-28 00:51
@@ -31718,7 +31718,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 有描写机体损伤麽？我好像还没看到，如果是实验机体，驾驶员消耗品，拿到实验数据就行，那样也说的过去。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 961#       发表于 2018-1-28 00:52
@@ -31734,7 +31734,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 只属于你的温柔啊，完全戳爆死宅G点
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 962#       发表于 2018-1-28 00:52
@@ -31743,7 +31743,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 下一话男主应该和02上机了吧。脑洞下015的表情，瞬间对下一话充满期待<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 963#       发表于 2018-1-28 00:52
@@ -31754,7 +31754,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 机体和女驾驶员是绑定的。。。
 
 
------
+*****
 
 ####  Kreis  
 ##### 964#       发表于 2018-1-28 00:52
@@ -31769,7 +31769,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 玩死326是真的有点生气了吧，02知道要H一点，也应该知道驾驶员组队有什么特殊含义。
 
 
------
+*****
 
 ####  ティグル  
 ##### 965#       发表于 2018-1-28 00:53
@@ -31780,7 +31780,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 在机库那015想问056kiss到底是不是特殊的行为之类的，结果憋了半天还是没说出口
 
 
------
+*****
 
 ####  最后的法芙娜  
 ##### 966#       发表于 2018-1-28 00:53
@@ -31789,7 +31789,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 这伤亡程度让我想到了便当娜，前面战斗也是一次死一个
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 967#       发表于 2018-1-28 00:54
@@ -31801,7 +31801,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 真生气了，您不配.jpg
 
 
------
+*****
 
 ####  ティグル  
 ##### 968#       发表于 2018-1-28 00:54
@@ -31815,7 +31815,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">好青春哦
 
 
------
+*****
 
 ####  awertg  
 ##### 969#       发表于 2018-1-28 00:54
@@ -31827,7 +31827,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你们是不是想做056的麻将脸了？丧失啊
 
 
------
+*****
 
 ####  my707776310  
 ##### 970#       发表于 2018-1-28 00:54
@@ -31836,7 +31836,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 哈哈哈刚看我一朋友说02感觉就像钢铁侠2里的托尼一样...之前的男驾驶员就是钯元素，男主是新元素<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  绝漠mk2  
 ##### 971#       发表于 2018-1-28 00:54
@@ -31848,7 +31848,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 难怪这326看着像甲洋...
 
 
------
+*****
 
 ####  BloodWingS  
 ##### 972#       发表于 2018-1-28 00:55
@@ -31857,7 +31857,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 我感觉接下来还要闷个两三集，胖子组现在还是酱油得分配一点戏份，眼镜娘和326的后续也要交代一下，而且这集大家一看326被吸成了这样对02的负面情感怕不是一星半点，高潮恐怕至少要到第六集以后
 
 
------
+*****
 
 ####  天色影子  
 ##### 973#       发表于 2018-1-28 00:55
@@ -31866,7 +31866,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 打戏不足，药力倒是强劲。
 
 
------
+*****
 
 ####  梦诗歌雪  
 ##### 974#       发表于 2018-1-28 00:55
@@ -31881,7 +31881,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 对别人高冷，对darling温柔，对没本事还以为能上自己的瘪三当然是充满了恶意了。很复杂吗？难道一定要套一个模板进去才行？
 
 
------
+*****
 
 ####  we89623  
 ##### 975#       发表于 2018-1-28 00:55
@@ -31893,7 +31893,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 这集背头组同步率上不去无法启动机器的确是196的问题，那么第二集那个同步率表就不是瞎画的，那么556那边也是个伏笔，虽然214不会像326那样，但问题还的需要解决的.
 
 
------
+*****
 
 ####  ricarto  
 ##### 976#       发表于 2018-1-28 00:55
@@ -31902,7 +31902,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 4集staff比3集差不少，就番长的分镜值得期待一下。扳机那帮老哥不来曜，今石，雨宫哲，石琦，堀，其实不太够看。第四集出场的staff看里头也没有画萝卜厉害的。。。
 
 
------
+*****
 
 ####  dafangwoo  
 ##### 977#       发表于 2018-1-28 00:56
@@ -31916,7 +31916,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 这么怼sb当心被sb举报..
 
 
------
+*****
 
 ####  摩天城  
 ##### 978#       发表于 2018-1-28 00:56
@@ -31934,7 +31934,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 至于02的性格，怎么就崩坏了，02认为16是她的darling啊，小温柔不是正常的吗，现在就等于02在倒追16，你快来和我一起开鹤望兰，16坚持说我爸爸不同意我早恋，不能开
 
 
------
+*****
 
 ####  gnoliyil  
 ##### 979#       发表于 2018-1-28 00:56
@@ -31943,7 +31943,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 所以说这些孩子在设施里都学了啥。。。。
 
 
------
+*****
 
 ####  clmp124  
 ##### 980#       发表于 2018-1-28 00:56
@@ -31952,7 +31952,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">驾驭不了的烈马
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 981#       发表于 2018-1-28 00:56
@@ -31961,7 +31961,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 整体这话还行，390和666这对挺单纯的，不过男主想让看得十分诡异感，但是其实不妨从大局来看，在麻团拒绝让步的情况下让326登机其实是最好的选择，虽然男主的心态并不单纯但是这个想让倒是颇有点促使了顾全大局的结果，虽然随着326的忘乎所以，结果也就可想而知了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  艾叶  
 ##### 982#       发表于 2018-1-28 00:56
@@ -31973,7 +31973,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 就是那种没法说出来最后意外被发现的套路了吧，这话015和056的数值就不同步了，肯定有个坑。不过调侃归调侃，我还是希望056能继续和015和男主保持现在这种关系，虽然懵懂，但完全也可以可称之为发小的情谊。
 
 
------
+*****
 
 ####  dafangwoo  
 ##### 983#       发表于 2018-1-28 00:57
@@ -31985,7 +31985,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 然后这就32页了，你们可真是屌
 
 
------
+*****
 
 ####  kmno4  
 ##### 984#       发表于 2018-1-28 00:57
@@ -32000,7 +32000,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 如果动作戏又很棒的话，下一集你们就可能看不到326了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  偶像程序员POI  
 ##### 985#       发表于 2018-1-28 00:58
@@ -32009,7 +32009,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 一边描写8人组一边展开剧情。这样效果会比较差。过于拖沓。你24集也不能前4集都是展开描述驾驶员啊
 
 
------
+*****
 
 ####  D．Va  
 ##### 986#       发表于 2018-1-28 00:58
@@ -32025,7 +32025,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 她认定男主是darling，心理防线自然会降低，会有很多平时不会有的表现，在他人前的强气高傲性格其中是包含着伪装的
 
 
------
+*****
 
 ####  lanhao  
 ##### 987#       发表于 2018-1-28 00:58
@@ -32034,7 +32034,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 这话的02刻画很棒 宣布弃556 转投02了
 
 
------
+*****
 
 ####  wqmx2008  
 ##### 988#       发表于 2018-1-28 00:58
@@ -32046,7 +32046,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 326没死吧
 
 
------
+*****
 
 ####  ティグル  
 ##### 989#       发表于 2018-1-28 00:58
@@ -32057,7 +32057,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 015春心萌动，三人的关系已经开始崩坏了
 
 
------
+*****
 
 ####  m99999  
 ##### 990#       发表于 2018-1-28 00:58
@@ -32071,7 +32071,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 当然再焖几集也有可能，但要那么做的话这片节奏就有点问题了，观感不大好。
 
 
------
+*****
 
 ####  摩天城  
 ##### 991#       发表于 2018-1-28 00:58
@@ -32080,7 +32080,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 我觉得不懂日语看生肉太容易曲解意思了，熟肉看完感觉挺正常的
 
 
------
+*****
 
 ####  石诚  
 ##### 992#       发表于 2018-1-28 00:59
@@ -32091,7 +32091,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 “你要是让一个女孩子这么期待你追求你” 说实话大部分男生这辈子都没经历过这个东西
 
 
------
+*****
 
 ####  最后的法芙娜  
 ##### 993#       发表于 2018-1-28 00:59
@@ -32102,7 +32102,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 不我觉得015搭档会有点像甲洋，然后015是翔子同学
 
 
------
+*****
 
 ####  ティグル  
 ##### 994#       发表于 2018-1-28 00:59
@@ -32113,7 +32113,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 本家11年TV也是从第六话开始起飞的
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 995#       发表于 2018-1-28 00:59
@@ -32122,7 +32122,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 麻团应该是意识到了或者知道了什么，只有三机出击时候，她说了一句这下困难了
 
 
------
+*****
 
 ####  nanjolno  
 ##### 996#       发表于 2018-1-28 01:00
@@ -32151,7 +32151,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 056：原来如此，说不定是能提高同调率的行为，下次我们也试试吧
 
 
------
+*****
 
 ####  本渡枫  
 ##### 997#       发表于 2018-1-28 01:00
@@ -32160,7 +32160,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 02 是 已经见过很多的城市  以及很多的死人了  终于找到男主了   找到了个可以一起活下去的人  在这个不仅没有海可以说什么都没有躲避杀戮苟延残喘的世界  有了生存下去的意义  突然浪漫   京紫成功人士自己才是在键盘自己压根不懂的玩意吧
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 998#       发表于 2018-1-28 01:00
@@ -32172,7 +32172,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 第四集应该没了，上的是扳机的人，让扳机的人来处理情感刻画，锦织还没傻，这集的主力是河野惠美
 
 
------
+*****
 
 ####  clmp124  
 ##### 999#       发表于 2018-1-28 01:00
@@ -32181,7 +32181,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太好看了，我要买碟
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1000#       发表于 2018-1-28 01:00
@@ -32210,7 +32210,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 过去也不明朗，权限很高但是被APE这鸟笼所困，强势得性格是她得保护装，16是她终于寻觅得到有可能能和自己一起飞翔得darling，表现得温柔一点哪里崩坏了？这还未到02的主场呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  帕凡  
 ##### 1001#       发表于 2018-1-28 01:00
@@ -32219,7 +32219,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 哎还以为会有新名字
 
 
------
+*****
 
 ####  kmno4  
 ##### 1002#       发表于 2018-1-28 01:01
@@ -32234,7 +32234,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 不过这里不展开也说的过去，反正实验小队，失败也就失败了。。期待后面有量产机吧。。
 
 
------
+*****
 
 ####  偶像程序员POI  
 ##### 1003#       发表于 2018-1-28 01:01
@@ -32243,7 +32243,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 现在015知道除了自己别人上都会死。如果下集还不上机就真的是没得理由了
 
 
------
+*****
 
 ####  xunit  
 ##### 1004#       发表于 2018-1-28 01:01
@@ -32257,7 +32257,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 我认为男主当时并没有看到326，被榨干的镜头是观众的上帝视角，但是之前326那么趾高气昂，出击归来却没出舱炫耀，怎么看都出事了
 
 
------
+*****
 
 ####  ティグル  
 ##### 1005#       发表于 2018-1-28 01:01
@@ -32270,7 +32270,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 反正谜团重重，让人欲罢不能。。。
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 1006#       发表于 2018-1-28 01:02
@@ -32279,7 +32279,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 666和390的矛盾这集一下就解决了，326和196在人设上的对立感就很强烈，问题应该会很严重。
 
 
------
+*****
 
 ####  摩天城  
 ##### 1007#       发表于 2018-1-28 01:02
@@ -32288,7 +32288,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 我觉得别理那个sj了，我感觉他并不懂多少日语，然后看完生肉就来说男主咋咋，全靠自己脑补，结果就是说的很多就是根本不成立的
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 1008#       发表于 2018-1-28 01:02
@@ -32300,7 +32300,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 其实呀，326如果老老实实地去战斗不说刺激性的话，也许还能安全回来，但是他那性格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 1009#       发表于 2018-1-28 01:02
@@ -32311,7 +32311,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  ティグル  
 ##### 1010#       发表于 2018-1-28 01:02
@@ -32322,7 +32322,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 没错啊，很常见的蒙太奇手法
 
 
------
+*****
 
 ####  521op@163.com  
 ##### 1011#       发表于 2018-1-28 01:03
@@ -32335,7 +32335,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 —— 来自 HUAWEI PE-TL20, Android 4.4.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
------
+*****
 
 ####  D．Va  
 ##### 1012#       发表于 2018-1-28 01:03
@@ -32349,7 +32349,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 我也觉得应该看不到，不过这里切到的326的镜头或许只是给观众看的视角，接上男主的反应大概是一种蒙太奇手法？
 
 
------
+*****
 
 ####  waox  
 ##### 1013#       发表于 2018-1-28 01:03
@@ -32358,7 +32358,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">现在谁再觉得真差经是说男主就很有意思了
 
 
------
+*****
 
 ####  junoxdd  
 ##### 1014#       发表于 2018-1-28 01:03
@@ -32367,7 +32367,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 不知道除了普通Franxx的平均战斗力是怎么样的，大概这集里没出全力的鹤望兰？虽然这几个新兵崽第一次出任务，感觉过于的菜了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 1015#       发表于 2018-1-28 01:03
@@ -32378,7 +32378,7 @@ nana和博士谈话里说了这批是新型机，实验味很重，可能是有�
 本身390就属于照顾666的那种，这集666这么关心自己肯定沦陷了
 
 
------
+*****
 
 ####  zukey  
 ##### 1016#       发表于 2018-1-28 01:04
@@ -32389,7 +32389,7 @@ B站怎么还不更新
 刚说完刷新一下，更新了。。。
 
 
------
+*****
 
 ####  ティグル  
 ##### 1017#       发表于 2018-1-28 01:04
@@ -32402,7 +32402,7 @@ B站怎么还不更新
 然而肥仔组的现实是556跟不上肥仔
 
 
------
+*****
 
 ####  偶像程序员POI  
 ##### 1018#       发表于 2018-1-28 01:04
@@ -32411,7 +32411,7 @@ B站怎么还不更新
 男主为什么会懂H的含义
 
 
------
+*****
 
 ####  xunit  
 ##### 1019#       发表于 2018-1-28 01:04
@@ -32423,7 +32423,7 @@ B站怎么还不更新
 是啊，但是我引用的那位朋友不是没注意到这个表现手法吗
 
 
------
+*****
 
 ####  最后的法芙娜  
 ##### 1020#       发表于 2018-1-28 01:04
@@ -32432,7 +32432,7 @@ B站怎么还不更新
 326应该不会马上便当吧，不然留下搭档干什么，浪费角色设定。另外如果015继续担任队长的话，也必须快点成熟，不然有种要中场自爆的感觉
 
 
------
+*****
 
 ####  lanhao  
 ##### 1021#       发表于 2018-1-28 01:04
@@ -32441,7 +32441,7 @@ B站怎么还不更新
 猜一个下一集 解决大背头一对的问题以及男主上机 在下一集女神556回
 
 
------
+*****
 
 ####  ティグル  
 ##### 1022#       发表于 2018-1-28 01:05
@@ -32452,7 +32452,7 @@ B站怎么还不更新
 啊，没看到，不好意思
 
 
------
+*****
 
 ####  绝漠mk2  
 ##### 1023#       发表于 2018-1-28 01:05
@@ -32464,7 +32464,7 @@ B站怎么还不更新
 别，056这一对也太惨了
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 1024#       发表于 2018-1-28 01:06
@@ -32479,7 +32479,7 @@ B站怎么还不更新
 但是胖子早见那组性格相性度还是非常高的，都是那种比较体谅他人的性格设定，再看看666这组这话就发了点糖，貌似这样一看有问题的就是326那组了，莓那边其实解决了感情问题就啥问题都没了
 
 
------
+*****
 
 ####  美利坚大老爹  
 ##### 1025#       发表于 2018-1-28 01:07
@@ -32500,7 +32500,7 @@ B站怎么还不更新
 而且从这话来看，鹤望兰的控制权完全在02手里，要吸干人还是安全驾驶，都是02在控制。大背头强上，就给你吸干，016虽然没意识了，02应该会呵护darling。
 
 
------
+*****
 
 ####  最强惠酱  
 ##### 1026#       发表于 2018-1-28 01:07
@@ -32509,7 +32509,7 @@ B站怎么还不更新
 大背头怎么看都是个gay，h那段不知道016到底有没有懂
 
 
------
+*****
 
 ####  whosmex  
 ##### 1027#       发表于 2018-1-28 01:07
@@ -32563,7 +32563,7 @@ B站怎么还不更新
 查看全部评分
 
 
------
+*****
 
 ####  we89623  
 ##### 1028#       发表于 2018-1-28 01:07
@@ -32572,7 +32572,7 @@ B站怎么还不更新
 326被榨成这样，估计短时间上不了机了，至少下集肯定不会，那么PV2里的四机联合打大型叫龙估计也不是下集内容，感觉起码还的等上几集.  这些新兵蛋子还没到时候，不管是心理还是生理.
 
 
------
+*****
 
 ####  艾叶  
 ##### 1029#       发表于 2018-1-28 01:08
@@ -32584,7 +32584,7 @@ B站怎么还不更新
 可爱的015还在找借口来掩饰这种感情，也和她自己很懵懂有关吧。说维持关系也是奢望啊，当最后这三个人有所成长在回忆起现在会是什么心情呢，我觉得这就是锦织监督说的，这是个讲述人际关系的番的那种醍醐味。
 
 
------
+*****
 
 ####  棒读  
 ##### 1030#       发表于 2018-1-28 01:08
@@ -32618,7 +32618,7 @@ B站怎么还不更新
 PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 
 
------
+*****
 
 ####  clmp124  
 ##### 1031#       发表于 2018-1-28 01:09
@@ -32630,7 +32630,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我也觉得390和666应该能稳定下来了，倒是心疼眼镜妹啊。
 
 
------
+*****
 
 ####  性欲モンスター  
 ##### 1032#       发表于 2018-1-28 01:10
@@ -32640,7 +32640,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 <img src="http://chuantu.biz/t6/216/1517072921x-1404764385.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 1033#       发表于 2018-1-28 01:10
@@ -32651,7 +32651,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">青春期的少年少女在伤痛中成长，好啊，妙
 
 
------
+*****
 
 ####  leakless  
 ##### 1034#       发表于 2018-1-28 01:10
@@ -32663,7 +32663,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 1035#       发表于 2018-1-28 01:11
@@ -32679,7 +32679,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 男主那时候昏迷了02还抗他出来，到326就直接无视了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  范志毅.  
 ##### 1036#       发表于 2018-1-28 01:11
@@ -32691,7 +32691,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 感觉应该是不懂的。但016神童，也说不好看过啥不该看的书之类
 
 
------
+*****
 
 ####  kmno4  
 ##### 1037#       发表于 2018-1-28 01:12
@@ -32706,7 +32706,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 话说回来，703的机体呢？？我有点期待了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Snaky  
 ##### 1038#       发表于 2018-1-28 01:12
@@ -32715,7 +32715,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 设定是三次才会GG，326才一回，没事的啦
 
 
------
+*****
 
 ####  ティグル  
 ##### 1039#       发表于 2018-1-28 01:13
@@ -32728,7 +32728,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 应该是考核结束后再制造的，所以，大概是没有了
 
 
------
+*****
 
 ####  摩天城  
 ##### 1040#       发表于 2018-1-28 01:13
@@ -32747,7 +32747,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 我觉得16肯定有不甘心、但是没办法必须要救人的这种心理在里面
 
 
------
+*****
 
 ####  lanhao  
 ##### 1041#       发表于 2018-1-28 01:13
@@ -32758,7 +32758,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">被你弄笑了
 
 
------
+*****
 
 ####  ティグル  
 ##### 1042#       发表于 2018-1-28 01:14
@@ -32771,7 +32771,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 不知道这一组要怎么走出来
 
 
------
+*****
 
 ####  clmp124  
 ##### 1043#       发表于 2018-1-28 01:15
@@ -32783,7 +32783,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“老娘都给你开了爽了一回无双了，还有什么不满”
 
 
------
+*****
 
 ####  cooljoe  
 ##### 1044#       发表于 2018-1-28 01:15
@@ -32814,7 +32814,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 这集管道战，打的也很憋屈，说是萝卜战，感觉也不过瘾
 
 
------
+*****
 
 ####  D．Va  
 ##### 1045#       发表于 2018-1-28 01:15
@@ -32828,7 +32828,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 第一张还是挺man的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，其实觉得可爱很大程度上是被脸部表情影响了吧，那是唯一由雌蕊独自操控的部分了
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 1046#       发表于 2018-1-28 01:15
@@ -32846,7 +32846,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 1047#       发表于 2018-1-28 01:16
@@ -32861,7 +32861,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 这图和文字太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1048#       发表于 2018-1-28 01:16
@@ -32880,7 +32880,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 结尾也只是看到02挥手，没听到darling的，这次背头的残废足够为16再次上机增加阴影了，他是不知道自己是特殊的，也就是下一次上机就算减寿，仅有的三次机会，所以真正的上机会应该能期待，心理描写可能难免会又被说像XXX就是了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 1049#       发表于 2018-1-28 01:17
@@ -32894,7 +32894,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 这集02答应是知道了016在想什么，不想难为他，顺便再推他一把
 
 
------
+*****
 
 ####  clmp124  
 ##### 1050#       发表于 2018-1-28 01:17
@@ -32906,7 +32906,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">第一话那老哥都成残疾人了，就开了两次吧（？）。这边救回来估计最好情况就是老了30岁。
 
 
------
+*****
 
 ####  we89623  
 ##### 1051#       发表于 2018-1-28 01:17
@@ -32919,7 +32919,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 上集那个表通过考据猜的是两组都是女性偏低，而这集进一步证实其中一组是196的问题，那么这边是556的问题基本没跑了，胖子那句说自己是不是技术差单纯只是因为他性格问题.
 
 
------
+*****
 
 ####  amulelernen  
 ##### 1052#       发表于 2018-1-28 01:18
@@ -32934,7 +32934,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 蛇皮P图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  最后的法芙娜  
 ##### 1053#       发表于 2018-1-28 01:18
@@ -32943,7 +32943,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 很好奇驾驶员伤亡率，上一批的人就这么全损耗光了？
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 1054#       发表于 2018-1-28 01:19
@@ -32955,7 +32955,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 你让326再来估计他自己都不敢了
 
 
------
+*****
 
 ####  美利坚大老爹  
 ##### 1055#       发表于 2018-1-28 01:19
@@ -32976,7 +32976,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 联想到孩子们通常只有编号和批次，加上02对城市的看法，这背景越往后铺垫，越黑暗啊。
 
 
------
+*****
 
 ####  摩天城  
 ##### 1056#       发表于 2018-1-28 01:20
@@ -32992,7 +32992,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 反正最后肯定不管不顾上去开就是了，毕竟不能驾驶franxx的人是没有价值的。
 
 
------
+*****
 
 ####  NeloAngelo  
 ##### 1057#       发表于 2018-1-28 01:20
@@ -33001,7 +33001,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 等一下，016还不知道自己是免吸体质吧？他应该还是觉得自己什么都做不到的。按这个性格，下集还要墨迹很久
 
 
------
+*****
 
 ####  ティグル  
 ##### 1058#       发表于 2018-1-28 01:21
@@ -33010,7 +33010,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 反正016诗人这个称号是跑不掉了，第二话就有弹幕刷昴治和总士了
 
 
------
+*****
 
 ####  Snaky  
 ##### 1059#       发表于 2018-1-28 01:21
@@ -33026,7 +33026,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 细思恐极，我越来越期待下一话的326了，一群孩子里混进一个青年<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  哈迪斯兜帽  
 ##### 1060#       发表于 2018-1-28 01:22
@@ -33057,7 +33057,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 所以上一集016启动之后就有角了。
 
 
------
+*****
 
 ####  BEBEBEBEBOP  
 ##### 1061#       发表于 2018-1-28 01:23
@@ -33069,7 +33069,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  秋雨灰灰  
 ##### 1062#       发表于 2018-1-28 01:23
@@ -33092,7 +33092,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 最重要的一点：为什么7和8会安排这么乱来的作战计划？连这个都想不到？这之中有什么深意吗？
 
 
------
+*****
 
 ####  ティグル  
 ##### 1063#       发表于 2018-1-28 01:23
@@ -33104,7 +33104,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 更像是女性驾驶员和franxx连接不稳定的表现
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1064#       发表于 2018-1-28 01:24
@@ -33120,7 +33120,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 虽然2集又被挫折了一下，但总体还是积极的，只是这次的条件实在太糟糕了，不是什么证明自己优先的时候.......
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 1065#       发表于 2018-1-28 01:25
@@ -33132,7 +33132,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 通过这集就知道了应该不会墨迹的
 
 
------
+*****
 
 ####  摩天城  
 ##### 1066#       发表于 2018-1-28 01:25
@@ -33150,7 +33150,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 这句的意思应该指的是他们小时候在那个养殖场，回忆里那个地方，然后啥也没有只能抱团取暖，成鸟不会回来了不是没有成鸟，而是成鸟就离开养殖场了。之后才是去战斗，当然战死率看起来依然很高就是了
 
 
------
+*****
 
 ####  土間埋  
 ##### 1067#       发表于 2018-1-28 01:25
@@ -33161,7 +33161,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 另外萝卜可爱想日
 
 
------
+*****
 
 ####  mengyao  
 ##### 1068#       发表于 2018-1-28 01:25
@@ -33178,7 +33178,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 没有第四集我要死了
 
 
------
+*****
 
 ####  amulelernen  
 ##### 1069#       发表于 2018-1-28 01:26
@@ -33193,7 +33193,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 是的 派出机体的举动非常轻率，也没有后备计划，感觉就是随便拿去送死一样 要是没有02立马换下一批了，这才毕业几天啊
 
 
------
+*****
 
 ####  D．Va  
 ##### 1070#       发表于 2018-1-28 01:26
@@ -33207,7 +33207,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 正常启动后就有角
 
 
------
+*****
 
 ####  とらドラ!  
 ##### 1071#       发表于 2018-1-28 01:26
@@ -33216,7 +33216,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 326一看就是一副要黑的腔调，结果没想到第三集就来了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1072#       发表于 2018-1-28 01:26
@@ -33228,7 +33228,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 两因子双100就出现的，2集15两次启动都有描写
 
 
------
+*****
 
 ####  风怒  
 ##### 1073#       发表于 2018-1-28 01:27
@@ -33247,7 +33247,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 这次雌蕊背后显示屏给的镜头要清楚很多
 
 
------
+*****
 
 ####  微冷  
 ##### 1074#       发表于 2018-1-28 01:28
@@ -33258,7 +33258,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 但是我还是要说一声，男主是个傻逼。
 
 
------
+*****
 
 ####  未来起航  
 ##### 1075#       发表于 2018-1-28 01:28
@@ -33269,7 +33269,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  偶像程序员POI  
 ##### 1076#       发表于 2018-1-28 01:28
@@ -33278,7 +33278,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 等一个小清水回马枪
 
 
------
+*****
 
 ####  摩天城  
 ##### 1077#       发表于 2018-1-28 01:28
@@ -33290,7 +33290,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 没有吧，就是正常驾驶应该出现的吧，第二集里16和56启动成功时，这个角才出现
 
 
------
+*****
 
 ####  fantuanxiaoyi  
 ##### 1078#       发表于 2018-1-28 01:29
@@ -33299,7 +33299,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 就跳过战斗比较不满。
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1079#       发表于 2018-1-28 01:29
@@ -33322,7 +33322,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 比起之前的周围的小字也看轻了，那些数字会动吗？
 
 
------
+*****
 
 ####  ティグル  
 ##### 1080#       发表于 2018-1-28 01:29
@@ -33335,7 +33335,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 那这个镜头表现的就很迷了
 
 
------
+*****
 
 ####  cooljoe  
 ##### 1081#       发表于 2018-1-28 01:30
@@ -33347,7 +33347,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 莫非女方有其他喜欢的人了，我看好黄毛大哥啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  clmp124  
 ##### 1082#       发表于 2018-1-28 01:30
@@ -33363,7 +33363,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 1083#       发表于 2018-1-28 01:30
@@ -33374,7 +33374,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 既然男主能和02解锁特定区域，也许后面有逛商店和吃路边摊这样的约会桥段。然后，这个世界的普通人视角还没解锁，也不知道这些人如何看待这些孩子们—愈发觉得这些人都是混合叫龙血的生物兵器了。
 
 
------
+*****
 
 ####  xunit  
 ##### 1084#       发表于 2018-1-28 01:30
@@ -33389,7 +33389,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 孩子们应该消耗的没那么快吧，每台机体都是根据女生特化制造的，两个驾驶员之间还得花时间培养感情以方便同调，如果消耗的这么快那在他们身上下大力气实在是得不偿失
 
 
------
+*****
 
 ####  齿轮轴君  
 ##### 1085#       发表于 2018-1-28 01:31
@@ -33402,7 +33402,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 326你个low货在公屏做出那种发言，后面还怎么混<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lokok  
 ##### 1086#       发表于 2018-1-28 01:31
@@ -33411,7 +33411,7 @@ PS：黄毛挺心机的，直接替草莓给男主发了张亲情卡
 b站翻译的到底行不行啊，看的有点懵逼。
 
 
------
+*****
 
 ####  ティグル  
 ##### 1087#       发表于 2018-1-28 01:31
@@ -33422,7 +33422,7 @@ b站翻译的到底行不行啊，看的有点懵逼。
 这批是新技术
 
 
------
+*****
 
 ####  clmp124  
 ##### 1088#       发表于 2018-1-28 01:32
@@ -33434,7 +33434,7 @@ b站翻译的到底行不行啊，看的有点懵逼。
 ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  摩天城  
 ##### 1089#       发表于 2018-1-28 01:32
@@ -33450,7 +33450,7 @@ ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/fac
 当然也可以就是单纯表示，女驾驶员和franxx是紧密连接的，franxx受到的伤害一定程度会在精神层面反馈给女驾驶员
 
 
------
+*****
 
 ####  秋雨灰灰  
 ##### 1090#       发表于 2018-1-28 01:32
@@ -33462,7 +33462,7 @@ ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/fac
 喷了 好思路，请给黄毛大哥吧
 
 
------
+*****
 
 ####  星隐月明  
 ##### 1091#       发表于 2018-1-28 01:32
@@ -33471,7 +33471,7 @@ ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/fac
 鹤望兰果然是主角机，被帅到。还有这大背头怎么有种gay佬的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xwz  
 ##### 1092#       发表于 2018-1-28 01:32
@@ -33480,7 +33480,7 @@ ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/fac
 中间泽拉图带016去看风景的那段，强行加了个上下黑条搞成了电影的感觉……<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whosmex  
 ##### 1093#       发表于 2018-1-28 01:33
@@ -33524,7 +33524,7 @@ ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/fac
 【纯属过度解读，请以实播剧情为准。】
 
 
------
+*****
 
 ####  这个碧池是谁？  
 ##### 1094#       发表于 2018-1-28 01:33
@@ -33533,7 +33533,7 @@ ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/fac
 016他们现在还是啥都不懂的雏鸟，02已经是成鸟，想要离开鸟笼，到去外面的世界，但是比翼鸟没有另一半就飞不起来。
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1095#       发表于 2018-1-28 01:33
@@ -33549,7 +33549,7 @@ ED-Poem 2.0（Green ver.)<img src="https://static.saraba1st.com/image/smiley/fac
 这个意识的联动可能不会在晕过去后就马上断开
 
 
------
+*****
 
 ####  ティグル  
 ##### 1096#       发表于 2018-1-28 01:33
@@ -33560,7 +33560,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 应该是目前翻译得最差的版本，甚至不如字幕组
 
 
------
+*****
 
 ####  fxxffs  
 ##### 1097#       发表于 2018-1-28 01:33
@@ -33571,7 +33571,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 有些人觉得016怂，不过在我看来，016算是在冷静的思考，诚如神大人所说，唾手可得的美味，有可能背后隐藏着陷阱呀。当然，剧情中给的016不去驾驶的理由有点勉强，应该再具体一些的
 
 
------
+*****
 
 ####  lokok  
 ##### 1098#       发表于 2018-1-28 01:34
@@ -33586,7 +33586,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 我看的b站的，还以为这句翻译有问题<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">不懂日语。
 
 
------
+*****
 
 ####  ティグル  
 ##### 1099#       发表于 2018-1-28 01:34
@@ -33601,7 +33601,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 选个自己顺眼的字幕组吧，我觉得还是学日语最一劳永逸
 
 
------
+*****
 
 ####  美利坚大老爹  
 ##### 1100#       发表于 2018-1-28 01:36
@@ -33616,7 +33616,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 哭了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 1101#       发表于 2018-1-28 01:36
@@ -33625,7 +33625,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 02跟016上机02会不会故意叫两下调戏下男主<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  enye  
 ##### 1102#       发表于 2018-1-28 01:37
@@ -33634,7 +33634,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 地下这种黄色光污染的地方住久了不会疯？<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ティグル  
 ##### 1103#       发表于 2018-1-28 01:37
@@ -33643,7 +33643,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 顺便OP歌词里的请不要害怕我，来我身边吧 估计马上就要在剧情里出现了
 
 
------
+*****
 
 ####  OrianaThomson  
 ##### 1104#       发表于 2018-1-28 01:37
@@ -33652,7 +33652,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 这集太好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1105#       发表于 2018-1-28 01:37
@@ -33664,7 +33664,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 你觉得16可以怎么不勉强的上机，7和02都贴面了也不让上，像超级系那样不顾一切的上吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NeloAngelo  
 ##### 1106#       发表于 2018-1-28 01:37
@@ -33679,7 +33679,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sullen  
 ##### 1107#       发表于 2018-1-28 01:37
@@ -33693,7 +33693,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 仔细想想，这个片子从开始根本不是银河美少年天元那种豪快的萝卜片啊，第一话的氛围就那么沉重，不知道为什么那么多人用天元银河美少年来比。
 
 
------
+*****
 
 ####  摩天城  
 ##### 1108#       发表于 2018-1-28 01:38
@@ -33711,7 +33711,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 如何看待的话，大概希望他们好好战斗就是了
 
 
------
+*****
 
 ####  mengyao  
 ##### 1109#       发表于 2018-1-28 01:38
@@ -33720,7 +33720,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 黄毛不停阻止男主跟02搭档莫非真的是<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  美利坚大老爹  
 ##### 1110#       发表于 2018-1-28 01:39
@@ -33738,7 +33738,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 这一话给出的几个镜头，城市看上去就像死了一样
 
 
------
+*****
 
 ####  whosmex  
 ##### 1111#       发表于 2018-1-28 01:39
@@ -33750,7 +33750,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 后面也许是3个人一台机呢？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  D．Va  
 ##### 1112#       发表于 2018-1-28 01:39
@@ -33762,7 +33762,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 这种表现手法真的罕见，感觉效果还挺好
 
 
------
+*****
 
 ####  ティグル  
 ##### 1113#       发表于 2018-1-28 01:40
@@ -33775,7 +33775,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 但是被压制的感情释放的时候就更强烈了，现在还不好说
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1114#       发表于 2018-1-28 01:40
@@ -33787,7 +33787,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 讲真，56老老实实当好哥哥照顾弟弟妹妹其实比进去搞四角恋这趟浑水要好<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kuaidiankai  
 ##### 1115#       发表于 2018-1-28 01:40
@@ -33799,7 +33799,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 因为鸡舍啊，说真的头2话还真的有银河美少年的期待，然后看完第2集就没了，那种感觉差的太多了
 
 
------
+*****
 
 ####  stuka1942  
 ##### 1116#       发表于 2018-1-28 01:41
@@ -33810,7 +33810,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 326被榨了一次，应该会怂，以后会有所改变吧
 
 
------
+*****
 
 ####  fxxffs  
 ##### 1117#       发表于 2018-1-28 01:41
@@ -33822,7 +33822,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 我觉得可以争辩几句，让剧情看起来顺滑一点。前两集都塑造了016是个积极向上的青年，宁愿死都要去驾驶，结果这集领导说不上就马上遵从了，怎么也得反驳几句再遵守命令吧。现在看只有002反驳了，而他却一点反论都没有，不由得让人觉得跟之前的形象不符合啊。
 
 
------
+*****
 
 ####  elflie  
 ##### 1118#       发表于 2018-1-28 01:42
@@ -33833,7 +33833,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  ティグル  
 ##### 1119#       发表于 2018-1-28 01:42
@@ -33842,7 +33842,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 顺便第三集016刚提到雏鸟和成鸟，在和056聊天的时候就出现了鸭子母子，对应的很舒服
 
 
------
+*****
 
 ####  D．Va  
 ##### 1120#       发表于 2018-1-28 01:42
@@ -33854,7 +33854,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 不知道生物学上有没有猩猩比较喜欢黄色环境的说法？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  encode.x  
 ##### 1121#       发表于 2018-1-28 01:43
@@ -33867,7 +33867,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 326下一话不出意外应该会继续攻击02和016, "外面的世界"现在几乎还没有任何信息, 这集追加的信息也只有"下面的世界".
 
 
------
+*****
 
 ####  Kreis  
 ##### 1122#       发表于 2018-1-28 01:43
@@ -33880,7 +33880,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 按照吵个架就能降低同步率的说法，感觉326这边动了小心思的可能性很高啊。
 
 
------
+*****
 
 ####  lanhao  
 ##### 1123#       发表于 2018-1-28 01:43
@@ -33889,7 +33889,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 个人认为不是特别压抑 男主给我的感觉也不是真丝那种抑郁症患者 而是会自己找机会 有欲望的角色 药味的地方全程笑过去的 看得很爽 很直白（？
 
 
------
+*****
 
 ####  kiralzb  
 ##### 1124#       发表于 2018-1-28 01:44
@@ -33903,7 +33903,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 自己也不能保证是不是真的和02一起就能正常开，如果是模拟战的话倒好说，外面的兄弟可是快死了，这样的判断很果断了
 
 
------
+*****
 
 ####  D．Va  
 ##### 1125#       发表于 2018-1-28 01:44
@@ -33915,7 +33915,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 应该不会很快吧，现在还不是02的轮次<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  太太  
 ##### 1126#       发表于 2018-1-28 01:44
@@ -33927,7 +33927,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 快来给个痛快点的爆发吧，无论是视觉上的还是情绪上的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  摩天城  
 ##### 1127#       发表于 2018-1-28 01:45
@@ -33947,7 +33947,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 然后326有，326想去，大人同意，他就让326去了
 
 
------
+*****
 
 ####  Kreis  
 ##### 1128#       发表于 2018-1-28 01:45
@@ -33960,7 +33960,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 反而可以说明作为兵器（军人）的觉悟很高。
 
 
------
+*****
 
 ####  clmp124  
 ##### 1129#       发表于 2018-1-28 01:46
@@ -33989,7 +33989,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 （求个大神P图<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  we89623  
 ##### 1130#       发表于 2018-1-28 01:47
@@ -34002,7 +34002,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 从台词来看我觉得可能性很低....
 
 
------
+*****
 
 ####  elflie  
 ##### 1131#       发表于 2018-1-28 01:48
@@ -34015,7 +34015,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  warlock228  
 ##### 1132#       发表于 2018-1-28 01:48
@@ -34024,7 +34024,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那三个机器人落跑那里动作 萌死了 尤其是早见那台
 
 
------
+*****
 
 ####  D．Va  
 ##### 1133#       发表于 2018-1-28 01:48
@@ -34038,7 +34038,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 按照8教官的说法，启动不了双方都是有责任的
 
 
------
+*****
 
 ####  fantuanxiaoyi  
 ##### 1134#       发表于 2018-1-28 01:49
@@ -34049,7 +34049,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 你可以看樱花忍法帖和其监督任何作品。
 
 
------
+*****
 
 ####  昆卡  
 ##### 1135#       发表于 2018-1-28 01:49
@@ -34063,7 +34063,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  liliaceae  
 ##### 1136#       发表于 2018-1-28 01:49
@@ -34075,7 +34075,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 死也要上的前提是服从命令，从小教育是开萝卜，服从命令这点不单独提但是肯定会灌。
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 1137#       发表于 2018-1-28 01:50
@@ -34091,7 +34091,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 投影的应该只有Ape的高层，其他人应该都是肉身。
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 1138#       发表于 2018-1-28 01:50
@@ -34108,7 +34108,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 期待第四话
 
 
------
+*****
 
 ####  flybike  
 ##### 1139#       发表于 2018-1-28 01:50
@@ -34120,7 +34120,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 其实男主不是积极向上想要驾驶而是洗脑太深想要驾驶，这就能理解他为毛要无条件服从了
 
 
------
+*****
 
 ####  白浊果酱  
 ##### 1140#       发表于 2018-1-28 01:50
@@ -34132,7 +34132,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 多争辩几句莓的头就掉了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  风怒  
 ##### 1141#       发表于 2018-1-28 01:50
@@ -34151,7 +34151,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 196和326
 
 
------
+*****
 
 ####  美利坚大老爹  
 ##### 1142#       发表于 2018-1-28 01:52
@@ -34166,7 +34166,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 所以，知道词汇的意思，但是没有任何经验性的认识，明白意思，却不知道到底是什么。
 
 
------
+*****
 
 ####  cyberpenk  
 ##### 1143#       发表于 2018-1-28 01:52
@@ -34178,7 +34178,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 致敬《星船伞兵》经典镜头吧
 
 
------
+*****
 
 ####  D．Va  
 ##### 1144#       发表于 2018-1-28 01:52
@@ -34190,7 +34190,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 也是某些片段特意转电影屏幕比例么
 
 
------
+*****
 
 ####  winoros  
 ##### 1145#       发表于 2018-1-28 01:53
@@ -34199,7 +34199,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 教官明显知道326上的话会出事，还是让他上了。02也提到了之前有过团灭。驾驶员看起来就是当可再生资源这样子用的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  we89623  
 ##### 1146#       发表于 2018-1-28 01:54
@@ -34210,7 +34210,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 果然是男高女低
 
 
------
+*****
 
 ####  xwz  
 ##### 1147#       发表于 2018-1-28 01:55
@@ -34222,7 +34222,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 是啊，我说的就是这个，大虫子一点一点挪动出来，周围小虫子光看不动手，看到这段画面立刻想到的是星河战队里吸脑浆那段
 
 
------
+*****
 
 ####  D．Va  
 ##### 1148#       发表于 2018-1-28 01:55
@@ -34234,7 +34234,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 今石只是打戏分镜，其他分镜都是赤井俊文
 
 
------
+*****
 
 ####  cat122802501  
 ##### 1149#       发表于 2018-1-28 01:55
@@ -34243,7 +34243,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 绝了 换夫play<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elflie  
 ##### 1150#       发表于 2018-1-28 01:55
@@ -34259,7 +34259,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  美利坚大老爹  
 ##### 1151#       发表于 2018-1-28 01:55
@@ -34274,7 +34274,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 我觉得不像致敬，顶多是等大虫子来吃机体。
 
 
------
+*****
 
 ####  风怒  
 ##### 1152#       发表于 2018-1-28 01:57
@@ -34285,7 +34285,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 何况02还没认真的样子，之后02+016战斗力还要上个台阶的吧，其他组怎么追得上
 
 
------
+*****
 
 ####  摩天城  
 ##### 1153#       发表于 2018-1-28 01:57
@@ -34303,7 +34303,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 326一直就是看不起196，所以他心理就是排斥196的，所以196同步起来很累，很困难，而196一心只是想着正常驾驶，并不排斥326，自然326的同步就很轻松
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 1154#       发表于 2018-1-28 01:57
@@ -34315,7 +34315,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 这样啊，抱歉，等下我编辑一下。我看staff表就写了今石分镜呀。。
 
 
------
+*****
 
 ####  Kirihara  
 ##### 1155#       发表于 2018-1-28 01:58
@@ -34327,7 +34327,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 所以，这国家队不会真的是要讲一群性懵懂的少男少女觉醒性意识进而打倒父权最后解放思想的故事吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kisek1  
 ##### 1156#       发表于 2018-1-28 01:59
@@ -34344,7 +34344,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 第二话吃饭时众人还不知道darling的意思，但在换战斗服时miku就能用这个来开玩笑了。同样第二话，草莓不知道kiss是什么意思，但当广说出那个词所代表的动作时草莓竟然害羞了。
 
 
------
+*****
 
 ####  cyberpenk  
 ##### 1157#       发表于 2018-1-28 01:59
@@ -34363,7 +34363,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">我只想知道新手村地图怎么会刷这种一看就是身边自带千军万马的boss怪，叫龙的生态下面要怎么圆啊
 
 
------
+*****
 
 ####  flybike  
 ##### 1158#       发表于 2018-1-28 01:59
@@ -34378,7 +34378,7 @@ b站翻译的到底行不行啊，看的有点懵逼。</blockquote>
 显然安全也安全不到哪里去，大背头一开始发疯就已经是要死不死的嗓音了
 
 
------
+*****
 
 ####  lwezh  
 ##### 1159#       发表于 2018-1-28 01:59
@@ -34406,7 +34406,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 <img src="https://img.saraba1st.com/forum/201801/28/020214r8eete7k8py8h5te.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  clmp124  
 ##### 1160#       发表于 2018-1-28 02:01
@@ -34418,7 +34418,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 高级模式可以直接上传，或者学习下怎么用图床。
 
 
------
+*****
 
 ####  窵傂  
 ##### 1161#       发表于 2018-1-28 02:01
@@ -34433,7 +34433,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">看到自视甚高 觉得搭档配不上自己的充被02直接拿实力打脸，观感极佳
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 1162#       发表于 2018-1-28 02:02
@@ -34447,7 +34447,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 牛逼牛逼
 
 
------
+*****
 
 ####  zadn  
 ##### 1163#       发表于 2018-1-28 02:02
@@ -34459,7 +34459,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 326坐姿不错
 
 
------
+*****
 
 ####  cyberpenk  
 ##### 1164#       发表于 2018-1-28 02:03
@@ -34475,7 +34475,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 这些孩子也没有父母的概念，怕是试管+培养舱出来的
 
 
------
+*****
 
 ####  winoros  
 ##### 1165#       发表于 2018-1-28 02:03
@@ -34490,7 +34490,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 没有 16笑的时候是02刚出来的时候，当他发现326不行了之后表情凝固了的
 
 
------
+*****
 
 ####  lwezh  
 ##### 1166#       发表于 2018-1-28 02:03
@@ -34502,7 +34502,7 @@ file:///C:/Users/Lee/Desktop/014518tbbpi1b9ypykuf3pf.jpg
 ok
 
 
------
+*****
 
 ####  zadn  
 ##### 1167#       发表于 2018-1-28 02:03
@@ -34514,7 +34514,7 @@ ok
 赤井是分镜加演出，今石是动作部分分镜
 
 
------
+*****
 
 ####  风怒  
 ##### 1168#       发表于 2018-1-28 02:03
@@ -34523,7 +34523,7 @@ ok
 另外390的表现真的很好，在地下苏醒之后重新启动，数值上还比666稍快一点
 
 
------
+*****
 
 ####  xer1xxx  
 ##### 1169#       发表于 2018-1-28 02:04
@@ -34532,7 +34532,7 @@ ok
 这集ntr是真给劲啊，不过没出现期待的激烈打戏啊
 
 
------
+*****
 
 ####  kxgr123  
 ##### 1170#       发表于 2018-1-28 02:04
@@ -34667,7 +34667,7 @@ QQ图片20180128020033.png
 <img src="https://img.saraba1st.com/forum/201801/28/020437wzqlhy37232q8m3l.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -34695,7 +34695,7 @@ QQ图片20180128020033.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  stuka1942  
@@ -34728,7 +34728,7 @@ QQ图片20180128020033.png
 话说女性化的机体撞到一起时还挺可爱的。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -34753,7 +34753,7 @@ QQ图片20180128020033.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本职是魔法使  
@@ -34778,7 +34778,7 @@ QQ图片20180128020033.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -34803,7 +34803,7 @@ QQ图片20180128020033.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -34843,7 +34843,7 @@ QQ图片20180128020033.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  哈迪斯兜帽  
@@ -34868,7 +34868,7 @@ QQ图片20180128020033.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  太太  
@@ -34891,7 +34891,7 @@ QQ图片20180128020033.png
 好像这话鹤望兰驾驶舱内只出现了大背头的特写，完全没有两人或者02的镜头，到底是对观众的照顾还是02驾驶状态有啥特殊的呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本职是魔法使  
@@ -34916,7 +34916,7 @@ QQ图片20180128020033.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -34960,7 +34960,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  阿斯特雷娅  
@@ -34985,7 +34985,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aimopanda  
@@ -35007,7 +35007,7 @@ Height 25-27m
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">還有7年才能見到daring 我要死啦
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -35033,7 +35033,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Arccueid  
@@ -35057,7 +35057,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  久保由利香  
@@ -35080,7 +35080,7 @@ Height 25-27m
 厉害的，这看地下都市的剧情是不是致敬EVA了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -35105,7 +35105,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -35132,7 +35132,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -35155,7 +35155,7 @@ Height 25-27m
 对于这种板上钉钉会参战的动画我是不信最后一话才上鹤望兰的
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本职是魔法使  
@@ -35180,7 +35180,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Temori  
@@ -35203,7 +35203,7 @@ Height 25-27m
 说起来，我总觉得以02的性格应该会手举高，大大咧咧地挥手的，她最后是不是缩了一下手？果然还是有点受伤吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pinkerd  
@@ -35228,7 +35228,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  downnote  
@@ -35281,7 +35281,7 @@ Height 25-27m
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -35306,7 +35306,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pokemon最爱  
@@ -35337,7 +35337,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -35370,7 +35370,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -35403,7 +35403,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Temori  
@@ -35428,7 +35428,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  哈迪斯兜帽  
@@ -35467,7 +35467,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吃我大dio  
@@ -35495,7 +35495,7 @@ Height 25-27m
 希望看到这个压抑的“伪乌托邦”世界和ape的“大人”被鹤望兰彻底轰成渣的场面。<img src="https://static.saraba1st.com/image/smiley/carton2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wuuuuuud  
 ##### 1200#       发表于 2018-1-28 02:21
@@ -35517,7 +35517,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kxgr123  
@@ -35542,7 +35542,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -35584,7 +35584,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  秋雨灰灰  
@@ -35607,7 +35607,7 @@ Height 25-27m
 016身不由己吧，我觉得他怕自己阳痿的可能很低，就是听从大人的命令，所以希望02违反命令带他上去，就跟跳舞进禁区一样，他有点依赖02
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  绝漠mk2  
@@ -35641,7 +35641,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xunit  
@@ -35666,7 +35666,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ipcjs  
@@ -35695,7 +35695,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  风怒  
@@ -35718,7 +35718,7 @@ Height 25-27m
 开播到现在四个小时就刷了八百楼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -35743,7 +35743,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -35768,7 +35768,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zadn  
@@ -35797,7 +35797,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -35821,7 +35821,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  flybike  
@@ -35849,7 +35849,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桥田至  
@@ -35873,7 +35873,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -35898,7 +35898,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -35922,7 +35922,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  BallanceHZ  
@@ -35945,7 +35945,7 @@ Height 25-27m
 感觉作画不太稳<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">制作别出岔子啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  蛇头  
@@ -35971,7 +35971,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  selain.meneth  
@@ -35997,7 +35997,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  flybike  
@@ -36028,7 +36028,7 @@ Height 25-27m
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ITUXS  
@@ -36091,7 +36091,7 @@ Screenshot_20180128-015634~01.png
 <img src="https://img.saraba1st.com/forum/201801/28/023333pp8ant7amtqnt187.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -36124,7 +36124,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -36147,7 +36147,7 @@ Screenshot_20180128-015634~01.png
 问题：这个移动都市是可以直接从熔岩抽取能量的，那么他们在第一话与叫龙的战斗中到底消耗了什么以至于一定要和26都市kissing来补充？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  moekyo  
@@ -36170,7 +36170,7 @@ Screenshot_20180128-015634~01.png
 我否认这是萝卜片<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -36201,7 +36201,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  魔法少女大泽  
@@ -36232,7 +36232,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  秋雨灰灰  
@@ -36258,7 +36258,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -36282,7 +36282,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -36307,7 +36307,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Renes  
@@ -36336,7 +36336,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xer1xxx  
@@ -36363,7 +36363,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xwz  
@@ -36391,7 +36391,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -36414,7 +36414,7 @@ Screenshot_20180128-015634~01.png
 离第四集还有164小时。闹钟已定时
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  风怒  
@@ -36450,7 +36450,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xunit  
@@ -36479,7 +36479,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -36505,7 +36505,7 @@ Screenshot_20180128-015634~01.png
 因为和孩子们不一样，现实中的成鸟是会呵护雏鸟的。。。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zadn  
@@ -36530,7 +36530,7 @@ Screenshot_20180128-015634~01.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -36561,7 +36561,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  flybike  
@@ -36591,7 +36591,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  小红飞翼  
@@ -36614,7 +36614,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 其实安检那段02的意思是一个如果办不到，那就两个一起办。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -36642,7 +36642,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -36667,7 +36667,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -36690,7 +36690,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 关键是，没有第四集看，要死了………………
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  T80UD  
@@ -36713,7 +36713,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 这话不就是没实战过的处男逛窑子，玩到一半觉得自己天赋禀异，谁知道窑姐没认真，突然窑姐认真下立马被吸干的剧情嘛。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  新月祥  
@@ -36736,7 +36736,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 看到装逼犯充被榨干，爽<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -36762,7 +36762,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  蛇头  
@@ -36787,7 +36787,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -36815,7 +36815,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pzk  
@@ -36840,7 +36840,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -36866,7 +36866,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pzk  
@@ -36897,7 +36897,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -36922,7 +36922,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -36982,7 +36982,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -37009,7 +37009,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -37037,7 +37037,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ITUXS  
@@ -37065,7 +37065,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -37090,7 +37090,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -37128,7 +37128,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -37156,7 +37156,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -37179,7 +37179,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 015听到02要来了056那边瞬间就感觉操纵杆变重了紧接着想到接吻直接同步率丢失当机....
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -37231,7 +37231,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -37256,7 +37256,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -37300,7 +37300,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  黑翼使  
@@ -37323,7 +37323,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 这话依然没啥打戏……不过看了大家的观感，<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">感觉霸道总裁爱上我这个套路，性转了男生也是爱的，男女通吃，非常有意思。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -37397,7 +37397,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -37419,7 +37419,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">43页了 等字幕组的看完又要翻死了（实际30多页）
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -37451,7 +37451,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -37476,7 +37476,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吃我大dio  
@@ -37503,7 +37503,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -37528,7 +37528,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lxl196201  
@@ -37555,7 +37555,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  chexk03  
@@ -37579,7 +37579,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -37610,7 +37610,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 不过的确有这个可能
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -37635,7 +37635,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  nanjolno  
@@ -37663,7 +37663,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -37692,7 +37692,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -37755,7 +37755,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 应该是都市需要定期去矿场周围补给，但是同时能补给的量不仅能维持自身自持，还能充当“加油机”吧。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -37780,7 +37780,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -37810,7 +37810,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -37837,7 +37837,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -37868,7 +37868,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -37893,7 +37893,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -37918,7 +37918,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -37945,7 +37945,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -37972,7 +37972,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  影之诱惑  
@@ -37995,7 +37995,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 小两口好好谈着恋爱忽然就**了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -38022,7 +38022,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xiyue365  
@@ -38047,7 +38047,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -38087,7 +38087,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 此处是作画失误了吧，金雀花的同步率突然变得和翠雀差不多了（此时666和390是在宕机状态的）。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  虚无之刃  
@@ -38112,7 +38112,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  shimotsuki14  
@@ -38135,7 +38135,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 非要拼命插旗证明男<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">主的合理性
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -38164,7 +38164,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -38195,7 +38195,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kisek1  
@@ -38222,7 +38222,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -38250,7 +38250,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -38277,7 +38277,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  可惜是个变态  
@@ -38303,7 +38303,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kisek1  
@@ -38331,7 +38331,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -38358,7 +38358,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  虚无之刃  
@@ -38381,7 +38381,7 @@ ape不待见兽形态，娜娜也说居然这时候暴走，那这种累赘设�
 话说有没有人打算把本剧2.35:1的镜头剪出来单独看一下呢
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  小红飞翼  
@@ -38404,7 +38404,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -38431,7 +38431,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -38456,7 +38456,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -38486,7 +38486,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zadn  
@@ -38511,7 +38511,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -38556,7 +38556,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 右下是第二话中金雀的数值。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kisek1  
@@ -38581,7 +38581,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xwz  
@@ -38608,7 +38608,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -38631,7 +38631,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 2000卷均国家队
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ipcjs  
@@ -38659,7 +38659,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -38684,7 +38684,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xwz  
@@ -38712,7 +38712,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -38741,7 +38741,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kuonchan  
@@ -38764,7 +38764,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 国鱼本质(´-ι_-｀)
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -38793,7 +38793,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -38828,7 +38828,7 @@ DVD非尼还没空降
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  metaphia~  
@@ -38853,7 +38853,7 @@ DVD非尼还没空降
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  黑翼使  
@@ -38876,7 +38876,7 @@ DVD非尼还没空降
 排名500开外……嗯……
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  saintsimpler  
@@ -38898,7 +38898,7 @@ DVD非尼还没空降
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">销量数字有啥意思嘛，这才第几集
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -38949,7 +38949,7 @@ DVD非尼还没空降
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -38974,7 +38974,7 @@ DVD非尼还没空降
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -39003,7 +39003,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -39037,7 +39037,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  metaphia~  
@@ -39062,7 +39062,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  saintsimpler  
@@ -39086,7 +39086,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -39111,7 +39111,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  shihao  
@@ -39138,7 +39138,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  erewrerwe  
@@ -39160,7 +39160,7 @@ BD尼限 612位
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">公屏疯狂嘲讽，这个boy是不是开头最后一个要男主起名字的小孩
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  小红飞翼  
@@ -39183,7 +39183,7 @@ BD尼限 612位
 销量超你VVV压力不大
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  性欲モンスター  
@@ -39213,7 +39213,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  saintsimpler  
@@ -39237,7 +39237,7 @@ BD尼限 612位
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -39262,7 +39262,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -39333,7 +39333,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -39378,7 +39378,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 我认为20是“动起来”的最低标准。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -39403,7 +39403,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  anyasora  
@@ -39429,7 +39429,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -39457,7 +39457,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -39486,7 +39486,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -39509,7 +39509,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 说起来第一话的时候02刚见到男主的时候就问男主愿不愿意成为她的Darling，而且也说男主的能力被埋藏起来了。这一话则感觉她在上机前就知道326没有那个素质。那么，02到底是怎么知道男主的素质的？难道是靠舔？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -39535,7 +39535,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -39566,7 +39566,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -39598,7 +39598,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  enye  
@@ -39624,7 +39624,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -39665,7 +39665,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  oneoutsider  
@@ -39691,7 +39691,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -39719,7 +39719,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  阿斯特雷娅  
@@ -39742,7 +39742,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 这集男主学会了透视，在地上仰视也能看到驾驶舱里被榨干的人是什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -39769,7 +39769,7 @@ Franxx进机战的话六围分布 射格技看女方 防命回看男方。</bloc
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  selain.meneth  
@@ -39794,7 +39794,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -39817,7 +39817,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 卖3 4000说明就只有这么多人愿意掏钱   第一卷前三集没什么大场面也是硬伤。总八卷买齐也贵。为了以后能看到这类作品还是希望多卖点
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -39839,7 +39839,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">你们已经在看销量了么，我还打算晚点再订呢。不是第一卷到4月十几号才截止么。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -39864,7 +39864,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -39887,7 +39887,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 就算没预览图A爹那个复制台本的吸引力也是最大的。。。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  saintsimpler  
@@ -39910,7 +39910,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 说起来016愿意为了救这帮子人连自己存在的意义（开鶴望兰）都可以舍弃，在这帮孩子里面确实是算成熟的了，队长015反而深陷情感漩涡不可自拔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -39935,7 +39935,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -39957,7 +39957,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">有人知道A爹那个会有set么，还是比如都订了1～4卷就有1～4卷的特典呢。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -39988,7 +39988,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -40013,7 +40013,7 @@ staff自己应该是最清楚的，机器人动画做成这样就没指望能卖
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -40053,7 +40053,7 @@ min是0-20，mean是50，max100+，可能单纯是刻度标记
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -40081,7 +40081,7 @@ min是0-20，mean是50，max100+，可能单纯是刻度标记
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  shihao  
@@ -40109,7 +40109,7 @@ min是0-20，mean是50，max100+，可能单纯是刻度标记
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -40134,7 +40134,7 @@ min是0-20，mean是50，max100+，可能单纯是刻度标记
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -40165,7 +40165,7 @@ O two这种毫无美感的肯定是不行
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -40193,7 +40193,7 @@ O two这种毫无美感的肯定是不行
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pepase  
@@ -40216,7 +40216,7 @@ O two这种毫无美感的肯定是不行
 这一集完了有没有热心坛友做015机体的麻将脸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ulir  
@@ -40247,7 +40247,7 @@ O two这种毫无美感的肯定是不行
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  帕林马哲理  
@@ -40280,7 +40280,7 @@ O two这种毫无美感的肯定是不行
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tide777  
@@ -40307,7 +40307,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -40332,7 +40332,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  烈之斩  
@@ -40355,7 +40355,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 等等，黄毛的数值就比上次出击降了个位数，可能还没波动大，你们也能分析的么<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  compass01  
@@ -40380,7 +40380,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  孤狼arcueid  
@@ -40515,7 +40515,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  如月尤菲  
@@ -40541,7 +40541,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  erewrerwe  
@@ -40566,7 +40566,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Theory_茶叶  
@@ -40592,7 +40592,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  白煞  
@@ -40617,7 +40617,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  孤狼arcueid  
@@ -40661,7 +40661,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塔奇克马  
@@ -40685,7 +40685,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  如月尤菲  
@@ -40712,7 +40712,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  六花自我中  
@@ -40735,7 +40735,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 这片我看着就一股nagi味 编剧冈妈有份还是有女脚本<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -40760,7 +40760,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -40790,7 +40790,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吃我大dio  
@@ -40819,7 +40819,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Archlich  
@@ -40846,7 +40846,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Archlich  
@@ -40873,7 +40873,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桧月彩花  
@@ -40897,7 +40897,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  孤狼arcueid  
@@ -40927,7 +40927,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  chaojiliqilin  
@@ -40956,7 +40956,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -40999,7 +40999,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -41022,7 +41022,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 喷了各位的脑洞真强<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -41060,7 +41060,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 太美
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -41083,7 +41083,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 药物不足，请各位病友自己动手<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  takayama  
@@ -41112,7 +41112,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -41135,7 +41135,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 油猴脚本怎么连不上了？（是我的问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  哈里.谢顿  
@@ -41158,7 +41158,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 一夜46页，发生啥了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  free  
@@ -41181,7 +41181,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 不仅02是特殊的，鹤望兰这个机体可能也是特殊的，不然如果说女性驾驶员和机体是一一绑定的话，在一开始是怎么确定下来这个对应关系的呢......
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  帕凡  
@@ -41235,7 +41235,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -41258,7 +41258,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 说销量不重要的，只是现在播放版权分担了一部分销量压力，不再是单一形式。碟片卖一张就是实打实赚一张的钱，不会不在意
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  521op@163.com  
@@ -41283,7 +41283,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -41308,7 +41308,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -41331,7 +41331,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 *374/*482 (0pt) DARLING in the FRANXX 1 [Blu-ray]【尼限定】，同时间比京紫高，但是也说不上好，只能说中下水平
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  nylonchina1  
@@ -41360,7 +41360,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  海鸟封  
@@ -41385,7 +41385,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吃我大dio  
@@ -41412,7 +41412,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -41436,7 +41436,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  无动于衷  
@@ -41459,7 +41459,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 这集作画倒是上去了 但还是用心画背景用脚画人物
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -41486,7 +41486,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41512,7 +41512,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  满月美夜子  
@@ -41539,7 +41539,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  满月美夜子  
@@ -41562,7 +41562,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 第4话还要再等一个星期<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  takayama  
@@ -41586,7 +41586,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  royalblue1127  
@@ -41611,7 +41611,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41636,7 +41636,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  半自动式宅  
@@ -41661,7 +41661,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -41687,7 +41687,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41712,7 +41712,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41737,7 +41737,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -41760,7 +41760,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 结合矢吹老师被绿的事，这帮老害其实特么的是在玩梗是不是？ntr的人没有好下场是不是！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41785,7 +41785,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -41810,7 +41810,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41835,7 +41835,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -41858,7 +41858,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 看着326突然又想起了西门町老人的歌词 肾亏阳痿加早泄让你上完全身一股臭味一股臭味
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41883,7 +41883,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -41915,7 +41915,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 有情有义国家队！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -41940,7 +41940,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -41963,7 +41963,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 8102年了  圆盘又不是唯一回本赚钱方式了 再说 好看就好了  再说别人买不买跟自己有什么关系  自己觉得好看买就是了。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -41991,7 +41991,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -42017,7 +42017,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -42041,7 +42041,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -42066,7 +42066,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  yubvc  
@@ -42089,7 +42089,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 压弹簧，等反弹，不过不要压崩就好，其实都是套路，也可以说是王道
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -42114,7 +42114,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -42141,7 +42141,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aptx8285144  
@@ -42168,7 +42168,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  恶意满满  
@@ -42197,7 +42197,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  吴民是  
@@ -42223,7 +42223,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -42248,7 +42248,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  惣流明日香  
@@ -42271,7 +42271,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 装逼被打脸的快感和黄毛NTR被反杀的快感结合在一起，这种驾驶姿势的真是妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  锯子万藏  
@@ -42294,7 +42294,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 16小时候是后宫王吧。。。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -42318,7 +42318,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Gato_shin  
@@ -42358,7 +42358,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 今天的だーりん・いん・ざ・ふらんきす！也相当精彩呢
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Gato_shin  
@@ -42381,7 +42381,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 我就想知道，鹤望兰啥时候出胶
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kalavine  
@@ -42406,7 +42406,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  LichEnd  
@@ -42433,7 +42433,7 @@ hiro如果给02起名字，会起出什么？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  vxzms  
@@ -42515,7 +42515,7 @@ iqiyi 版权字幕，适用于使用 cc 源的 1080p，我用的 [Erai-raws](htt
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  leleq  
@@ -42540,7 +42540,7 @@ md上当了 今石的机战戏呢！这还能叫萝卜片？！
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -42563,7 +42563,7 @@ md上当了 今石的机战戏呢！这还能叫萝卜片？！
 尼限307了，目前都在逐渐上爬，PS京紫尼限305
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  看戏专用  
@@ -42626,7 +42626,7 @@ QQ截图20180128093607.jpg
 <img src="https://img.saraba1st.com/forum/201801/28/093625bwf3wwne3o3c38yc.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  失业十年  
@@ -42654,7 +42654,7 @@ MD药味越来越重了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  老黑305  
@@ -42677,7 +42677,7 @@ MD药味越来越重了
 结果到了这一集还是没给02的驾驶姿势一个镜头，究竟是鹤望兰的驾驶室或者02有什么特别的地方，还是只是单纯照顾死宅的心情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -42703,7 +42703,7 @@ MD药味越来越重了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -42727,7 +42727,7 @@ MD药味越来越重了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  solasaya  
@@ -42750,7 +42750,7 @@ MD药味越来越重了
 看得我好兴奋
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -42773,7 +42773,7 @@ MD药味越来越重了
 从326上来开始，鹤望兰的表情是一脸的不高兴，跟第一集反差太大了2333
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mac2000  
@@ -42797,7 +42797,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -42834,7 +42834,7 @@ ichigo男性就是一护，女性翻译是草莓？
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我怎么没感觉老化了，就是感觉伤比较多
 
 
------
+*****
 
 ####  老黑305  
 ##### 1456#       发表于 2018-1-28 10:02
@@ -42843,7 +42843,7 @@ ichigo男性就是一护，女性翻译是草莓？
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">双马尾组真是越来越可爱了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -42865,7 +42865,7 @@ ichigo男性就是一护，女性翻译是草莓？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果按照这集里面说的，恐怕吸干不吸干是02可以控制的，男主损伤这么小说不定也有02的意愿在里面，这种说法我是认同的
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -42888,7 +42888,7 @@ ichigo男性就是一护，女性翻译是草莓？
 不过感觉不对啊，这帮娃不知道kiss，却知道H，这算啥子设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  看戏专用  
@@ -42913,7 +42913,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -42937,7 +42937,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -42962,7 +42962,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -42990,7 +42990,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  锯子万藏  
@@ -43015,7 +43015,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栢水病  
@@ -43038,7 +43038,7 @@ ichigo男性就是一护，女性翻译是草莓？
 弱受男主被黄毛上位，却惨遭女主吸干。这本子剧情笑死我了，看着真爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  秋雨灰灰  
@@ -43061,7 +43061,7 @@ ichigo男性就是一护，女性翻译是草莓？
 舌吻说有点意思
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  chaojiliqilin  
@@ -43102,7 +43102,7 @@ A96Hl-1INO0-M1O5R
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -43125,7 +43125,7 @@ A96Hl-1INO0-M1O5R
 鹤望兰的机体可能和别的机体不太一样，目前来说3次战斗当鹤望兰全力输出的时候男驾驶方都会失去意识，而且都没有全力战斗时女主的镜头，这有可能是隐藏信息。当鹤望兰全力战斗时女主的形态和别的驾驶员不一样，002有着龙的血，结合op台词和第一集开头，002那时候可能变成了鬼，其他驾驶舱女驾驶的都是wifi角，而鹤望兰的就是真正的角了。全力输出时同步值会超过100时并夺取男驾驶方意识作为电池，主动操控权变为002。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  厨厨光波  
@@ -43160,7 +43160,7 @@ A96Hl-1INO0-M1O5R
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Gato_shin  
@@ -43187,7 +43187,7 @@ A96Hl-1INO0-M1O5R
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塞瑞娜  
@@ -43211,7 +43211,7 @@ A96Hl-1INO0-M1O5R
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  the.x  
@@ -43236,7 +43236,7 @@ A96Hl-1INO0-M1O5R
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -43343,7 +43343,7 @@ nun@nunya_y
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Gato_shin  
@@ -43372,7 +43372,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -43397,7 +43397,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -43420,7 +43420,7 @@ nun@nunya_y
 艹，一觉起来50页了…
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -43446,7 +43446,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  windmillge  
@@ -43469,7 +43469,7 @@ nun@nunya_y
 没有第四集看我要死了.jpg
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  qt1995428  
@@ -43491,7 +43491,7 @@ nun@nunya_y
 <img src="https://wx2.sinaimg.cn/mw1024/41628a93ly1fnh4onlgmbj20my09e7n9.jpg" referrerpolicy="no-referrer">现在感觉第一集02穿校服的这段是过去的可能性更大，旁边可能是某代克隆男主？毕竟驾驶员感觉更像消耗品
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -43516,7 +43516,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  十四探求  
@@ -43541,7 +43541,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ex44559  
@@ -43564,7 +43564,7 @@ nun@nunya_y
 啊，02美如画，专心舔02就好了，不管是萝卜也好JB乱也好都没关系啊。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  骈儿  
@@ -43590,7 +43590,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  天光逸  
@@ -43617,7 +43617,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sjbssd  
@@ -43642,7 +43642,7 @@ nun@nunya_y
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  骈儿  
@@ -43667,7 +43667,7 @@ h是ero的那个h<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -43694,7 +43694,7 @@ h是ero的那个h<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sjbssd  
@@ -43721,7 +43721,7 @@ h是ero的那个h<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lokok  
@@ -43748,7 +43748,7 @@ h是ero的那个h<img src="https://static.saraba1st.com/image/smiley/face2017/06
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -43776,7 +43776,7 @@ miku这次若不是要演出受伤的同步怕不是也没得出镜
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  fang帅  
@@ -43803,7 +43803,7 @@ miku这次若不是要演出受伤的同步怕不是也没得出镜
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lokok  
@@ -43828,7 +43828,7 @@ miku这次若不是要演出受伤的同步怕不是也没得出镜
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  骈儿  
@@ -43853,7 +43853,7 @@ miku这次若不是要演出受伤的同步怕不是也没得出镜
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -43876,7 +43876,7 @@ miku这次若不是要演出受伤的同步怕不是也没得出镜
 这ED的前奏太奇怪了，像韩剧那种抓马来了要撕逼的前奏，违和感太强
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  LichEnd  
@@ -43903,7 +43903,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  怀沙汨罗  
@@ -43929,7 +43929,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  realgyf1985  
@@ -43961,7 +43961,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -43989,7 +43989,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -44018,7 +44018,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  nylonchina1  
@@ -44041,7 +44041,7 @@ ichigo男性就是一护，女性翻译是草莓？
 鹤望兰里的姿势会不会是类似江湖四十八手里的狮子舞，抱き地蔵这种男女对立型体位，而不是后入式
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -44067,7 +44067,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -44095,7 +44095,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  the.x  
@@ -44118,7 +44118,7 @@ ichigo男性就是一护，女性翻译是草莓？
 应该有kiss 因为最后一格镜头 特意画了口水痕迹
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sjbssd  
@@ -44131,7 +44131,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -44156,7 +44156,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  schneehertz  
@@ -44178,7 +44178,7 @@ ichigo男性就是一护，女性翻译是草莓？
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我看的是什么NTR大戏吗,各种小黄本里面的台词
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -44206,7 +44206,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  nexus1  
@@ -44231,7 +44231,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -44266,7 +44266,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -44296,7 +44296,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -44323,7 +44323,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -44356,7 +44356,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -44383,7 +44383,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tobelovedwow  
@@ -44406,7 +44406,7 @@ ichigo男性就是一护，女性翻译是草莓？
 我现在只想看Ditf第四话.jpg
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -44435,7 +44435,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -44463,7 +44463,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -44491,7 +44491,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -44519,7 +44519,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -44542,7 +44542,7 @@ ichigo男性就是一护，女性翻译是草莓？
 又看了一遍，挺好奇博士现在在干嘛。从私奔发言来看，02看似比孩子们自由，有更多的权限，其实被束缚、看管得更紧吧。现在这情况更像是让02在他们认为无关紧要的地方发泄下，这些下属都市怕不是都是炮灰。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sjbssd  
@@ -44565,7 +44565,7 @@ ichigo男性就是一护，女性翻译是草莓？
 02不是被管得紧，她是已经在笼子里上蹿下跳想出去了。别人还是乖乖得站在桩上。所以我说灵儿自由度高是说02在笼子里想干嘛就干嘛，就是出不去。她这么要和男主搭档也就是因为所谓比翼鸟不能单飞这种烂设定罢了。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  盖·福克斯  
@@ -44591,7 +44591,7 @@ ichigo男性就是一护，女性翻译是草莓？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  jellyfis  
@@ -44614,7 +44614,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -44642,7 +44642,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -44671,7 +44671,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  谏山创  
@@ -44694,7 +44694,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 零二超可爱，不过草莓让男主有点觉醒了呢。零二大危险啊。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -44717,7 +44717,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 男主捡了个大宝，02又骚，又聪明，不木讷，不吃醋，还懂得鼓励，居然还忠贞不二，小鸟依人女总裁，这种老婆哪里找？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  霸王向小受  
@@ -44740,7 +44740,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 期待第四话能有一段能在脑内重放意淫的畅快打戏，不然按这个路数再走几集脑子里意淫的都是其他怪怪的东西了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -44765,7 +44765,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -44794,7 +44794,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -44819,7 +44819,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -44847,7 +44847,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -44872,7 +44872,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -44895,7 +44895,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 016 015 056的三角故事应该会有一个爆点，五郎现在看上去对015和016还只是兄妹感情，保不准知道了机舱里发生的事情，黑化
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pipaopo  
@@ -44922,7 +44922,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -44947,7 +44947,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  盖·福克斯  
@@ -44979,7 +44979,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Thalassa  
@@ -45006,7 +45006,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -45032,7 +45032,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lumia  
@@ -45055,7 +45055,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 这机体设定无法接受啊，涂装还要表现出个性，有胸部也忍了，居然还有表情，张开嘴还画出一排牙<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -45084,7 +45084,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lokok  
@@ -45109,7 +45109,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  昆卡  
@@ -45193,7 +45193,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -45206,7 +45206,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -45235,7 +45235,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -45261,7 +45261,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ryuki  
@@ -45284,7 +45284,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 这是在每集实验一组新组合的可行性么。。。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  看戏专用  
@@ -45309,7 +45309,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -45343,7 +45343,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -45371,7 +45371,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -45407,7 +45407,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -45435,7 +45435,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -45460,7 +45460,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  DEMOxN  
@@ -45485,7 +45485,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -45513,7 +45513,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -45538,7 +45538,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -45564,7 +45564,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  谏山创  
@@ -45587,7 +45587,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 卧槽，黄毛千万别死，我喜欢他比喜欢男主多了，那么温柔的大哥哥
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sjbssd  
@@ -45615,7 +45615,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -45642,7 +45642,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  m99999  
@@ -45673,7 +45673,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -45701,7 +45701,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -45726,7 +45726,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -45755,7 +45755,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  loaflace  
@@ -45778,7 +45778,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 666和390也太小情侣了吧？真的笑死
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -45806,7 +45806,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  nylonchina1  
@@ -45835,7 +45835,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  田多宇光  
@@ -45858,7 +45858,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 仔细想想015凉透了啊，除非02像天元一样挂了，像eva一样疯了死了留个复制品。标题杀封面杀，现在还用同步率鞭尸莓，老贼们太过分了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -45886,7 +45886,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  huruii7  
@@ -45911,7 +45911,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Tehebe  
@@ -45934,7 +45934,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 02说他们的前辈小队团灭了？这个挺劲爆啊，到底是怎么灭的<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -45959,7 +45959,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -45982,7 +45982,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 不要慌，还有男主是克隆个体的可能性，到时候为这满世界的广厨实行配给制
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  白银紬  
@@ -46040,7 +46040,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 
 ####  D．Va  
 ##### 1573#       发表于 2018-1-28 11:51
@@ -46052,7 +46052,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 彻底放下心防是需要时间的，在此之前都可以叫做试探
 
 
------
+*****
 
 ####  七七見奈波  
 ##### 1574#       发表于 2018-1-28 11:51
@@ -46061,7 +46061,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 你们越是这么急着给015P图，难道不越是衬托她的凄惨吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aptx8285144  
@@ -46099,7 +46099,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pepase  
@@ -46127,7 +46127,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -46155,7 +46155,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  feolhn  
@@ -46191,7 +46191,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  m99999  
@@ -46216,7 +46216,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  恶魔娘阿洛  
@@ -46243,7 +46243,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  nexus1  
@@ -46268,7 +46268,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -46293,7 +46293,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  谏山创  
@@ -46357,7 +46357,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 <img src="https://img.saraba1st.com/forum/201801/28/115800orlec7jjs83malp7.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  scottrun  
@@ -46382,7 +46382,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  超法拉  
@@ -46405,7 +46405,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 196感觉…这是要和16或者15（?）好上了?
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  老黑305  
@@ -46433,7 +46433,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  profh  
@@ -46456,7 +46456,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 这集顺带卖了一波 【夫目前ntr】段子比较恶心，不过泥潭估计不少人喜欢这个<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -46478,7 +46478,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">中之人都提到了015是02的对手，凉什么凉，都特么是016的翅膀，一个都跑不了！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ryuki  
@@ -46501,7 +46501,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 这回除了胖子组外，其余四组都在一定程度上炸了，果然最稳组名不虚传
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Thalassa  
@@ -46530,7 +46530,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -46555,7 +46555,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -46583,7 +46583,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -46608,7 +46608,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -46637,7 +46637,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  麻花疼  
@@ -46663,7 +46663,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -46691,7 +46691,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -46733,7 +46733,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 之前还是比较摸棱两可的，这话倒是说得很清楚了，十位数的应该都是精英
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  feolhn  
@@ -46761,7 +46761,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sjbssd  
@@ -46784,7 +46784,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 说不过我被制作组打脸了，又号召不了别人来拉黑我就只能这样说些酸话。上集那个说男主他们不懂那种事的那个账号呢？还是个火星守望者，爬了半天楼都看不见。我现在超想看他的表情。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -46819,7 +46819,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -46844,7 +46844,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -46875,7 +46875,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -46900,7 +46900,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -46928,7 +46928,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -46941,7 +46941,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -46981,7 +46981,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 和动画的处理方式不同，双一百和角都先出现了，之后才慢吞吞的意识同步<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -47026,7 +47026,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 
 ####  we89623  
 ##### 1608#       发表于 2018-1-28 12:17
@@ -47037,7 +47037,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 醒醒 下集或者下下集就到你们俩了，一个都别想跑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -47061,7 +47061,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  my707776310  
@@ -47086,7 +47086,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ryuki  
@@ -47111,7 +47111,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Hidewhite  
@@ -47143,7 +47143,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -47166,7 +47166,7 @@ ichigo你张口闭口离不开hiro能不能提旁边这位想想？</blockquote>
 光是知道鹤望兰启动内心就有这么大的波动，下一话真要是上机回，该不会015请求02带016上机。毕竟现在015还在用战力来说服别人说服自己，本身责任感又很重
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  怀沙汨罗  
@@ -47193,7 +47193,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -47218,7 +47218,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -47243,7 +47243,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  老黑305  
@@ -47266,7 +47266,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 话说，这一集里016同步率单方面下降后，056感到“身体突然变重”这个点有没有人脑洞过？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -47291,7 +47291,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桥田至  
@@ -47323,7 +47323,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  my707776310  
@@ -47348,7 +47348,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -47376,7 +47376,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  profh  
@@ -47401,7 +47401,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -47427,7 +47427,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  royalblue1127  
@@ -47450,7 +47450,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 不要吵架，会掉数值这是事实啊，两人出现重大分歧能好好配合吗……不能说明556对谁有意见一味委曲求全
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -47475,7 +47475,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -47500,7 +47500,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -47531,7 +47531,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -47554,7 +47554,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 我观看的时候 代入的是男主视角  这个角度有意思   讨论动画的时候开着上帝视角的骂街太多了  所以开上帝视角的人 自己去神仙打架就好了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -47578,7 +47578,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  貓巫  
@@ -47605,7 +47605,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cy星旅者  
@@ -47630,7 +47630,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -47655,7 +47655,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -47682,7 +47682,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -47707,7 +47707,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -47761,7 +47761,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -47790,7 +47790,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -47818,7 +47818,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  哈迪斯兜帽  
@@ -47841,7 +47841,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 那个跳脚的终于被塞了啊 开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -47870,7 +47870,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -47899,7 +47899,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -47930,7 +47930,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -47954,7 +47954,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  my707776310  
@@ -47977,7 +47977,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 556有没有可能是想独占胖子…
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Kokichi  
@@ -48003,7 +48003,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -48032,7 +48032,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tobelovedwow  
@@ -48057,7 +48057,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -48083,7 +48083,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  icebearQAQ  
@@ -48112,7 +48112,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -48139,7 +48139,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -48164,7 +48164,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -48189,7 +48189,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -48216,7 +48216,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桥田至  
@@ -48244,7 +48244,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  feolhn  
@@ -48276,7 +48276,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  feolhn  
@@ -48305,7 +48305,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  waox  
@@ -48338,7 +48338,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -48363,7 +48363,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -48387,7 +48387,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ziyo  
@@ -48409,7 +48409,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚看完，你不是觉得xx比我大么，不满足么，我老婆让你上，帮你一展雄风
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桥田至  
@@ -48434,7 +48434,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -48458,7 +48458,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -48483,7 +48483,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -48507,7 +48507,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  桥田至  
@@ -48532,7 +48532,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -48557,7 +48557,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -48588,7 +48588,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  starfisher  
@@ -48619,7 +48619,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -48642,7 +48642,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 现在想想肥仔的机体也是有点搞笑啊，以为是个狙击手，结果是个抗刺刀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -48668,7 +48668,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -48705,7 +48705,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ziyo  
@@ -48732,7 +48732,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -48756,7 +48756,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -48780,7 +48780,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -48811,7 +48811,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  老黑305  
@@ -48836,7 +48836,7 @@ eva里的真嗣哪里称得上坚韧不拔了？同样是前三集对比，真�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aidhfinke  
@@ -48868,7 +48868,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -48897,7 +48897,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  激萌的萝莉  
@@ -48923,7 +48923,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -48949,7 +48949,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  royalblue1127  
@@ -48978,7 +48978,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -49001,7 +49001,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 我总有种黄毛以后不是黑化就是便当的感觉，便当是为了救015或者016.如果是黑化还要男主来补刀
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -49034,7 +49034,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -49058,7 +49058,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ziyo  
@@ -49083,7 +49083,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ziyo  
@@ -49111,7 +49111,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -49136,7 +49136,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  excalibur之魂  
@@ -49159,7 +49159,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 好吧心情平复下来再看了一遍，感觉没有第一次看那么差了，估计是一开始看对打斗期待太高了。目前可以确定中段转折是02要带16私奔，那么谁会跟着他们一起走，谁会留下，会是个很有趣的问题。666这组估计会跟着一起跑，其实这集可以看出666和390这对小情侣很重视对方的，如果上面逼他们**的话妥妥是要跑路的。326这集一看就是会去告密的那种，倒是眼镜女受不了他可能会跑。胖子组就有点微妙了，有剧透说沙织有不为人知的另外一面，会不会就是想飞出这个鸟笼，乖乖女不乖叛逆这个设定也蛮常见的。015妥妥留守组，很可能会加入op中出现的疑似追击部队。至于056，他到时候能躺着医院已经算是好的了。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tioit  
@@ -49186,7 +49186,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -49226,7 +49226,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 漫画的驾驶舱内部，15的表情全到萝卜上了，肉体上的一脸死鱼，看来除非意识主动回来，不然感觉都是优先放到萝卜上的，真实传感器啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  heyfly  
@@ -49255,7 +49255,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  upyzl  
@@ -49278,7 +49278,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 002被称泽拉图是什么梗，这俩是怎么相关的？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -49306,7 +49306,7 @@ FRANXX的启动数值或许是一百，但一般的雄芯也只能做到开机�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -49331,7 +49331,7 @@ zero two 谐音吧我猜<img src="https://static.saraba1st.com/image/smiley/face
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -49369,7 +49369,7 @@ zero two 谐音吧我猜<img src="https://static.saraba1st.com/image/smiley/face
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -49393,7 +49393,7 @@ zero two
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -49418,7 +49418,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -49443,7 +49443,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -49472,7 +49472,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -49497,7 +49497,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  本渡枫  
@@ -49520,7 +49520,7 @@ zero two谐音
 233 这片子 表情细节 戏太多了 比打斗有意思多了 
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -49546,7 +49546,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -49636,7 +49636,7 @@ zero two谐音
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -49663,7 +49663,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  403权限不够  
@@ -49716,7 +49716,7 @@ zero two谐音
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ziyo  
@@ -49744,7 +49744,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  shingokick  
@@ -49767,7 +49767,7 @@ zero two谐音
 情人开好房约炮，发现是老婆上班的酒店，推辞说不去。基友说你不去我去。情人回来说，你老婆和酒店经理做的不怎么样，基友技术也烂，还要我指导，你还是跟我做吧。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -49796,7 +49796,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -49821,7 +49821,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  昆卡  
@@ -49849,7 +49849,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -49874,7 +49874,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -49899,7 +49899,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  m99999  
@@ -49923,7 +49923,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -49950,7 +49950,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lost_恩恩  
@@ -49974,7 +49974,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -50001,7 +50001,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -50028,7 +50028,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  偶像程序员POI  
@@ -50064,7 +50064,7 @@ zero two谐音
 垃圾舰C换我来监督破壁没难度，冲击8W8
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  moekyo  
@@ -50087,7 +50087,7 @@ zero two谐音
 被榨干之后变帅了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  剑士  
@@ -50116,7 +50116,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -50139,7 +50139,7 @@ zero two谐音
 简直就是鬼父！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -50168,7 +50168,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -50195,7 +50195,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -50221,7 +50221,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -50244,7 +50244,7 @@ zero two谐音
 我觉得这片药效这么强一个主要原因是官方在开播前把CP配好了，还出过每个搭档的专属CM，宣传也是每对一起上，让观众形成了固有观念.....直到正片开播...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -50270,7 +50270,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Renes  
@@ -50298,7 +50298,7 @@ zero two谐音
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">他说的估计是我 上周在第二话楼就这个问题和他怼了几页 他非说这帮孩子是有性知识的男主人渣 打两句脸就甩我一句你没有性知识 然后自己就翻脸不认满地打滚了 最后后面说的观点都和前面不一样了 胡搅蛮缠的 哎呀这条被版主屏蔽了看不到他怎么打滚好气啊 
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kennede@  
@@ -50337,7 +50337,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -50360,7 +50360,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -50389,7 +50389,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -50414,7 +50414,7 @@ zero two谐音
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -50479,7 +50479,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 <img src="https://img.saraba1st.com/forum/201801/28/132259eja5a56k5nmpmg1z.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  剑士  
@@ -50504,7 +50504,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -50530,7 +50530,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pzy2222  
@@ -50556,7 +50556,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -50583,7 +50583,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -50613,7 +50613,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -50636,7 +50636,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -50661,7 +50661,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -50684,7 +50684,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 还是002这老司机太强，其他三组人对付小的都要搞半天，鹤望兰直接一枪戳爆核心收工
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -50711,7 +50711,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  十四探求  
@@ -50736,7 +50736,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -50761,7 +50761,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -50786,7 +50786,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -50810,7 +50810,7 @@ AF14B9AE-0C2D-430A-85E4-ECAF2BC3A3FF.png
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -50840,7 +50840,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  剑士  
@@ -50871,7 +50871,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -50898,7 +50898,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  love4aids  
@@ -50921,7 +50921,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 前面说赵02和林月如（015）的真绝了，怕不是会有失忆梗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -50947,7 +50947,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -50975,7 +50975,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -50999,7 +50999,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -51024,7 +51024,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -51052,7 +51052,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -51079,7 +51079,7 @@ G社没什么做不出的，官二代要是死不肯上初号机就是拖出去�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -51109,7 +51109,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  OrianaThomson  
@@ -51132,7 +51132,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 期待之后会有**play<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xwz  
@@ -51157,7 +51157,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -51181,7 +51181,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Thalassa  
@@ -51211,7 +51211,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  enye  
@@ -51236,7 +51236,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whn1103  
@@ -51267,7 +51267,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aria症候群  
@@ -51298,7 +51298,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  棒读  
@@ -51332,7 +51332,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 这段我最大的感想是这萝卜驾驶舱空间好大啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -51359,7 +51359,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  safeguard  
@@ -51386,7 +51386,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -51410,7 +51410,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -51450,7 +51450,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 贴吧偷来的
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -51475,7 +51475,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -51500,7 +51500,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -51525,7 +51525,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aidhfinke  
@@ -51554,7 +51554,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  gpx234mqx  
@@ -51580,7 +51580,7 @@ Age说的“污染”还是挺奇怪的。认为男主会污染02，而本话326
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Thalassa  
@@ -51612,7 +51612,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但猴王说�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -51638,7 +51638,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但猴王说�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  safeguard  
@@ -51665,7 +51665,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但猴王说�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  谏山创  
@@ -51728,7 +51728,7 @@ Screenshot_20180128-140248.jpg
 <img src="https://img.saraba1st.com/forum/201801/28/140306rwytuul25y978t91.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -51808,7 +51808,7 @@ Screenshot_20180128-140248.jpg
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -51831,7 +51831,7 @@ Screenshot_20180128-140248.jpg
 还有一点儿有意思的，说016和02合体，居然只收到了这么一小点儿伤害。。。是说016其实也是被伤害了？我很好奇！
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -51858,7 +51858,7 @@ Screenshot_20180128-140248.jpg
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -51886,7 +51886,7 @@ Screenshot_20180128-140248.jpg
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -51915,7 +51915,7 @@ Screenshot_20180128-140248.jpg
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -51940,7 +51940,7 @@ Screenshot_20180128-140248.jpg
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  棒读  
@@ -52050,7 +52050,7 @@ Screenshot_20180128-140248.jpg
 “小傻瓜，我的达令只有你啊”
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -52079,7 +52079,7 @@ Screenshot_20180128-140248.jpg
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ror  
@@ -52107,7 +52107,7 @@ Screenshot_20180128-140248.jpg
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -52140,7 +52140,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -52164,7 +52164,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  天青色的西风  
@@ -52192,7 +52192,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -52220,7 +52220,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  safeguard  
@@ -52251,7 +52251,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -52279,7 +52279,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -52304,7 +52304,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  elfspeeder  
@@ -52332,7 +52332,7 @@ APE不让016上机这点也没明示，有只猴子说要回收002但 ...</block
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -52395,7 +52395,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -52441,7 +52441,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 
 ####  403权限不够  
 ##### 1796#       发表于 2018-1-28 14:19
@@ -52452,7 +52452,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 主要的问题，旁边没有参照，就根本看不出机体的尺寸了。地下设施都是按照能让franxx正常通行的规格建造的，所以中间打小河豚看起来就像普通的地下城打史莱姆一样，加上666蹦蹦跳跳，更看不出这是高四十米的巨大机甲战斗了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -52481,7 +52481,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ipcjs  
@@ -52510,7 +52510,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -52532,7 +52532,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉要给271送会员了。字幕组等得煎熬，这都60页了
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -52566,7 +52566,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -52592,7 +52592,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  剑士  
@@ -52617,7 +52617,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塞瑞娜  
@@ -52642,7 +52642,7 @@ LIVE　11,969(*3,395)　13,683(*3,946)　23,009(*6,543)　17.05.31 ※合計 29,
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  暗铁  
@@ -52668,7 +52668,7 @@ B站不就能看么…
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -52695,7 +52695,7 @@ B站不就能看么…
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -52724,7 +52724,7 @@ B站不就能看么…
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  剑士  
@@ -52749,7 +52749,7 @@ B站不就能看么…
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -52777,7 +52777,7 @@ B站不就能看么…
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -52805,7 +52805,7 @@ B站国家队的翻译质量有点差
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -52830,7 +52830,7 @@ B站国家队的翻译质量有点差
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -52858,7 +52858,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -52882,7 +52882,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  safeguard  
@@ -52911,7 +52911,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -52936,7 +52936,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -52964,7 +52964,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -52992,7 +52992,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -53017,7 +53017,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -53042,7 +53042,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -53068,7 +53068,7 @@ APE对博士有防备
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -53096,7 +53096,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  剑士  
@@ -53125,7 +53125,7 @@ APE对博士有防备</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kg21xhunter  
@@ -53148,7 +53148,7 @@ APE对博士有防备</blockquote>
 接近银河美少年已经是奢望了，这展开已经降到PA黑色残骸的水准了，战斗渐趋平淡、感情戏没药味还有点矫情，再不来个爆点真就和京紫一起坐稳前8名开外了。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  黑沢逢世  
@@ -53173,7 +53173,7 @@ APE对博士有防备</blockquote>
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -53200,7 +53200,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aptx8285144  
@@ -53223,7 +53223,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 广想问莓什么然后正好被麻团打断那里,算是胜败的双面flag了，官方想怎么做都可以，说不定还要再问，虽然后面男主又一副拜托给五郎的样子，这也是有点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -53248,7 +53248,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  棒读  
@@ -53292,7 +53292,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -53316,7 +53316,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  剑士  
@@ -53341,7 +53341,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -53366,7 +53366,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -53391,7 +53391,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  safeguard  
@@ -53420,7 +53420,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Archlich  
@@ -53445,7 +53445,7 @@ https://share.dmhy.org/topics/view/480824_c-a_Raws_DARLING_in_the_F ...</blockqu
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -53473,7 +53473,7 @@ gto还有独角兽啊
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -53501,7 +53501,7 @@ gto还有独角兽啊
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -53532,7 +53532,7 @@ gto还有独角兽啊
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -53557,7 +53557,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -53582,7 +53582,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -53613,7 +53613,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  isowowsl  
@@ -53642,7 +53642,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Archlich  
@@ -53671,7 +53671,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aimopanda  
@@ -53696,7 +53696,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  危险流浪者  
@@ -53719,7 +53719,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 这集棒到哪里了？冈田玛丽苏的剧本吧？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  七七見奈波  
@@ -53742,7 +53742,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 最后出现的巨大康拉德级那个四瓣嘴……突然想起了厕纸使徒的三瓣嘴。巨大康拉德级对着翠雀张嘴想吃掉它，联想起第一话来袭的莫霍级也是奔着机体去，差一点就找上翠雀，鹤望兰出现后就盯上了鹤望兰。叫龙是想吃掉Franxx的
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  OrianaThomson  
@@ -53765,7 +53765,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 想看第4集<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  isowowsl  
@@ -53806,7 +53806,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 <img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  sherlockchu  
@@ -53830,7 +53830,7 @@ https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=444069&amp;do=thread&amp
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -53856,7 +53856,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -53880,7 +53880,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -53905,7 +53905,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -53937,7 +53937,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Thalassa  
@@ -53971,7 +53971,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -54002,7 +54002,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -54027,7 +54027,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  aria症候群  
@@ -54052,7 +54052,7 @@ oh，对，算错了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -54078,7 +54078,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -54102,7 +54102,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -54128,7 +54128,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -54159,7 +54159,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  秋雨灰灰  
@@ -54184,7 +54184,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  slsss989  
@@ -54207,7 +54207,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 博士有个特点，只有一半的机械化，而爸爸们透露出来的样子基本算是完全机械化了，所以博士还是属于有人性那一方。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lokok  
@@ -54235,7 +54235,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xer1xxx  
@@ -54258,7 +54258,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 196在战前会议中偷瞄16啊，怪不得和大背头同步失败了，估计心里装满了16
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  my707776310  
@@ -54286,7 +54286,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -54309,7 +54309,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 如果有703进回收炉，被015看到………………
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  jsyyyz  
@@ -54365,7 +54365,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pzy2222  
@@ -54389,7 +54389,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  天界AB胶  
@@ -54412,7 +54412,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 还有人惦记着703啊，欣慰<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  摩天城  
@@ -54436,7 +54436,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ynam  
@@ -54463,7 +54463,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -54488,7 +54488,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -54521,7 +54521,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Renes  
@@ -54546,7 +54546,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -54570,7 +54570,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -54595,7 +54595,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ques0712  
@@ -54617,7 +54617,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">之前没注意，这集看背影发现鹤望兰是吊带袜造型？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Archlich  
@@ -54645,7 +54645,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  谏山创  
@@ -54669,7 +54669,7 @@ franxx是以叫龙的尸体为骨架，普通人在驾驶过程中也可能会�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  namirin  
@@ -54700,7 +54700,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -54724,7 +54724,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -54749,7 +54749,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  梅塞施密特  
@@ -54773,7 +54773,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cooljoe  
@@ -54838,7 +54838,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Thalassa  
@@ -54892,7 +54892,7 @@ ed响起来的时候感动了
 还有一点比较有趣的，015开始胡思乱想后056也只是感觉到身体很重但恢复下就撤退了，而上一话里390和666情绪变化时直接活动不能了，队长机果然很强。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Theory_茶叶  
@@ -54959,7 +54959,7 @@ ed响起来的时候感动了
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  NeloAngelo  
@@ -54989,7 +54989,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -55015,7 +55015,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bgmilk  
@@ -55056,7 +55056,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  vongola  
@@ -55079,7 +55079,7 @@ ed响起来的时候感动了
 又看了遍第一集，感觉叫龙明显应该有一定智慧或者是它们背后有什么东西在指挥着它们，突袭十三市的时机正好是仪式开始的时候，而且进攻的时候先解决火炮再直奔仪式现场，可能叫龙与机体之间有着某种感应，以上都是我xjb猜的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  貓巫  
@@ -55116,7 +55116,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cyberpenk  
@@ -55153,7 +55153,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mengyao  
@@ -55181,7 +55181,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -55205,7 +55205,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  北原依绪  
@@ -55235,7 +55235,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  nejiang  
@@ -55258,7 +55258,7 @@ ed响起来的时候感动了
 开发franxx的必要性何在？eva里使徒有绝对领域所以要用同样有绝对领域的eva对抗，而叫龙只用有足够出力的岩浆能源武器就可以干掉，为何要开发franxx系统?
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塔奇克马  
@@ -55282,7 +55282,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -55308,7 +55308,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tioit  
@@ -55332,7 +55332,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -55358,7 +55358,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -55383,7 +55383,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pzy2222  
@@ -55407,7 +55407,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  北原依绪  
@@ -55432,7 +55432,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tioit  
@@ -55460,7 +55460,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  yaoxch88  
@@ -55483,7 +55483,7 @@ ed响起来的时候感动了
 看了3集，感觉056的箭头还是对着016的，对015明显不如对016关心。让他接盘也是苦。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -55515,7 +55515,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  dafangwoo  
@@ -55538,7 +55538,7 @@ ed响起来的时候感动了
 谁把sjbssd封了啊，我是冲着他的发言来的诶<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  哈迪斯兜帽  
@@ -55593,7 +55593,7 @@ ed响起来的时候感动了
 查看全部评分
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cyberpenk  
@@ -55618,7 +55618,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  unnilennium  
@@ -55651,7 +55651,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -55676,7 +55676,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -55703,7 +55703,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  石诚  
@@ -55731,7 +55731,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cyberpenk  
@@ -55759,7 +55759,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  望月凝香  
@@ -55791,7 +55791,7 @@ ed响起来的时候感动了
 在打史莱姆的时候，灵儿自己都能维持人形轻松干翻对面；但是面对莫霍级这种，她单刷必须全身心投入，没精力去照顾人形的精细操作了。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -55819,7 +55819,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塔奇克马  
@@ -55847,7 +55847,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -55878,7 +55878,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cyberpenk  
@@ -55903,7 +55903,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  REIKA  
@@ -55928,7 +55928,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  貓巫  
@@ -55956,7 +55956,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -55981,7 +55981,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whiteship  
@@ -56015,7 +56015,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  美利坚大老爹  
@@ -56043,7 +56043,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  午夜的蚊子波  
@@ -56066,7 +56066,7 @@ ed响起来的时候感动了
 男主还真是个取名狂人。。 02会被取什么名字呢？ 难道是 “飞鸟”？
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whiteship  
@@ -56093,7 +56093,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Theory_茶叶  
@@ -56115,7 +56115,7 @@ ed响起来的时候感动了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">02叫欧尼（ONI）的话，昵称可以叫欧尼酱。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whiteship  
@@ -56143,7 +56143,7 @@ ed响起来的时候感动了
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  cyberpenk  
@@ -56174,7 +56174,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -56201,7 +56201,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -56229,7 +56229,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Ember  
@@ -56254,7 +56254,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  vxzms  
@@ -56279,7 +56279,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -56306,7 +56306,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Gato_shin  
@@ -56334,7 +56334,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  REIKA  
@@ -56362,7 +56362,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -56387,7 +56387,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kmno4  
@@ -56419,7 +56419,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -56442,7 +56442,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 看完了 感觉一般 主要326来搅屎 但是不搅也没后面的爽到 爬楼去
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  废基  
@@ -56469,7 +56469,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ASDJKL  
@@ -56494,7 +56494,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -56519,7 +56519,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -56548,7 +56548,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  北原依绪  
@@ -56611,7 +56611,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 <img src="https://img.saraba1st.com/forum/201801/28/165516jjsr84y1r2x77r97.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -56635,7 +56635,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zyw0  
@@ -56658,7 +56658,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 淋淋2这么能吸，当然是叫做淋淋啦
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  戏谑二次元  
@@ -56688,7 +56688,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -56717,7 +56717,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lancerhd2  
@@ -56742,7 +56742,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -56767,7 +56767,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -56808,7 +56808,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 
 ####  we89623  
 ##### 1951#       发表于 2018-1-28 17:06
@@ -56817,7 +56817,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 “博士说寄驶员色一点比较好”  这是不是伏笔，怕是某张蓝色调的小漫画的脑洞不是空穴来风，坐等驾驶室里本垒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -56842,7 +56842,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  第三视点  
@@ -56867,7 +56867,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  slsss989  
@@ -56890,7 +56890,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 吹爆，这个剧情走向有意思，果然老家伙们懂得很。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  septer  
@@ -56915,7 +56915,7 @@ EVA还可以强行解释为，半超级系的AT立场也许有对重力加速度
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kxgr123  
@@ -56940,7 +56940,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  第三视点  
@@ -56965,7 +56965,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -56988,7 +56988,7 @@ EVA的一个外传性质GAL，钢铁女友
 想了想大概还是买aniplex+的bd了，送的台本比其他家的特典都有吸引力
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  阿尔法罗密欧  
@@ -57020,7 +57020,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xwr  
@@ -57042,7 +57042,7 @@ EVA的一个外传性质GAL，钢铁女友
 <img src="http://wx4.sinaimg.cn/mw690/dcec95dfly1fnwfratcdlj214p2gwniv.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57071,7 +57071,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xwz  
@@ -57096,7 +57096,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -57119,7 +57119,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57142,7 +57142,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whosmex  
@@ -57165,7 +57165,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -57190,7 +57190,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  暗黑能乐  
@@ -57217,7 +57217,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -57244,7 +57244,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57268,7 +57268,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -57292,7 +57292,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  暗黑能乐  
@@ -57317,7 +57317,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  暗黑能乐  
@@ -57342,7 +57342,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -57366,7 +57366,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  黑雪姫  
@@ -57392,7 +57392,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  deidara  
@@ -57417,7 +57417,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  黑雪姫  
@@ -57440,7 +57440,7 @@ EVA的一个外传性质GAL，钢铁女友
 326受到这次教训应该会收敛很多，196在关怀一下这对应该比较稳，除非196也闹一下景<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57466,7 +57466,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  oyss1225  
@@ -57489,7 +57489,7 @@ EVA的一个外传性质GAL，钢铁女友
 泽拉图还行
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  takayama  
@@ -57516,7 +57516,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whiteship  
@@ -57543,7 +57543,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -57568,7 +57568,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57594,7 +57594,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  elflie  
@@ -57622,7 +57622,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57665,7 +57665,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57689,7 +57689,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pzy2222  
@@ -57713,7 +57713,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -57740,7 +57740,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  D．Va  
@@ -57767,7 +57767,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  vxzms  
@@ -57790,7 +57790,7 @@ EVA的一个外传性质GAL，钢铁女友
 我到现在都只能记住 015 016 056 666 几个序号 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -57814,7 +57814,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  tioover  
@@ -57843,7 +57843,7 @@ EVA的一个外传性质GAL，钢铁女友
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  feolhn  
@@ -57870,7 +57870,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -57897,7 +57897,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  populareal  
@@ -57921,7 +57921,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57945,7 +57945,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  梅塞施密特  
@@ -57968,7 +57968,7 @@ EVA的一个外传性质GAL，钢铁女友
 **81/**75(------pt)DitF(国家队) 1 ☆ 卐一首凉凉，进前50无望
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -57992,7 +57992,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  mimighost  
@@ -58017,7 +58017,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ziyo  
@@ -58044,7 +58044,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  梅塞施密特  
@@ -58070,7 +58070,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  feolhn  
@@ -58095,7 +58095,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -58121,7 +58121,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  艾叶  
@@ -58146,7 +58146,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  JintaBuster  
@@ -58171,7 +58171,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  populareal  
@@ -58196,7 +58196,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -58220,7 +58220,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  starfisher  
@@ -58244,7 +58244,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -58268,7 +58268,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  we89623  
@@ -58291,7 +58291,7 @@ EVA的一个外传性质GAL，钢铁女友
 326在鹤望兰里的宣言太吊了，不知道他以后如何脸面见大家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -58316,7 +58316,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Mcore  
@@ -58341,7 +58341,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  北原依绪  
@@ -58368,7 +58368,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whiteship  
@@ -58408,7 +58408,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ziyo  
@@ -58433,7 +58433,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whiteship  
@@ -58461,7 +58461,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  fxxffs  
@@ -58490,7 +58490,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  神剑烧鸡  
@@ -58522,7 +58522,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  elflie  
@@ -58545,7 +58545,7 @@ EVA的一个外传性质GAL，钢铁女友
 不知道是不是作画失误，在最后02出舱门转头看326的时候的时候，有个装发卡的动作跟音效，但是前面出门朝着16挥手的时候发卡还在。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Mcore  
@@ -58570,7 +58570,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -58593,7 +58593,7 @@ EVA的一个外传性质GAL，钢铁女友
 才注意到吊兰号的熔岩武器是装在腿上的啊，莫不是杀手阿一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  clmp124  
@@ -58621,7 +58621,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  pipaopo  
@@ -58649,7 +58649,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  starfisher  
@@ -58672,7 +58672,7 @@ EVA的一个外传性质GAL，钢铁女友
 不知你们留意到没有，02出击前有一句“这里的部队又会全灭哦”，感觉这些驾驶员都是相当易损的消耗品，团灭的惨案经常发生啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -58699,7 +58699,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  yy19  
@@ -58724,7 +58724,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  elflie  
@@ -58748,7 +58748,7 @@ EVA的一个外传性质GAL，钢铁女友
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -58771,7 +58771,7 @@ chibi的评价，说黄色基调的地下都市是蜂巢，少年少女是雌雄
 chibi的评价，说黄色基调的地下都市是蜂巢，少年少女是雌雄蕊，但也是工蜂，02既是女王蜂又是寻找蜂蜜的熊，或者说是伪装成女王蜂的熊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  冬云研究所  
@@ -58796,7 +58796,7 @@ chibi的评价，说黄色基调的地下都市是蜂巢，少年少女是雌雄
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -58824,7 +58824,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -58870,7 +58870,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 说明对这组人还是有一定期待的
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 2031#       发表于 2018-1-28 19:37
@@ -58879,7 +58879,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 感觉隔壁帖的轮回脑洞跟016无限克隆体有点意思啊
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  時期信物  
@@ -58902,7 +58902,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 以后会有02的权限都被取消干脆被关起来的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -58929,7 +58929,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -58956,7 +58956,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -58980,7 +58980,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -59003,7 +59003,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 无缘无故取消002的高级权限相当于APE和博士彻底撕破脸了，早期不会出现这种剧情的
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  栗悟饭177  
@@ -59026,7 +59026,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 万一博士才是黑中黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塔奇克马  
@@ -59049,7 +59049,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 蓝毛到底精神稳定到什么程度才能抓02啊..这个暂时看不可能的.
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  hu14  
@@ -59075,7 +59075,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ティグル  
@@ -59101,7 +59101,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  hu14  
@@ -59124,7 +59124,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 另，下一话，主角上196的可能性......不低吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  bird-lay  
@@ -59149,7 +59149,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  chenjicai  
@@ -59176,7 +59176,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  hu14  
@@ -59207,7 +59207,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zadn  
@@ -59230,7 +59230,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 015蛮多双关台词的，上集的ヘタクソ和这集的しっかりしろ都可以既指016又指自己，不知道是凑巧还是角色设定上的某种安排
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  梅塞施密特  
@@ -59255,7 +59255,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  lokok  
@@ -59278,7 +59278,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 本话末尾16的倒叙，我很确定必然要喂药给我们。<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  xingenge  
@@ -59303,7 +59303,7 @@ dmzj有本叫“想让可爱的上司为我困扰“的漫画，女主很像015�
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  塔奇克马  
@@ -59330,7 +59330,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  ywmmmw  
@@ -59354,7 +59354,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -59382,7 +59382,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zerorin  
@@ -59405,7 +59405,7 @@ APE的人告诉她关于franxx这些事
 要是从196那里拿到正式雄蕊资格，那015真的哭的越演越烈了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  OrianaThomson  
@@ -59428,7 +59428,7 @@ APE的人告诉她关于franxx这些事
 70页……
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -59453,7 +59453,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -59478,7 +59478,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  Arccueid  
@@ -59501,7 +59501,7 @@ APE的人告诉她关于franxx这些事
 现在还是想看到世界观展开，目前故事里的一切给我都有一种虚伪的感觉，那种理想乌托邦的气息，让人很难受。赶紧打破吧。
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -59528,7 +59528,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  skives  
@@ -59551,7 +59551,7 @@ APE的人告诉她关于franxx这些事
 国家队是店头强的类型
 
 
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  枢木スザク  
@@ -59578,7 +59578,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  zkn1968  
@@ -59606,7 +59606,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  你说这个谁懂  
@@ -59630,7 +59630,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  arsenalfcc  
@@ -59655,7 +59655,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  whiteship  
@@ -59683,7 +59683,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  猫睛石  
@@ -59715,7 +59715,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  amulelernen  
@@ -59741,7 +59741,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  liliaceae  
@@ -59768,7 +59768,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  m99999  
@@ -59793,7 +59793,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -59820,7 +59820,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  
@@ -59845,7 +59845,7 @@ APE的人告诉她关于franxx这些事
 
 *****
 =======
------
+*****
 >>>>>>> 20e0e65b (上传于 2021年07月19日 09:20)
 
 ####  kiralzb  

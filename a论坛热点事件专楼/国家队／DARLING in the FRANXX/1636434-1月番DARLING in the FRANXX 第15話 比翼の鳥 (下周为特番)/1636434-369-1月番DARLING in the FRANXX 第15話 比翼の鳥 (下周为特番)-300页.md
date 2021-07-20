@@ -1,6 +1,6 @@
 
 
------
+*****
 
 ####  isummon  
 ##### 8971#       发表于 2018-4-25 00:38
@@ -12,7 +12,7 @@
 因为他还没有发展到完全体，没有开始编排13小队的诸位……
 
 
------
+*****
 
 ####  love4aids  
 ##### 8972#       发表于 2018-4-25 00:38
@@ -27,7 +27,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 我看这7个猴子也不像是缺时间的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 8973#       发表于 2018-4-25 00:38
@@ -39,7 +39,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 我觉得泥潭这种爱骂就骂，老子怼的就是你的氛围挺可爱的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 8974#       发表于 2018-4-25 00:38
@@ -57,7 +57,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 本质爱的是另一个勇敢和强大的自己<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 8975#       发表于 2018-4-25 00:39
@@ -70,7 +70,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 说到底就是打不过，ape高呼不可战胜
 
 
------
+*****
 
 ####  love4aids  
 ##### 8976#       发表于 2018-4-25 00:39
@@ -82,7 +82,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 恢复记忆了，满这不就屁颠屁颠的凑上来了
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 8977#       发表于 2018-4-25 00:39
@@ -95,7 +95,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 8978#       发表于 2018-4-25 00:40
@@ -108,7 +108,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 8979#       发表于 2018-4-25 00:40
@@ -123,7 +123,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 高级自恋体<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 8980#       发表于 2018-4-25 00:41
@@ -132,7 +132,7 @@ ape在各种意外时刻表现得都非常淡定，要不是他们死生看淡�
 300了，556不可避。666感觉都不是梦啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 8981#       发表于 2018-4-25 00:41
@@ -145,7 +145,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 说不定那个大波斯菊就可以变形巨型机器人，反正也叫花
 
 
------
+*****
 
 ####  love4aids  
 ##### 8982#       发表于 2018-4-25 00:41
@@ -157,7 +157,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 这7个猴子估计活的时间也挺久了，也不知道能继续活多长时间，自然而然佛系了
 
 
------
+*****
 
 ####  skives  
 ##### 8983#       发表于 2018-4-25 00:41
@@ -169,7 +169,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 是会凑上来啊，但当你看到他和别人比翼双飞、流露出平时从来没见过的感情时还是会难受的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 8984#       发表于 2018-4-25 00:42
@@ -181,7 +181,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 的确，啊广的操作是真的骚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 8985#       发表于 2018-4-25 00:42
@@ -193,7 +193,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  isummon  
 ##### 8986#       发表于 2018-4-25 00:42
@@ -207,7 +207,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 我们什么BUG没有见过？这次肯定没有BUG了嘛。都给大家整的明明白白。
 
 
------
+*****
 
 ####  80proof  
 ##### 8987#       发表于 2018-4-25 00:43
@@ -223,7 +223,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 阿广走的还不算偏<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 8988#       发表于 2018-4-25 00:43
@@ -232,7 +232,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 300楼留个名<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 8989#       发表于 2018-4-25 00:44
@@ -249,7 +249,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 然后在每年给56献花的日子，五对小两口总能忆起曾经美好的时光
 
 
------
+*****
 
 ####  Schorched  
 ##### 8990#       发表于 2018-4-25 00:44
@@ -261,7 +261,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 想多了，菊这种东西就是用来捅的
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 8991#       发表于 2018-4-25 00:44
@@ -276,7 +276,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 波斯菊变形了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 8992#       发表于 2018-4-25 00:45
@@ -285,7 +285,7 @@ APE会开机甲么，不会的话，那只好做个被阴死的角色了
 APE感觉更像开MA的<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 8993#       发表于 2018-4-25 00:46
@@ -294,7 +294,7 @@ APE感觉更像开MA的<img src="https://static.saraba1st.com/image/smiley/face2
 不是萝卜的话 可能都是一枪捅爆
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 8994#       发表于 2018-4-25 00:46
@@ -310,7 +310,7 @@ APE感觉更像开MA的<img src="https://static.saraba1st.com/image/smiley/face2
 而且尽管风险高还是买了小草莓牌保险，赚了赚了
 
 
------
+*****
 
 ####  isummon  
 ##### 8995#       发表于 2018-4-25 00:47
@@ -319,7 +319,7 @@ APE感觉更像开MA的<img src="https://static.saraba1st.com/image/smiley/face2
 金雀鸟炮换更大的狙炮，底下一个lockon直接就打穿了，不和程序猿们逼逼
 
 
------
+*****
 
 ####  love4aids  
 ##### 8996#       发表于 2018-4-25 00:48
@@ -331,7 +331,7 @@ APE感觉更像开MA的<img src="https://static.saraba1st.com/image/smiley/face2
 阿广买的保险挺有风险的，要不是能遇到现在的大02，现在估计已经抑郁自杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 8997#       发表于 2018-4-25 00:49
@@ -344,7 +344,7 @@ APE感觉更像开MA的<img src="https://static.saraba1st.com/image/smiley/face2
 ape兄弟要不要来盒毛峰
 
 
------
+*****
 
 ####  whn1103  
 ##### 8998#       发表于 2018-4-25 00:50
@@ -357,7 +357,7 @@ ape兄弟要不要来盒毛峰
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
------
+*****
 
 ####  davidcch12  
 ##### 8999#       发表于 2018-4-25 00:50
@@ -369,7 +369,7 @@ ape兄弟要不要来盒毛峰
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9000#       发表于 2018-4-25 00:50
@@ -384,7 +384,7 @@ ape兄弟要不要来盒毛峰
 我绝对是哪里不对
 
 
------
+*****
 
 ####  novid  
 ##### 9001#       发表于 2018-4-25 00:51
@@ -399,7 +399,7 @@ ape兄弟要不要来盒毛峰
 已经进入接受期了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elflie  
 ##### 9002#       发表于 2018-4-25 00:51
@@ -408,7 +408,7 @@ ape兄弟要不要来盒毛峰
 懂得backup都市还不知道backup自己？APE自己说不定都backup了不知道多少次了。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9003#       发表于 2018-4-25 00:51
@@ -425,7 +425,7 @@ ape兄弟要不要来盒毛峰
 你怎么和我反的
 
 
------
+*****
 
 ####  novid  
 ##### 9004#       发表于 2018-4-25 00:51
@@ -436,7 +436,7 @@ ape兄弟要不要来盒毛峰
 backup总得有服务器吧，你服务器放哪呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9005#       发表于 2018-4-25 00:51
@@ -454,7 +454,7 @@ backup总得有服务器吧，你服务器放哪呢<img src="https://static.sara
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9006#       发表于 2018-4-25 00:52
@@ -465,7 +465,7 @@ backup总得有服务器吧，你服务器放哪呢<img src="https://static.sara
 主要是小草莓牌保险的推销员不是很善解人意
 
 
------
+*****
 
 ####  lanhao  
 ##### 9007#       发表于 2018-4-25 00:52
@@ -477,7 +477,7 @@ backup总得有服务器吧，你服务器放哪呢<img src="https://static.sara
 网瘾少年都得死！
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9008#       发表于 2018-4-25 00:52
@@ -486,7 +486,7 @@ backup总得有服务器吧，你服务器放哪呢<img src="https://static.sara
 00洛叔那突破大气层的射击，只用过一次...<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9009#       发表于 2018-4-25 00:52
@@ -499,7 +499,7 @@ backup总得有服务器吧，你服务器放哪呢<img src="https://static.sara
 不过，就怕锦织打我脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 9010#       发表于 2018-4-25 00:53
@@ -515,7 +515,7 @@ a system of rules that explain the correct conduct and procedures to be followed
 a code prescribing strict adherence to correct etiquette and precedence (as in diplomatic exchange and in the military services) a breach of protocol
 
 
------
+*****
 
 ####  whn1103  
 ##### 9011#       发表于 2018-4-25 00:54
@@ -529,7 +529,7 @@ a code prescribing strict adherence to correct etiquette and precedence (as in d
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9012#       发表于 2018-4-25 00:54
@@ -542,7 +542,7 @@ a code prescribing strict adherence to correct etiquette and precedence (as in d
 你这是忍耐适应性治疗么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Prolun  
 ##### 9013#       发表于 2018-4-25 00:55
@@ -557,7 +557,7 @@ a code prescribing strict adherence to correct etiquette and precedence (as in d
 泥潭坛友迅速度过悲伤五阶段。锦织堪称新时代心理大师。
 
 
------
+*****
 
 ####  isummon  
 ##### 9014#       发表于 2018-4-25 00:55
@@ -566,7 +566,7 @@ a code prescribing strict adherence to correct etiquette and precedence (as in d
 要备份，S计划一目了然了，就是Server计划。所以只要小队把之前去过的点都打爆就行了。
 
 
------
+*****
 
 ####  elflie  
 ##### 9015#       发表于 2018-4-25 00:55
@@ -580,7 +580,7 @@ a code prescribing strict adherence to correct etiquette and precedence (as in d
 死宅ape还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9016#       发表于 2018-4-25 00:56
@@ -591,7 +591,7 @@ a code prescribing strict adherence to correct etiquette and precedence (as in d
 cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9017#       发表于 2018-4-25 00:58
@@ -602,7 +602,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩<img src="h
 APE:这就是......人类的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elflie  
 ##### 9018#       发表于 2018-4-25 00:59
@@ -614,7 +614,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 你让我想起了本拉登的电脑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luyifuif  
 ##### 9019#       发表于 2018-4-25 01:25
@@ -623,7 +623,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 这么快就刷到300页了，703指日可待..
 
 
------
+*****
 
 ####  novid  
 ##### 9020#       发表于 2018-4-25 01:26
@@ -635,7 +635,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 特番不会有什么新信息，刷个100楼到头了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9021#       发表于 2018-4-25 01:27
@@ -644,7 +644,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 那要看最后给你抖什么料，吹什么逼，一切皆有可能
 
 
------
+*****
 
 ####  luyifuif  
 ##### 9022#       发表于 2018-4-25 01:28
@@ -658,7 +658,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 别低估泥潭的假药喔<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  RedBaby  
 ##### 9023#       发表于 2018-4-25 01:28
@@ -667,7 +667,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 希望能透点未来的走向好制药…
 
 
------
+*****
 
 ####  isummon  
 ##### 9024#       发表于 2018-4-25 01:29
@@ -676,7 +676,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 声优只要说一句“结局有两个人便当了”，可劲儿猜到703吧
 
 
------
+*****
 
 ####  novid  
 ##### 9025#       发表于 2018-4-25 01:30
@@ -687,7 +687,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 然而就你国的信息保密程度绝逼不可能透出这种级别的料的……顶多说一下请注意xx和oo的后续展开什么的
 
 
------
+*****
 
 ####  早見紗織  
 ##### 9026#       发表于 2018-4-25 01:30
@@ -696,7 +696,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 特番光分锅大会至少水个50页吧
 
 
------
+*****
 
 ####  kira1988  
 ##### 9027#       发表于 2018-4-25 01:32
@@ -708,7 +708,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 乾脆搞個平行天堂那樣的不交配就只能活到20歲
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9028#       发表于 2018-4-25 01:34
@@ -720,7 +720,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 如果只有两个人，那就不用猜了，都知道是谁
 
 
------
+*****
 
 ####  isummon  
 ##### 9029#       发表于 2018-4-25 01:38
@@ -732,7 +732,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 不一定哦，每个人都有死去的理由
 
 
------
+*****
 
 ####  ひびき  
 ##### 9030#       发表于 2018-4-25 01:39
@@ -749,7 +749,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 9031#       发表于 2018-4-25 01:51
@@ -758,7 +758,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 男女主的打架爆发回合，就是4，6和今次的15，好评率逐渐下降中……
 
 
------
+*****
 
 ####  poonhk  
 ##### 9032#       发表于 2018-4-25 03:01
@@ -767,7 +767,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 七猴子现在的身体说不定只是个壳子
 
 
------
+*****
 
 ####  xyau  
 ##### 9033#       发表于 2018-4-25 03:46
@@ -789,7 +789,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 从孤注一掷到自主选择，从无情利用到后悔自责，其实人物塑造趋势是好的，但是战斗紧迫感除了#1都不足，#15给0216的情感酝酿也不足，战斗方式自#4起还一成不变，高潮观感自然是逐步下降了。
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9034#       发表于 2018-4-25 04:10
@@ -798,7 +798,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 话说，02真爱楼怎么找不到了……我还想找楼里02的捏人数据呢<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9035#       发表于 2018-4-25 04:13
@@ -807,7 +807,7 @@ cb里有一集不就是这样吗 邪教组织头目是个尼哥小孩</blockquot
 w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9036#       发表于 2018-4-25 04:55
@@ -818,7 +818,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 回复同人圆梦还行
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 9037#       发表于 2018-4-25 05:18
@@ -830,7 +830,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 太和666
 
 
------
+*****
 
 ####  绫魂h  
 ##### 9038#       发表于 2018-4-25 05:35
@@ -839,7 +839,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
  我推荐心满
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9039#       发表于 2018-4-25 05:36
@@ -850,7 +850,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 之前有个广美小黄图 下面就有个霓虹小哥评论 这大概就是她的本愿吧 
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9040#       发表于 2018-4-25 05:42
@@ -859,7 +859,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如开个你希望国家队谁便当的投票
 
 
------
+*****
 
 ####  绫魂h  
 ##### 9041#       发表于 2018-4-25 05:46
@@ -874,7 +874,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 但是2个人便当的话就不好说了
 
 
------
+*****
 
 ####  xiyue365  
 ##### 9042#       发表于 2018-4-25 05:46
@@ -886,7 +886,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 这个投票好像很早之前就有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ynam  
 ##### 9043#       发表于 2018-4-25 05:52
@@ -897,7 +897,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 之前十人访谈对自身的角色都像是关爱子女的家长感言，都说请大家关注孩子们的成长，突然来一句有人会死哦，这声优得多KY。
 
 
------
+*****
 
 ####  冰冻火柴  
 ##### 9044#       发表于 2018-4-25 06:44
@@ -906,7 +906,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 对于02前后性格差异可以这样想，一只大狗一开始没找到主人，在别人面前耍酷装狼狗，凭借气味找到失散多年的主人后立马原型毕现成为哈士奇了
 
 
------
+*****
 
 ####  Rouya  
 ##### 9045#       发表于 2018-4-25 07:14
@@ -923,7 +923,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 只不过当时认为是个萨摩耶或者金毛，没想到是个哈士奇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Rouya  
 ##### 9046#       发表于 2018-4-25 07:20
@@ -935,7 +935,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 [https://bbs.saraba1st.com/2b/thread-1579836-1-1.html](https://bbs.saraba1st.com/2b/thread-1579836-1-1.html)
 
 
------
+*****
 
 ####  冰冻火柴  
 ##### 9047#       发表于 2018-4-25 07:36
@@ -944,7 +944,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 下一话，能源用尽、种植园被毁大半，nana姐宣布接济的种植园正在赶来途中，需要在原地等几天，13小队开始孤岛求生，莓失恋后决定彻底抛弃恋爱脑成为可靠的队长，通过协调各位队员的特长渡过难关，取得了大家的认同，披上军大衣成为本片新任B格担当，以后见面都要立正行军礼喊“莓队好”。 02的话，可以让她在小队一起孤岛求生，和13小队建立羁绊，明白伙伴的意义，彻底软化；也可以被大手拖入地下，和16、9队一起去揭开叫龙的秘密。
 
 
------
+*****
 
 ####  isummon  
 ##### 9048#       发表于 2018-4-25 07:37
@@ -957,7 +957,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 #1的战斗由于有失忆的问题没有讲，所以我没有把它放进去。正如你所说的，人物塑造是层层递进的，战斗也是逐级加码的，本来应该是双份的快乐，结果却……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9049#       发表于 2018-4-25 07:37
@@ -971,7 +971,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 9050#       发表于 2018-4-25 07:39
@@ -983,7 +983,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9051#       发表于 2018-4-25 07:40
@@ -998,7 +998,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 她02不玩这气质了我们莓玩不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9052#       发表于 2018-4-25 07:42
@@ -1011,7 +1011,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 幼女体型不妨碍威压气质的
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9053#       发表于 2018-4-25 07:44
@@ -1022,7 +1022,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 五郎幼女体型也喜欢，观球也有份，木星全控血统啦
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9054#       发表于 2018-4-25 07:47
@@ -1033,7 +1033,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 就算在动画里也是靠着主角光环活到第一集.....
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9055#       发表于 2018-4-25 07:49
@@ -1046,7 +1046,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 啥锅配啥盖
 
 
------
+*****
 
 ####  Gato_shin  
 ##### 9056#       发表于 2018-4-25 07:52
@@ -1058,7 +1058,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 你別說，090早衰搞不好就是陰陽不調
 
 
------
+*****
 
 ####  冰冻火柴  
 ##### 9057#       发表于 2018-4-25 07:59
@@ -1072,7 +1072,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 三天三夜后，广主席：闹闹真棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ipcjs  
 ##### 9058#       发表于 2018-4-25 08:10
@@ -1087,7 +1087,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 — from Google Pixel 2 XL, Android 8.1.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  isummon  
 ##### 9059#       发表于 2018-4-25 08:20
@@ -1106,7 +1106,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 2018-4-25 08:20 上传
 
 
------
+*****
 
 ####  塞瑞娜  
 ##### 9060#       发表于 2018-4-25 08:21
@@ -1115,7 +1115,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 可惜这片子鹤望兰没有机娘，有的话我看你们这些变态通通都得叛党
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9061#       发表于 2018-4-25 08:30
@@ -1127,7 +1127,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  五更伪境  
 ##### 9062#       发表于 2018-4-25 08:42
@@ -1154,7 +1154,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">看推上有人脑补216告白的时候为什么326把头别过去xs
 
 
------
+*****
 
 ####  isummon  
 ##### 9063#       发表于 2018-4-25 08:43
@@ -1167,7 +1167,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 就本集的哭颜来说……很贴切啊
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9064#       发表于 2018-4-25 09:01
@@ -1183,7 +1183,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不错，我喜欢
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9065#       发表于 2018-4-25 09:16
@@ -1194,7 +1194,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 周六特番有直播地址吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  五更伪境  
 ##### 9066#       发表于 2018-4-25 09:17
@@ -1206,7 +1206,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 我看有好几个版本，大意都差不多，都有点腻
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9067#       发表于 2018-4-25 09:38
@@ -1228,7 +1228,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 <img src="https://img.saraba1st.com/forum/201804/25/093829psmjyng0ydrmdmbk.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9068#       发表于 2018-4-25 09:40
@@ -1240,7 +1240,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 还没有人抓OST......
 
 
------
+*****
 
 ####  love4aids  
 ##### 9069#       发表于 2018-4-25 09:44
@@ -1252,7 +1252,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 为什么会扯上东山啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9070#       发表于 2018-4-25 09:48
@@ -1263,7 +1263,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 闹闹是指女人x狗狗里的一只狗吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9071#       发表于 2018-4-25 09:54
@@ -1272,7 +1272,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 希望两个月后我不会气到掰盘<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9072#       发表于 2018-4-25 09:58
@@ -1284,7 +1284,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 掰盘的时候要不要直播一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9073#       发表于 2018-4-25 10:00
@@ -1297,7 +1297,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9074#       发表于 2018-4-25 10:05
@@ -1309,7 +1309,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 9075#       发表于 2018-4-25 10:12
@@ -1318,7 +1318,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 也不用掰盘吧，最坏的结果无非来一次大号国15，照样有人爽到，卖给他们回血即可
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9076#       发表于 2018-4-25 10:15
@@ -1342,7 +1342,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 2018-4-25 10:15 上传
 
 
------
+*****
 
 ####  七夜琉璃  
 ##### 9077#       发表于 2018-4-25 10:17
@@ -1356,7 +1356,7 @@ w ww.pixiv.net/member_illust.php?mode=medium&amp;illust_id=68387333</blockquote>
 mato老师真是吐槽大师
 
 
------
+*****
 
 ####  xingenge  
 ##### 9078#       发表于 2018-4-25 10:17
@@ -1365,7 +1365,7 @@ mato老师真是吐槽大师
 冲突了
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9079#       发表于 2018-4-25 10:22
@@ -1377,7 +1377,7 @@ mato老师真是吐槽大师
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9080#       发表于 2018-4-25 10:25
@@ -1388,7 +1388,7 @@ mato是神！！
 所以啥时候能盼到好心人的台本扫图
 
 
------
+*****
 
 ####  五更伪境  
 ##### 9081#       发表于 2018-4-25 10:26
@@ -1397,7 +1397,7 @@ mato是神！！
 マスコット的かわいさ叫竜くん<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9082#       发表于 2018-4-25 10:29
@@ -1409,7 +1409,7 @@ mato是神！！
 工具龙石锤了，不如改名吉祥物龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9083#       发表于 2018-4-25 10:31
@@ -1421,7 +1421,7 @@ mato是神！！
 为什么又扯到lex了，贵方混过蕾粉群？
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9084#       发表于 2018-4-25 10:32
@@ -1436,7 +1436,7 @@ mato是神！！
 再来几个跟15节奏一样差的就差不多了，或者说后面跟前面一样没什么特别
 
 
------
+*****
 
 ####  xingenge  
 ##### 9085#       发表于 2018-4-25 10:35
@@ -1452,7 +1452,7 @@ tarou2@tarou2
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fqooodacb1j20g10aw79r.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 9086#       发表于 2018-4-25 10:35
@@ -1464,7 +1464,7 @@ backup总得有服务器吧，你服务器放哪呢</blockquote>
 当然是月亮的背面咯。。。
 
 
------
+*****
 
 ####  cbx0707  
 ##### 9087#       发表于 2018-4-25 10:37
@@ -1478,7 +1478,7 @@ backup总得有服务器吧，你服务器放哪呢</blockquote>
 无敌是多么，多么寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9088#       发表于 2018-4-25 10:38
@@ -1490,7 +1490,7 @@ backup总得有服务器吧，你服务器放哪呢</blockquote>
 先说说掰盘标准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  满月美夜子  
 ##### 9089#       发表于 2018-4-25 10:39
@@ -1504,7 +1504,7 @@ tarou2@tarou2
 这196确实不错
 
 
------
+*****
 
 ####  isummon  
 ##### 9090#       发表于 2018-4-25 10:40
@@ -1513,7 +1513,7 @@ tarou2@tarou2
 别吹了 赶紧出个人回吧，196的讨论度还没有直美酱高啊……
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 9091#       发表于 2018-4-25 10:42
@@ -1523,7 +1523,7 @@ tarou2@tarou2
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9092#       发表于 2018-4-25 10:44
@@ -1535,7 +1535,7 @@ tarou2@tarou2
 感觉还行，16 17 18把剩下三个没念诗的整明白，然后怒涛搞六集。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9093#       发表于 2018-4-25 10:45
@@ -1544,7 +1544,7 @@ tarou2@tarou2
 最多一个个人回了
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 9094#       发表于 2018-4-25 10:45
@@ -1553,7 +1553,7 @@ tarou2@tarou2
 别搞个人回了来点有意思的剧情啊
 
 
------
+*****
 
 ####  mumubear  
 ##### 9095#       发表于 2018-4-25 10:47
@@ -1565,7 +1565,7 @@ tarou2@tarou2
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">醒醒，锦织作萝卜是短板。。。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9096#       发表于 2018-4-25 10:48
@@ -1574,7 +1574,7 @@ tarou2@tarou2
 还搞个人回啊，国家队销量不就是7集开始DuangDuang的掉，9集回光了一下，要不是13集，早就可以给这片扫墓了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 9097#       发表于 2018-4-25 10:50
@@ -1583,7 +1583,7 @@ tarou2@tarou2
 郁乃的个人回肯定有意思啊 cm里暗藏的思念啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 9098#       发表于 2018-4-25 10:52
@@ -1598,7 +1598,7 @@ tarou2@tarou2
 郁乃有点忙啊。。。
 
 
------
+*****
 
 ####  isummon  
 ##### 9099#       发表于 2018-4-25 10:52
@@ -1609,7 +1609,7 @@ tarou2@tarou2
 反正上一集打够了，现在也没啥子机器人了，佛一会先。求生三集配角回发现真相＋归队后六集怒涛展开，也还算是挺效率的。之前的个人回软绵绵主要是世界展开不够多，光靠02装逼了。现在可以塞进去大量的信息了，效果估摸会好一些。
 
 
------
+*****
 
 ####  deidara  
 ##### 9100#       发表于 2018-4-25 10:53
@@ -1619,7 +1619,7 @@ tarou2@tarou2
 而且你们喜欢的心都没念诗。。
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9101#       发表于 2018-4-25 10:53
@@ -1631,7 +1631,7 @@ tarou2@tarou2
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 9102#       发表于 2018-4-25 10:54
@@ -1640,7 +1640,7 @@ tarou2@tarou2
 196要是真是有什么内情（没童年回忆，博士助手？内奸？）个人回应该好看啊，要是讲她如何届到15就算了……
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9103#       发表于 2018-4-25 10:54
@@ -1651,7 +1651,7 @@ tarou2@tarou2
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9104#       发表于 2018-4-25 10:54
@@ -1662,7 +1662,7 @@ tarou2@tarou2
 奶了就溜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9105#       发表于 2018-4-25 10:55
@@ -1678,7 +1678,7 @@ tarou2@tarou2
 但愿我多想了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9106#       发表于 2018-4-25 10:57
@@ -1687,7 +1687,7 @@ tarou2@tarou2
 先奶了，如果真有196个人回，那十有八九是196助攻1556的“个人回”<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9107#       发表于 2018-4-25 10:57
@@ -1703,7 +1703,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 便当就是你了，太君！<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 9108#       发表于 2018-4-25 10:59
@@ -1721,7 +1721,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 除非还有叫龙人。。。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 9109#       发表于 2018-4-25 10:59
@@ -1732,7 +1732,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 确实很有可能……
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9110#       发表于 2018-4-25 11:00
@@ -1746,7 +1746,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 五郎就不能赶紧去死一死么
 
 
------
+*****
 
 ####  deidara  
 ##### 9111#       发表于 2018-4-25 11:00
@@ -1759,7 +1759,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 谭雅？学富五车还心狠手辣冷无缺，你笨蛋恋爱脑莓赶得上？
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9112#       发表于 2018-4-25 11:01
@@ -1768,7 +1768,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 196是本片最惨没有之一，两次制作人访谈提都没提
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 9113#       发表于 2018-4-25 11:01
@@ -1780,7 +1780,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 声优名字还打错
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9114#       发表于 2018-4-25 11:02
@@ -1789,7 +1789,7 @@ btw我觉得接下来个人回应该要跟主线混在一起了，通过主线�
 Vanquish            [https://www.bilibili.com/video/a ... 2845390207398303516](https://www.bilibili.com/video/av22541846?from=search&amp;seid=2845390207398303516)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9115#       发表于 2018-4-25 11:02
@@ -1801,7 +1801,7 @@ Vanquish            [https://www.bilibili.com/video/a ... 28453902073983
 也许这集草莓说的受够了男女关系之后直接对男女之事不感兴趣变成性冷淡了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 9116#       发表于 2018-4-25 11:03
@@ -1818,7 +1818,7 @@ Vanquish            [https://www.bilibili.com/video/a ... 28453902073983
 goodbro 形象崩坏的时候到了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9117#       发表于 2018-4-25 11:03
@@ -1827,7 +1827,7 @@ goodbro 形象崩坏的时候到了。。。<img src="https://static.saraba1st.c
   cÅGE    [https://www.youtube.com/watch?v=GrFvxtCowTw](https://www.youtube.com/watch?v=GrFvxtCowTw)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9118#       发表于 2018-4-25 11:03
@@ -1839,7 +1839,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 这次的BD里到底有没有OST啊。。。。。
 
 
------
+*****
 
 ####  soulife7  
 ##### 9119#       发表于 2018-4-25 11:03
@@ -1848,7 +1848,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 讲道理我听了ed4，感觉ed4总有再次出现的机会，很可能就是216都残了来一出真正比翼鸟，就怕锦织太温柔，两主角lovelove到结局<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9120#       发表于 2018-4-25 11:04
@@ -1857,7 +1857,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 196有福岛P爱着不可能翻车
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9121#       发表于 2018-4-25 11:06
@@ -1866,7 +1866,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 听了cÅGE    为什么不用，告诉我为什么不用，日了够了
 
 
------
+*****
 
 ####  摩天城  
 ##### 9122#       发表于 2018-4-25 11:06
@@ -1875,7 +1875,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 196的个人回早就说过了，是肯定有的，如果后面是双线推进的话，应该也ok。其他人的就不一定了。
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 9123#       发表于 2018-4-25 11:08
@@ -1886,7 +1886,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 你们以为是196的个人回，其实也是我326哒<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9124#       发表于 2018-4-25 11:09
@@ -1897,7 +1897,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 谭雅这种真.强者太难出了，自己活了两辈子，死前就是一个人精，她也就是看上去是个幼女，实际上性别完全失去意义。跟你莓这种人完全是两个极端，远不是把恋爱脑丢了就行的。
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9125#       发表于 2018-4-25 11:09
@@ -1906,7 +1906,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">cage有种尼尔的味道，为什么不赶紧用，难受
 
 
------
+*****
 
 ####  deidara  
 ##### 9126#       发表于 2018-4-25 11:10
@@ -1919,7 +1919,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 326已经念过诗了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">。你的回也行，反正诗不是你念<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9127#       发表于 2018-4-25 11:10
@@ -1928,7 +1928,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 既然不用cage 为什么还放进ost1里 不懂啊
 
 
------
+*****
 
 ####  mumubear  
 ##### 9128#       发表于 2018-4-25 11:11
@@ -1940,7 +1940,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 奶一口广爷造反回用。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9129#       发表于 2018-4-25 11:11
@@ -1951,7 +1951,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 你莓有锦织爱着，保险公司都不理陪的。。。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9130#       发表于 2018-4-25 11:12
@@ -1960,7 +1960,7 @@ Vanquish            https://www.bilibili.com/video/av22541846?from=searc
 Torikago 是有合声的，正片里也没有，遭不住了
 
 
------
+*****
 
 ####  蕾麦黛丝  
 ##### 9131#       发表于 2018-4-25 11:13
@@ -1969,7 +1969,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 不会有个人回了，11集已经把胖子，心，满，郁乃这四个人介绍的差不多了
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 9132#       发表于 2018-4-25 11:13
@@ -1983,7 +1983,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 抢个人回夫妻档2333
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9133#       发表于 2018-4-25 11:13
@@ -2009,7 +2009,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 390和666这种和广牵不上线的安定角色反倒给人一种做出来推动其他剧情的感觉……
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9134#       发表于 2018-4-25 11:15
@@ -2018,7 +2018,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 你们都想556念诗啊，那我奶一个556个人回再次和214走到一起<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9135#       发表于 2018-4-25 11:16
@@ -2054,7 +2054,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 查看全部评分
 
 
------
+*****
 
 ####  80proof  
 ##### 9136#       发表于 2018-4-25 11:16
@@ -2063,7 +2063,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 各位 都来专楼了还打错代号不应该啊<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shylia  
 ##### 9137#       发表于 2018-4-25 11:16
@@ -2077,7 +2077,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 按若林P的说法，11话算满心回……怎么着芋艿也要有个和谁的回吧？
 
 
------
+*****
 
 ####  mumubear  
 ##### 9138#       发表于 2018-4-25 11:17
@@ -2091,7 +2091,7 @@ Torikago 是有合声的，正片里也没有，遭不住了
 390666可以和大人连上线，17岁16集好像还要出来。。。
 
 
------
+*****
 
 ####  soulife7  
 ##### 9139#       发表于 2018-4-25 11:18
@@ -2103,7 +2103,7 @@ Torikago 是有合声的，正片里也没有，遭不住了</blockquote>
 意思是橘麻美释放，音监死刑？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9140#       发表于 2018-4-25 11:19
@@ -2112,7 +2112,7 @@ Torikago 是有合声的，正片里也没有，遭不住了</blockquote>
 196对草莓是不可能届到了，最好是能给一个释怀的结局，别和别人拉郎配去
 
 
------
+*****
 
 ####  isummon  
 ##### 9141#       发表于 2018-4-25 11:20
@@ -2121,7 +2121,7 @@ Torikago 是有合声的，正片里也没有，遭不住了</blockquote>
 现在砍了几个搞音乐的了？
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9142#       发表于 2018-4-25 11:22
@@ -2135,7 +2135,7 @@ Torikago
 后半明显比前面有感觉，音监枪毙？
 
 
------
+*****
 
 ####  hl8243  
 ##### 9143#       发表于 2018-4-25 11:22
@@ -2147,7 +2147,7 @@ Torikago
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9144#       发表于 2018-4-25 11:24
@@ -2156,7 +2156,7 @@ Torikago
 cage为什么不用，我要给气死了
 
 
------
+*****
 
 ####  skives  
 ##### 9145#       发表于 2018-4-25 11:26
@@ -2167,7 +2167,7 @@ cage为什么不用，我要给气死了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你也黑化了
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9146#       发表于 2018-4-25 11:26
@@ -2180,7 +2180,7 @@ cage为什么不用，我要给气死了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">换个角度，如果13小队里真有一组会跟主角站在对立面，那恐怕也是这一组了。
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9147#       发表于 2018-4-25 11:27
@@ -2195,7 +2195,7 @@ cage为什么不用，我要给气死了</blockquote>
 无人声版本用在预告中<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9148#       发表于 2018-4-25 11:28
@@ -2204,7 +2204,7 @@ cage为什么不用，我要给气死了</blockquote>
 有的BGM不一定就是现在用吧，后续还会有大战的啊
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9149#       发表于 2018-4-25 11:28
@@ -2219,7 +2219,7 @@ cage为什么不用，我要给气死了</blockquote>
 cage从头到尾都可以用，我没话说
 
 
------
+*****
 
 ####  skives  
 ##### 9150#       发表于 2018-4-25 11:29
@@ -2230,7 +2230,7 @@ cage从头到尾都可以用，我没话说
 问题是这曲子只能说是优秀，感觉并没有炸裂到一定要用在后期<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9151#       发表于 2018-4-25 11:29
@@ -2239,7 +2239,7 @@ cage从头到尾都可以用，我没话说
 Torikago怎么有人声的
 
 
------
+*****
 
 ####  funo3355411  
 ##### 9152#       发表于 2018-4-25 11:30
@@ -2250,7 +2250,7 @@ Torikago怎么有人声的
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9153#       发表于 2018-4-25 11:30
@@ -2259,7 +2259,7 @@ Torikago怎么有人声的
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你应该问，为什么非要选没有人声的部分，建议音响监督死刑
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9154#       发表于 2018-4-25 11:31
@@ -2268,7 +2268,7 @@ Torikago怎么有人声的
 cÅGE 这曲子感觉没地方可用了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9155#       发表于 2018-4-25 11:32
@@ -2277,7 +2277,7 @@ cÅGE 这曲子感觉没地方可用了啊<img src="https://static.saraba1st.com
 音监懂个🔨音乐
 
 
------
+*****
 
 ####  mumubear  
 ##### 9156#       发表于 2018-4-25 11:32
@@ -2298,7 +2298,7 @@ cÅGE 这曲子感觉没地方可用了啊<img src="https://static.saraba1st.com
 然后对着17岁说
 
 
------
+*****
 
 ####  熊猫roey  
 ##### 9157#       发表于 2018-4-25 11:34
@@ -2309,7 +2309,7 @@ cÅGE 这曲子感觉没地方可用了啊<img src="https://static.saraba1st.com
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9158#       发表于 2018-4-25 11:34
@@ -2328,7 +2328,7 @@ cÅGE 这曲子感觉没地方可用了啊</blockquote>
 后面有把世界观推出来后，用在大场面就行
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9159#       发表于 2018-4-25 11:34
@@ -2337,7 +2337,7 @@ cÅGE 这曲子感觉没地方可用了啊</blockquote>
 VICTORIA这歌一股xb2风<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9160#       发表于 2018-4-25 11:35
@@ -2352,7 +2352,7 @@ VICTORIA这歌一股xb2风<img src="https://static.saraba1st.com/image/smiley/fa
 没有DitF OST听 我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9161#       发表于 2018-4-25 11:36
@@ -2363,7 +2363,7 @@ VICTORIA这歌一股xb2风<img src="https://static.saraba1st.com/image/smiley/fa
 不过倒是能感觉到制作组在割裂1-3部，想要靠各种元素来带来割裂感，不重复使用的bgm可能就是其中之一吧
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9162#       发表于 2018-4-25 11:36
@@ -2372,7 +2372,7 @@ VICTORIA这歌一股xb2风<img src="https://static.saraba1st.com/image/smiley/fa
 cÅGE 这曲子，等216突然看到一幕能彻底颠覆他们三观的场景时就能插进来了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9163#       发表于 2018-4-25 11:36
@@ -2381,7 +2381,7 @@ cÅGE 这曲子，等216突然看到一幕能彻底颠覆他们三观的场景�
 Torikago [https://www.bilibili.com/video/av22546449/](https://www.bilibili.com/video/av22546449/)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9164#       发表于 2018-4-25 11:37
@@ -2393,7 +2393,7 @@ VICTORIA这歌一股xb2风</blockquote>
 XB2开挂曲比他强10倍不止<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9165#       发表于 2018-4-25 11:39
@@ -2402,7 +2402,7 @@ XB2开挂曲比他强10倍不止<img src="https://static.saraba1st.com/image/smi
 关键他还有OST2
 
 
------
+*****
 
 ####  Shylia  
 ##### 9166#       发表于 2018-4-25 11:40
@@ -2414,7 +2414,7 @@ XB2开挂曲比他强10倍不止<img src="https://static.saraba1st.com/image/smi
 17岁16话再出来感觉就是要退场了
 
 
------
+*****
 
 ####  Shylia  
 ##### 9167#       发表于 2018-4-25 11:42
@@ -2428,7 +2428,7 @@ XB2开挂曲比他强10倍不止<img src="https://static.saraba1st.com/image/smi
 我看了4月相机番后觉得五郁不错，虽然那里面五郎快瞎的赶上02了
 
 
------
+*****
 
 ####  isummon  
 ##### 9168#       发表于 2018-4-25 11:42
@@ -2437,7 +2437,7 @@ XB2开挂曲比他强10倍不止<img src="https://static.saraba1st.com/image/smi
 我奶17岁已经死球了，估计666能够捡到个尸体啥的……
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9169#       发表于 2018-4-25 11:42
@@ -2449,7 +2449,7 @@ cÅGE这歌还是比较舒缓的，我觉得不适合什么宏大场景，更适
 [https://www.bilibili.com/video/av22546679/](https://www.bilibili.com/video/av22546679/)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9170#       发表于 2018-4-25 11:44
@@ -2461,7 +2461,7 @@ cÅGE这歌还是比较舒缓的，我觉得不适合什么宏大场景，更适
 死估计会死，死法应该是没有补给了，心脏换不了了
 
 
------
+*****
 
 ####  Mafise  
 ##### 9171#       发表于 2018-4-25 11:45
@@ -2470,7 +2470,7 @@ cÅGE这歌还是比较舒缓的，我觉得不适合什么宏大场景，更适
 前15集大场面不是ed就是op，到底是谁的锅？
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 9172#       发表于 2018-4-25 11:45
@@ -2481,7 +2481,7 @@ cÅGE这歌还是比较舒缓的，我觉得不适合什么宏大场景，更适
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  haradatos  
 ##### 9173#       发表于 2018-4-25 11:48
@@ -2490,7 +2490,7 @@ cÅGE这歌还是比较舒缓的，我觉得不适合什么宏大场景，更适
 17岁必须要死于病毒感染与没补给，才能让孩子们感受到世界的残酷，被一巴掌拍死太浪费了
 
 
------
+*****
 
 ####  isummon  
 ##### 9174#       发表于 2018-4-25 11:48
@@ -2502,7 +2502,7 @@ cÅGE这歌还是比较舒缓的，我觉得不适合什么宏大场景，更适
 不，更自然的写法是666找到她了，想施予救援并带她走（她没有进箱子，估计没法备份），但是大人是无法和孩子们长时间相处的，结果是死于666的辐射导致的心脏崩坏。
 
 
------
+*****
 
 ####  funo3355411  
 ##### 9175#       发表于 2018-4-25 11:51
@@ -2514,7 +2514,7 @@ cage感觉还不错。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9176#       发表于 2018-4-25 11:51
@@ -2530,7 +2530,7 @@ goodbro 形象崩坏的时候到了。。。 ...</blockquote>
 38线回被五郎算的死死的
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9177#       发表于 2018-4-25 11:52
@@ -2539,7 +2539,7 @@ goodbro 形象崩坏的时候到了。。。 ...</blockquote>
 可是现在这片什么困境都可以靠lovelove来解决。。。。  根本残酷不起来啊
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9178#       发表于 2018-4-25 11:52
@@ -2550,7 +2550,7 @@ goodbro 形象崩坏的时候到了。。。 ...</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9179#       发表于 2018-4-25 11:53
@@ -2559,7 +2559,7 @@ goodbro 形象崩坏的时候到了。。。 ...</blockquote>
 cÅGE的vocal是俄罗斯人啊
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9180#       发表于 2018-4-25 11:53
@@ -2573,7 +2573,7 @@ cÅGE的vocal是俄罗斯人啊
 其实如果不是因为她被设定成了“妈妈”，发现她其实是第八集那张照片上的人之一也是个展开思路<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9181#       发表于 2018-4-25 11:53
@@ -2586,7 +2586,7 @@ cÅGE的vocal是俄罗斯人啊
 但是偏偏S1的一小撮观众喜欢326....
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9182#       发表于 2018-4-25 11:54
@@ -2598,7 +2598,7 @@ cÅGE的vocal是俄罗斯人啊
 姑且猜一下，橘麻美，音监，监督，各集演出4:4:1:1吧。
 
 
------
+*****
 
 ####  novid  
 ##### 9183#       发表于 2018-4-25 11:54
@@ -2613,7 +2613,7 @@ cÅGE的vocal是俄罗斯人啊
 说起来鸟笼我也不是太喜欢，感觉节奏过快了很儿戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前15话感觉最好的战斗插入曲竟是15话的op插入
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9184#       发表于 2018-4-25 11:54
@@ -2624,7 +2624,7 @@ cÅGE的vocal是俄罗斯人啊
 完了，舔过196.....
 
 
------
+*****
 
 ####  mumubear  
 ##### 9185#       发表于 2018-4-25 11:55
@@ -2642,7 +2642,7 @@ cÅGE的vocal是俄罗斯人啊
 按照国12 国14的铺垫，接下来是56 196互动。。。
 
 
------
+*****
 
 ####  isummon  
 ##### 9186#       发表于 2018-4-25 11:55
@@ -2651,7 +2651,7 @@ cÅGE的vocal是俄罗斯人啊
 如果走的是助攻线，猜猜是米库还是郁乃成为五郎的好闺蜜并且助攻五莓？
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9187#       发表于 2018-4-25 11:56
@@ -2665,7 +2665,7 @@ lovelove目前在治疗上的万能只限于0216之间，而且下集广/02出�
 下集两边应该分开了，13小队这边还是能残酷起来的……大概。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9188#       发表于 2018-4-25 11:56
@@ -2677,7 +2677,7 @@ Vanquish：Mother used to say "you are special, no one will shine as bright my d
 石锤13话那个手是泽拉图她妈了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  满月美夜子  
 ##### 9189#       发表于 2018-4-25 11:57
@@ -2689,7 +2689,7 @@ Vanquish：Mother used to say "you are special, no one will shine as bright my d
 支持郁乃
 
 
------
+*****
 
 ####  mumubear  
 ##### 9190#       发表于 2018-4-25 11:57
@@ -2710,7 +2710,7 @@ Vanquish：Mother used to say "you are special, no one will shine as bright my d
 国十一金雀开炮那段是男主角待遇啊。。。
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9191#       发表于 2018-4-25 11:58
@@ -2719,7 +2719,7 @@ Vanquish：Mother used to say "you are special, no one will shine as bright my d
 cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用的吗
 
 
------
+*****
 
 ####  isummon  
 ##### 9192#       发表于 2018-4-25 11:59
@@ -2731,7 +2731,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 不会和莓百合的。但是会获得郁乃的阅读能力，这样就能够增进知识和文化了。KY的话，之前也是KY来着，差不多……
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9193#       发表于 2018-4-25 11:59
@@ -2745,7 +2745,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 但是别了吧，对郁乃来说
 
 
------
+*****
 
 ####  80proof  
 ##### 9194#       发表于 2018-4-25 12:00
@@ -2755,7 +2755,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9195#       发表于 2018-4-25 12:01
@@ -2770,7 +2770,7 @@ cÅGE第一段是In these deepest woods，第二段是In these decayed sands，�
 how'd we dream of the future or the nightmare?
 
 
------
+*****
 
 ####  novid  
 ##### 9196#       发表于 2018-4-25 12:02
@@ -2779,7 +2779,7 @@ how'd we dream of the future or the nightmare?
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实在痛心
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9197#       发表于 2018-4-25 12:03
@@ -2791,7 +2791,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 看歌词也知道不可能是02变身了。。。
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9198#       发表于 2018-4-25 12:03
@@ -2800,7 +2800,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 锦织:我喜欢橘麻美曲子里女性的感觉
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9199#       发表于 2018-4-25 12:03
@@ -2814,7 +2814,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 不是说锦织钦点要女作曲家吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 9200#       发表于 2018-4-25 12:04
@@ -2825,7 +2825,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 感觉是什么py交易
 
 
------
+*****
 
 ####  love4aids  
 ##### 9201#       发表于 2018-4-25 12:09
@@ -2834,7 +2834,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 这集02都长出枝干了，后面开花种在地里也不是没可能吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9202#       发表于 2018-4-25 12:10
@@ -2845,7 +2845,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 这就真是在天愿作比翼鸟，在地愿为连理枝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  funo3355411  
 ##### 9203#       发表于 2018-4-25 12:11
@@ -2857,7 +2857,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9204#       发表于 2018-4-25 12:12
@@ -2872,7 +2872,7 @@ cÅGE这种不是明显02变身，或者巨型的槲寄生长出来的时候用�
 Druids in the Franxx
 
 
------
+*****
 
 ####  adiedfish  
 ##### 9205#       发表于 2018-4-25 12:12
@@ -2883,7 +2883,7 @@ Druids in the Franxx
 希望能感染眼睛属性，脑补了一下02戴眼镜意外带感！
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9206#       发表于 2018-4-25 12:24
@@ -2894,7 +2894,7 @@ Druids in the Franxx
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有事秘书干。。。没事。。。。
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9207#       发表于 2018-4-25 12:31
@@ -2903,7 +2903,7 @@ Druids in the Franxx
 说起来ost还没发售吗
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9208#       发表于 2018-4-25 12:32
@@ -2912,7 +2912,7 @@ Druids in the Franxx
 究竟后面几集怎样才能从小孩的打闹和lovelove转变为大场面呢，圣锦织藏了怎样的杀手锏？到时候巨大叫龙巢穴+三段变形机体+神/燃曲+便当派发+上宇宙可以吗？
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9209#       发表于 2018-4-25 12:34
@@ -2923,7 +2923,7 @@ Druids in the Franxx
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9210#       发表于 2018-4-25 12:34
@@ -2935,7 +2935,7 @@ Druids in the Franxx
 说是25号 但是现在毛都没看见。。。我都等一晚上了
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 9211#       发表于 2018-4-25 12:34
@@ -2947,7 +2947,7 @@ Druids in the Franxx
 锦织（挠头）：“这个……这个没有了呢哈哈哈哈”
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9212#       发表于 2018-4-25 12:34
@@ -2959,7 +2959,7 @@ Druids in the Franxx
 bd附赠的
 
 
------
+*****
 
 ####  soulife7  
 ##### 9213#       发表于 2018-4-25 12:34
@@ -2970,7 +2970,7 @@ bd附赠的
 重回sao？<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑沢逢世  
 ##### 9214#       发表于 2018-4-25 12:36
@@ -2984,7 +2984,7 @@ bd附赠的
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9215#       发表于 2018-4-25 12:36
@@ -2995,7 +2995,7 @@ bd附赠的
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9216#       发表于 2018-4-25 12:37
@@ -3004,7 +3004,7 @@ bd附赠的
 大场面，先想法子拖个战舰出来？
 
 
------
+*****
 
 ####  ynam  
 ##### 9217#       发表于 2018-4-25 12:40
@@ -3018,7 +3018,7 @@ bd附赠的
 留下390一个有啥意义，还不如全灭。
 
 
------
+*****
 
 ####  skives  
 ##### 9218#       发表于 2018-4-25 12:41
@@ -3027,7 +3027,7 @@ bd附赠的
 最后活下来的是莓和9a
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 9219#       发表于 2018-4-25 12:42
@@ -3036,7 +3036,7 @@ bd附赠的
 不如全灭  谢谢锦织
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9220#       发表于 2018-4-25 12:43
@@ -3050,7 +3050,7 @@ bd附赠的
 “虽然我们仍未知道当初他们贵乱发生了什么，但回想往昔的点点滴滴，我们的眼泪还是掉了下来”
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9221#       发表于 2018-4-25 12:43
@@ -3062,7 +3062,7 @@ bd附赠的
 最近突然觉得这对挺好的
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 9222#       发表于 2018-4-25 12:47
@@ -3071,7 +3071,7 @@ bd附赠的
 那么问题来了，锦织哥哥会不会给13小队发便当？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9223#       发表于 2018-4-25 12:48
@@ -3083,7 +3083,7 @@ bd附赠的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">那为啥没人抓取啊 现在应该有不少人收到了吧
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9224#       发表于 2018-4-25 12:51
@@ -3095,7 +3095,7 @@ bd附赠的</blockquote>
 youtube上面已经有了
 
 
------
+*****
 
 ####  冰冻火柴  
 ##### 9225#       发表于 2018-4-25 12:52
@@ -3106,7 +3106,7 @@ youtube上面已经有了
 便当是不可能了，结局八成是人类方和叫龙方互相理解，最后0216结婚，四对伴郎伴娘齐祝福
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 9226#       发表于 2018-4-25 12:53
@@ -3115,7 +3115,7 @@ youtube上面已经有了
 如果锦织哥哥有决心给13小队除小草莓以外的所有人便当那我就吹爆<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 9227#       发表于 2018-4-25 12:55
@@ -3127,7 +3127,7 @@ youtube上面已经有了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yy19  
 ##### 9228#       发表于 2018-4-25 12:55
@@ -3141,7 +3141,7 @@ youtube上面已经有了
 “妹妹的最大用处就是这个哒”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9229#       发表于 2018-4-25 12:55
@@ -3150,7 +3150,7 @@ youtube上面已经有了
 然后被外面喷爆么
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9230#       发表于 2018-4-25 12:55
@@ -3159,7 +3159,7 @@ youtube上面已经有了
 在地愿为连理枝不就是罚抄吗…
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9231#       发表于 2018-4-25 12:56
@@ -3258,7 +3258,7 @@ Where did they vanish away so far?﻿
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来全都是情歌（
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9232#       发表于 2018-4-25 12:57
@@ -3269,7 +3269,7 @@ Where did they vanish away so far?﻿
 这对也行啊，但五郎的便当怎么处理？
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9233#       发表于 2018-4-25 12:58
@@ -3288,7 +3288,7 @@ Vanquish是讲的02
 cage看着像是整个小队
 
 
------
+*****
 
 ####  ynam  
 ##### 9234#       发表于 2018-4-25 12:58
@@ -3299,7 +3299,7 @@ cage看着像是整个小队
 看着吧，最后十三队全员无名指戴上戒指，02转完圈之后广主席就要求婚了。
 
 
------
+*****
 
 ####  skives  
 ##### 9235#       发表于 2018-4-25 12:58
@@ -3310,7 +3310,7 @@ cage看着像是整个小队
 走在街上为了保护666被黑衣人乱枪打死
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 9236#       发表于 2018-4-25 13:00
@@ -3322,7 +3322,7 @@ cage看着像是整个小队
 其实我就是希望自己寄予高期望的作品会是一个悲剧
 
 
------
+*****
 
 ####  xingenge  
 ##### 9237#       发表于 2018-4-25 13:01
@@ -3336,7 +3336,7 @@ cage看着像是整个小队
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fqotfikzwpj20xc0irwui.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9238#       发表于 2018-4-25 13:01
@@ -3353,7 +3353,7 @@ cage看着像是整个小队</blockquote>
 不过这歌词可真够直白的了
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9239#       发表于 2018-4-25 13:02
@@ -3362,7 +3362,7 @@ cage看着像是整个小队</blockquote>
 你们这是手冢治虫的思维
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9240#       发表于 2018-4-25 13:02
@@ -3376,7 +3376,7 @@ cage看着像是整个小队</blockquote>
 而且从歌词来看13集那个手就是02她妈没跑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9241#       发表于 2018-4-25 13:04
@@ -3387,7 +3387,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 我真的服了音监了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9242#       发表于 2018-4-25 13:04
@@ -3396,7 +3396,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 那按照人物的情感，02经历了被保护的小姑娘，叛逆的少女，热恋的情侣，下一部就是理解老妈当妈了？九集完全够
 
 
------
+*****
 
 ####  skives  
 ##### 9243#       发表于 2018-4-25 13:06
@@ -3407,7 +3407,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 02当妈，无法想象
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9244#       发表于 2018-4-25 13:10
@@ -3421,7 +3421,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 别吵，我也饿了，等你粑粑回来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9245#       发表于 2018-4-25 13:10
@@ -3436,7 +3436,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 这样的02再也没有了，军大衣也没了，只能看看第一集才能过活的样子。。。
 
 
------
+*****
 
 ####  love4aids  
 ##### 9246#       发表于 2018-4-25 13:11
@@ -3450,7 +3450,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 有画面了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9247#       发表于 2018-4-25 13:11
@@ -3464,7 +3464,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 喷了
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9248#       发表于 2018-4-25 13:13
@@ -3473,7 +3473,7 @@ torikago我就记得预告用过，希望后面能用吧<img src="https://static
 你们这黑的太草了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9249#       发表于 2018-4-25 13:14
@@ -3494,7 +3494,7 @@ Eating strawberries.
 2018-4-25 13:14 上传
 
 
------
+*****
 
 ####  haradatos  
 ##### 9250#       发表于 2018-4-25 13:14
@@ -3503,7 +3503,7 @@ Eating strawberries.
 想看02大腹便便开着鹤望兰的样子
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 9251#       发表于 2018-4-25 13:14
@@ -3512,7 +3512,7 @@ Eating strawberries.
 02不会生殖隔离的吗
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9252#       发表于 2018-4-25 13:15
@@ -3525,7 +3525,7 @@ Eating strawberries.
 不应该是 饿了去河里叼条鱼回来。。。。
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9253#       发表于 2018-4-25 13:19
@@ -3539,7 +3539,7 @@ Eating strawberries.
 油管上好像不全欸
 
 
------
+*****
 
 ####  棒读  
 ##### 9254#       发表于 2018-4-25 13:19
@@ -3552,7 +3552,7 @@ Eating strawberries.
 麻麻给你抓老鼠吃
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9255#       发表于 2018-4-25 13:21
@@ -3561,7 +3561,7 @@ Eating strawberries.
 又吃老鼠又吃鱼，02是猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9256#       发表于 2018-4-25 13:23
@@ -3573,7 +3573,7 @@ Eating strawberries.
 龙猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9257#       发表于 2018-4-25 13:26
@@ -3586,7 +3586,7 @@ Eating strawberries.</blockquote>
 这对都有粮了哈哈
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9258#       发表于 2018-4-25 13:27
@@ -3595,7 +3595,7 @@ Eating strawberries.</blockquote>
 草莓手是鸡爪子....
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9259#       发表于 2018-4-25 13:30
@@ -3609,7 +3609,7 @@ Eating strawberries.</blockquote>
 鸡爪子可还行，我们这边凌晨了现在饿得要命<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  waster112  
 ##### 9260#       发表于 2018-4-25 13:31
@@ -3618,7 +3618,7 @@ Eating strawberries.</blockquote>
 大场面不是偶像全员演唱会吗<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9261#       发表于 2018-4-25 13:32
@@ -3627,7 +3627,7 @@ Eating strawberries.</blockquote>
 02军大衣真时髦
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9262#       发表于 2018-4-25 13:35
@@ -3638,7 +3638,7 @@ Eating strawberries.</blockquote>
 10个偶像一台戏？
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9263#       发表于 2018-4-25 13:46
@@ -3650,7 +3650,7 @@ Eating strawberries.</blockquote>
 OST在BD里<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9264#       发表于 2018-4-25 13:51
@@ -3659,7 +3659,7 @@ OST在BD里<img src="https://static.saraba1st.com/image/smiley/face2017/002.png"
 [https://www.bilibili.com/video/av22549094?t=43](https://www.bilibili.com/video/av22549094?t=43) 菜单界面，还是挺帅的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9265#       发表于 2018-4-25 13:53
@@ -3672,7 +3672,7 @@ OST在BD里<img src="https://static.saraba1st.com/image/smiley/face2017/002.png"
 不然那么多年早怀上了
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 9266#       发表于 2018-4-25 13:56
@@ -3687,7 +3687,7 @@ OST在BD里<img src="https://static.saraba1st.com/image/smiley/face2017/002.png"
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">科学技术那么发达说不定都流掉了呢（导致不孕
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9267#       发表于 2018-4-25 13:56
@@ -3699,7 +3699,7 @@ OST在BD里</blockquote>
 好像蓝色的碟片是OST吧
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9268#       发表于 2018-4-25 13:57
@@ -3719,7 +3719,7 @@ OST在BD里</blockquote>
 2018-4-25 13:57 上传
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9269#       发表于 2018-4-25 13:58
@@ -3736,7 +3736,7 @@ OST在BD里</blockquote>
 15: ………<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9270#       发表于 2018-4-25 14:02
@@ -3748,7 +3748,7 @@ OST在BD里</blockquote>
 编辑
 
 
------
+*****
 
 ####  hl8243  
 ##### 9271#       发表于 2018-4-25 14:05
@@ -3762,7 +3762,7 @@ Eating strawberries.</blockquote>
 五郎做错了什么
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9272#       发表于 2018-4-25 14:10
@@ -3773,7 +3773,7 @@ Eating strawberries.</blockquote>
 和之前的宣传风格一致
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9273#       发表于 2018-4-25 14:13
@@ -3782,7 +3782,7 @@ Eating strawberries.</blockquote>
 02要是生了孩子，估计是那种不怎么管的，天天只想和广主席lovelove过二人世界的。
 
 
------
+*****
 
 ####  ynam  
 ##### 9274#       发表于 2018-4-25 14:13
@@ -3793,7 +3793,7 @@ Eating strawberries.</blockquote>
 要是做成p5那种菜单才吓人。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9275#       发表于 2018-4-25 14:17
@@ -3806,7 +3806,7 @@ Eating strawberries.</blockquote>
 满肯定不会在意多管一个毛孩的
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9276#       发表于 2018-4-25 14:19
@@ -3819,7 +3819,7 @@ Eating strawberries.</blockquote>
 编辑
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9277#       发表于 2018-4-25 14:20
@@ -3830,7 +3830,7 @@ Eating strawberries.</blockquote>
 呼吸？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9278#       发表于 2018-4-25 14:20
@@ -3841,7 +3841,7 @@ Eating strawberries.</blockquote>
 “莓配不上五郎！”
 
 
------
+*****
 
 ####  塞瑞娜  
 ##### 9279#       发表于 2018-4-25 14:21
@@ -3850,7 +3850,7 @@ Eating strawberries.</blockquote>
 016这种男的。。。如果02大肚子的那几个月，016会不会满世界祸害身边的其他女性啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9280#       发表于 2018-4-25 14:22
@@ -3866,7 +3866,7 @@ https://www.bilibili.com/video/av127211
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你从头看菜单怎么出来怎么消失的，别就看播完特效的那段……
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9281#       发表于 2018-4-25 14:24
@@ -3878,7 +3878,7 @@ https://www.bilibili.com/video/av127211
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我靠，点过去直接是播完之后那段，完全没发现前面还有。
 
 
------
+*****
 
 ####  ynam  
 ##### 9282#       发表于 2018-4-25 14:24
@@ -3893,7 +3893,7 @@ https://www.bilibili.com/video/av127211
 所以你圆神还是你圆神。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9283#       发表于 2018-4-25 14:28
@@ -3908,7 +3908,7 @@ https://www.bilibili.com/video/av127211
 BD菜单是不是这样？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9284#       发表于 2018-4-25 14:30
@@ -3923,7 +3923,7 @@ BD菜单是不是这样？
 第四卷326556才对
 
 
------
+*****
 
 ####  ynam  
 ##### 9285#       发表于 2018-4-25 14:30
@@ -3934,7 +3934,7 @@ BD菜单是不是这样？
 反了，是五郎配不上莓，莓十四集基本上把五郎当成不存在的东西，人类不会对不存在的东西产生感情。
 
 
------
+*****
 
 ####  elflie  
 ##### 9286#       发表于 2018-4-25 14:30
@@ -3947,7 +3947,7 @@ BD菜单是不是这样？
 不是应该326556吗
 
 
------
+*****
 
 ####  elflie  
 ##### 9287#       发表于 2018-4-25 14:31
@@ -3956,7 +3956,7 @@ BD菜单是不是这样？
 一觉起来，都谈论起生孩子了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9288#       发表于 2018-4-25 14:31
@@ -3967,7 +3967,7 @@ BD菜单是不是这样？
 主菜单剧透不太好吧
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9289#       发表于 2018-4-25 14:31
@@ -3980,7 +3980,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 2.心太满郁来一遍，心满郁太再来一遍。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9290#       发表于 2018-4-25 14:32
@@ -3991,7 +3991,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 难道还有没看过就下单的么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9291#       发表于 2018-4-25 14:33
@@ -4002,7 +4002,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9292#       发表于 2018-4-25 14:33
@@ -4014,7 +4014,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">BD又不是小说漫画，你见过有人看封面就买一卷的么。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9293#       发表于 2018-4-25 14:33
@@ -4025,7 +4025,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 给没看过的人去安利不就剧透了？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9294#       发表于 2018-4-25 14:34
@@ -4037,7 +4037,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 这种操作比较好 
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9295#       发表于 2018-4-25 14:34
@@ -4062,7 +4062,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 第八卷 0216
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9296#       发表于 2018-4-25 14:36
@@ -4078,7 +4078,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 02她。。。很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9297#       发表于 2018-4-25 14:36
@@ -4087,7 +4087,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 第七卷莓α
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9298#       发表于 2018-4-25 14:37
@@ -4101,7 +4101,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 还是214？
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9299#       发表于 2018-4-25 14:37
@@ -4113,7 +4113,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 第五卷给你换成包子脸02<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 9300#       发表于 2018-4-25 14:38
@@ -4125,7 +4125,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9301#       发表于 2018-4-25 14:40
@@ -4139,7 +4139,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 就像广把莓当成妹妹一样
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9302#       发表于 2018-4-25 14:41
@@ -4154,7 +4154,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 而且那个宣传图，分割好几块的那个，我忘记是什么了。好像一个肥宅的脸都没的。。。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9303#       发表于 2018-4-25 14:43
@@ -4166,7 +4166,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 五郎做得到么！
 
 
------
+*****
 
 ####  lanhao  
 ##### 9304#       发表于 2018-4-25 14:45
@@ -4177,7 +4177,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 所以这两人还是别配在一起了 一边观众说莓配不上五郎 另一边观众不想莓给五郎 
 
 
------
+*****
 
 ####  ynam  
 ##### 9305#       发表于 2018-4-25 14:45
@@ -4190,7 +4190,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 五郎去吻草莓的玉足怎样
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9306#       发表于 2018-4-25 14:47
@@ -4202,7 +4202,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 变态萝莉足控
 
 
------
+*****
 
 ####  mumubear  
 ##### 9307#       发表于 2018-4-25 14:48
@@ -4211,7 +4211,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 给吾郎一个钓鱼结局。。。
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 9308#       发表于 2018-4-25 14:50
@@ -4222,7 +4222,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  skives  
 ##### 9309#       发表于 2018-4-25 14:50
@@ -4231,7 +4231,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 第七集的时候我还觉得莓和五郎在一起挺好的
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9310#       发表于 2018-4-25 14:51
@@ -4240,7 +4240,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 所以出现了撩的动莓的小黄毛后五郎和第九集的意义是什么？
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9311#       发表于 2018-4-25 14:52
@@ -4254,7 +4254,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 我觉得还不如杀掉莓对剧情帮助大一些
 
 
------
+*****
 
 ####  Mafise  
 ##### 9312#       发表于 2018-4-25 14:52
@@ -4267,7 +4267,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  步六孤  
 ##### 9313#       发表于 2018-4-25 14:53
@@ -4276,7 +4276,7 @@ BD八卷，开头结尾应该都是0216,13小队四组一组一卷（应该不�
 ost有人提吗，橘麻美自裁还是音监退群
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9314#       发表于 2018-4-25 14:54
@@ -4287,7 +4287,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>
 看大家意见，音监自裁吧
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 9315#       发表于 2018-4-25 14:54
@@ -4301,7 +4301,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9316#       发表于 2018-4-25 14:55
@@ -4313,7 +4313,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 然后让心机郎去祸害666或者214
 
 
------
+*****
 
 ####  ynam  
 ##### 9317#       发表于 2018-4-25 14:55
@@ -4324,7 +4324,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 突显56的杯具和钢铁精神，就是因为他惨所以在泥潭外的地方都获得你国最大军力0216厨和路人的好感不是？
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9318#       发表于 2018-4-25 14:56
@@ -4335,7 +4335,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这周特番，那么16-19集之内1556应该就成了，
 
 
------
+*****
 
 ####  mumubear  
 ##### 9319#       发表于 2018-4-25 14:56
@@ -4347,7 +4347,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 将来被莓五暴打啊。。。
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9320#       发表于 2018-4-25 14:58
@@ -4356,7 +4356,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 16都开了草莓两次了  56怎么也要开次02回本啊。。。。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9321#       发表于 2018-4-25 14:59
@@ -4369,7 +4369,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9322#       发表于 2018-4-25 14:59
@@ -4381,7 +4381,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 莓和小黄毛开一起去了
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 9323#       发表于 2018-4-25 15:00
@@ -4392,7 +4392,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 别忘了五郎的个人回是最像个人回的那个，其他多多少少都与主线有关。这么急着塑造好五郎怕不是。。。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9324#       发表于 2018-4-25 15:00
@@ -4404,7 +4404,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 9325#       发表于 2018-4-25 15:00
@@ -4415,7 +4415,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 比如说，9队13队打仗，9a撩15（貌似可以做到机体撩把这俩，因为9a和15都是和彼此机体共感的），导致翠雀组当机什么的……哈哈总之我觉得这个安排多半是翠雀组要和9a打。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9326#       发表于 2018-4-25 15:00
@@ -4426,7 +4426,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 那顺便让326刷一下4/5成就....
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9327#       发表于 2018-4-25 15:00
@@ -4437,7 +4437,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 来了来了，我在泥潭第三喜欢的五郎便当说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9328#       发表于 2018-4-25 15:03
@@ -4449,7 +4449,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这就是那种我们能想到但是你真的拍出来我们还是会被吓到的展开
 
 
------
+*****
 
 ####  skives  
 ##### 9329#       发表于 2018-4-25 15:03
@@ -4458,7 +4458,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 星期三 杀五郎
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9330#       发表于 2018-4-25 15:03
@@ -4473,7 +4473,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 五郎宕机
 
 
------
+*****
 
 ####  xingenge  
 ##### 9331#       发表于 2018-4-25 15:05
@@ -4488,7 +4488,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1fqowzdgbgfj209q0dltgn.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9332#       发表于 2018-4-25 15:05
@@ -4497,7 +4497,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这片里被击坠就得死俩。。。。   想只死一个的话只能学习团长被突突突了
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9333#       发表于 2018-4-25 15:06
@@ -4511,7 +4511,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  mumubear  
 ##### 9334#       发表于 2018-4-25 15:06
@@ -4530,7 +4530,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 9α：没想到你和e to 一样丑。。。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9335#       发表于 2018-4-25 15:07
@@ -4543,7 +4543,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这个机战番评价会怎么样
 
 
------
+*****
 
 ####  love4aids  
 ##### 9336#       发表于 2018-4-25 15:09
@@ -4552,7 +4552,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 跟小黄毛对打的肯定是翠雀啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9337#       发表于 2018-4-25 15:09
@@ -4567,7 +4567,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这样还想不想卖胶了。。。。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9338#       发表于 2018-4-25 15:10
@@ -4582,7 +4582,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这么可爱的机体就由我来占领
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9339#       发表于 2018-4-25 15:10
@@ -4598,7 +4598,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这不就是在说拉夫塔么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  elflie  
 ##### 9340#       发表于 2018-4-25 15:10
@@ -4614,7 +4614,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 这得看片子本身怎么样了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9341#       发表于 2018-4-25 15:11
@@ -4628,7 +4628,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 可见死一个还是有可能的……
 
 
------
+*****
 
 ####  mumubear  
 ##### 9342#       发表于 2018-4-25 15:12
@@ -4648,7 +4648,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 兽化样子差不多的。。。
 
 
------
+*****
 
 ####  江风改二  
 ##### 9343#       发表于 2018-4-25 15:12
@@ -4664,7 +4664,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">机动战舰了解一下。
 
 
------
+*****
 
 ####  skives  
 ##### 9344#       发表于 2018-4-25 15:12
@@ -4673,7 +4673,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 五郎自己死很简单啊，第九集都差一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9345#       发表于 2018-4-25 15:13
@@ -4689,7 +4689,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 看上去小黄毛是比较怕鹤望兰
 
 
------
+*****
 
 ####  塞瑞娜  
 ##### 9346#       发表于 2018-4-25 15:13
@@ -4705,7 +4705,7 @@ ost有人提吗，橘麻美自裁还是音监退群</blockquote>前面的大概�
 就和铁血一样了，被枪杀的被玩成梗，然后编剧和这片子被痛骂
 
 
------
+*****
 
 ####  xingenge  
 ##### 9347#       发表于 2018-4-25 15:14
@@ -4720,7 +4720,7 @@ Arai Hiroki@arai_1
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1fqox92agoaj20nk0xbe81.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9348#       发表于 2018-4-25 15:16
@@ -4735,7 +4735,7 @@ Arai Hiroki@arai_1</blockquote>
 我还是要说，我永远喜欢鹤望兰
 
 
------
+*****
 
 ####  mumubear  
 ##### 9349#       发表于 2018-4-25 15:17
@@ -4760,7 +4760,7 @@ Arai Hiroki@arai_1</blockquote>
 怕不是瞎子吧。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9350#       发表于 2018-4-25 15:19
@@ -4771,7 +4771,7 @@ Arai Hiroki@arai_1</blockquote>
 以前的高达好像都没有  被枪打死的全是路人。。。
 
 
------
+*****
 
 ####  skives  
 ##### 9351#       发表于 2018-4-25 15:20
@@ -4785,7 +4785,7 @@ Arai Hiroki@arai_1</blockquote>
 以后还能白回来吗
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9352#       发表于 2018-4-25 15:20
@@ -4794,7 +4794,7 @@ Arai Hiroki@arai_1</blockquote>
 虽然萝卜片的特点之一就在于拥有强大力量的主角下了机仍然是普通人，但把主要驾驶员在机战以外场合的杀掉的……浪费啊。
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9353#       发表于 2018-4-25 15:20
@@ -4815,7 +4815,7 @@ Arai Hiroki@arai_1</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9354#       发表于 2018-4-25 15:22
@@ -4829,7 +4829,7 @@ Arai Hiroki@arai_1</blockquote>
 双胞胎也有喜欢妹妹不喜欢姐姐的呢
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9355#       发表于 2018-4-25 15:23
@@ -4838,7 +4838,7 @@ Arai Hiroki@arai_1</blockquote>
 BD封面这02太帅了……谁能想到现在都包子脸了
 
 
------
+*****
 
 ####  skives  
 ##### 9356#       发表于 2018-4-25 15:24
@@ -4847,7 +4847,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 人生艰难，谁还没几次包子脸的时候<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 9357#       发表于 2018-4-25 15:25
@@ -4856,7 +4856,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 包子脸可爱啊，昨天弹幕都是かわいい，然后到小草莓的时候都是无语凝噎了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9358#       发表于 2018-4-25 15:25
@@ -4871,7 +4871,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 9α缓缓放下手臂，溘然长逝，五郎轻声安慰这小草莓，
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9359#       发表于 2018-4-25 15:27
@@ -4884,7 +4884,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 里面还有一个口罩妹啊。。。。
 
 
------
+*****
 
 ####  elflie  
 ##### 9360#       发表于 2018-4-25 15:32
@@ -4893,7 +4893,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 口罩妹还有机会脱口罩吗
 
 
------
+*****
 
 ####  skives  
 ##### 9361#       发表于 2018-4-25 15:32
@@ -4902,7 +4902,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 鹤望兰的胸是硬的还是软的
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9362#       发表于 2018-4-25 15:32
@@ -4913,7 +4913,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9363#       发表于 2018-4-25 15:33
@@ -4928,7 +4928,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 就让我活在回忆里<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zjylyy  
 ##### 9364#       发表于 2018-4-25 15:36
@@ -4937,7 +4937,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 还是回忆里的泽拉图好啊
 
 
------
+*****
 
 ####  love4aids  
 ##### 9365#       发表于 2018-4-25 15:37
@@ -4948,7 +4948,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 多可爱啊，不是吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  蕾麦黛丝  
 ##### 9366#       发表于 2018-4-25 15:39
@@ -4957,7 +4957,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 我也说一句
 
 
------
+*****
 
 ####  步六孤  
 ##### 9367#       发表于 2018-4-25 15:39
@@ -4966,7 +4966,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">男人脸就男人脸，男人脸我也不要02包子脸，气质都变了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9368#       发表于 2018-4-25 15:40
@@ -4975,7 +4975,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 下集就回来了，你们急什么
 
 
------
+*****
 
 ####  skives  
 ##### 9369#       发表于 2018-4-25 15:41
@@ -4984,7 +4984,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 本性是不会变的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9370#       发表于 2018-4-25 15:41
@@ -4996,7 +4996,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 主席和02这部分都换了一个演员<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9371#       发表于 2018-4-25 15:43
@@ -5005,7 +5005,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 下集就回来了，9a和草莓我觉得是队长互相竞争的关系吧，两队的第九人比翼飞走以后，13队成长为跟9队竞争的队伍<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  蕾麦黛丝  
 ##### 9372#       发表于 2018-4-25 15:43
@@ -5014,7 +5014,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 手机版的s1点错了，回帖子那几个字还不自动删除……
 
 
------
+*****
 
 ####  love4aids  
 ##### 9373#       发表于 2018-4-25 15:45
@@ -5025,7 +5025,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 你前面就没认清本质啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9374#       发表于 2018-4-25 15:46
@@ -5040,7 +5040,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 还是包子脸的好
 
 
------
+*****
 
 ####  novid  
 ##### 9375#       发表于 2018-4-25 15:46
@@ -5049,7 +5049,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 我觉得包子脸恋爱脑02也挺好<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9376#       发表于 2018-4-25 15:47
@@ -5064,7 +5064,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 7、8集那种就挺好
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9377#       发表于 2018-4-25 15:47
@@ -5079,7 +5079,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 就不能是第一集抖奶子的老婆吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 9378#       发表于 2018-4-25 15:51
@@ -5088,7 +5088,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了
 不能接受她的全部有什么资格喊老婆<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9379#       发表于 2018-4-25 15:52
@@ -5101,7 +5101,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 叫你在第二话的时候乱舔咯[https://bbs.saraba1st.com/2b/for ... 34&amp;pid=39366138](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1636434&amp;pid=39366138)
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 9380#       发表于 2018-4-25 15:52
@@ -5110,7 +5110,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 说起来,下面的时间,196还有个人回的可能性吗,我估计太和未来个人回的可能性比较低了,那就只有196还有可能
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9381#       发表于 2018-4-25 15:53
@@ -5121,7 +5121,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  80proof  
 ##### 9382#       发表于 2018-4-25 15:54
@@ -5132,7 +5132,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 445种口味的02任你挑选<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 9383#       发表于 2018-4-25 15:54
@@ -5147,7 +5147,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 重要的不是个人回是念诗。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9384#       发表于 2018-4-25 15:55
@@ -5163,7 +5163,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 谁跟你说12的，明明是7,8集的
 
 
------
+*****
 
 ####  步六孤  
 ##### 9385#       发表于 2018-4-25 15:57
@@ -5172,7 +5172,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 这世界上除了1214集02和包子脸02外还是存在第一集第二集的飒爽02的<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 9386#       发表于 2018-4-25 15:57
@@ -5181,7 +5181,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 196的秘密爆炸回
 
 
------
+*****
 
 ####  skives  
 ##### 9387#       发表于 2018-4-25 15:59
@@ -5190,7 +5190,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 我喜欢的是第五集的落汤鸡02
 
 
------
+*****
 
 ####  isummon  
 ##### 9388#       发表于 2018-4-25 16:00
@@ -5199,7 +5199,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 196还是太薄了，只有莓厨一个标签，构想个人回都构想不出来啥有趣的剧情……希望官方能够好好仔细编排一番，别浪费了
 
 
------
+*****
 
 ####  步六孤  
 ##### 9389#       发表于 2018-4-25 16:00
@@ -5208,7 +5208,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 第五集难道不是带着露水的刺玫瑰吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这样也好啊，怎么都比包子脸好啊
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9390#       发表于 2018-4-25 16:01
@@ -5219,7 +5219,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 就不能让主席和02好好腻歪腻歪么<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9391#       发表于 2018-4-25 16:02
@@ -5230,7 +5230,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  novid  
 ##### 9392#       发表于 2018-4-25 16:02
@@ -5239,7 +5239,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 别忘了196是唯一一个没有出现过幼年形态的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9393#       发表于 2018-4-25 16:02
@@ -5254,7 +5254,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 太：对啊 明明是我爆上的个人回，为什么会这样呢？
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9394#       发表于 2018-4-25 16:03
@@ -5265,7 +5265,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 196的个人回要是给1556助攻那就恶心死了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 9395#       发表于 2018-4-25 16:03
@@ -5274,7 +5274,7 @@ BD封面这02太帅了……谁能想到现在都包子脸了</blockquote>
 eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 9396#       发表于 2018-4-25 16:04
@@ -5285,7 +5285,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 可惜目前是主角团女角色中唯一一个没上特典的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 9397#       发表于 2018-4-25 16:05
@@ -5296,7 +5296,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 （一定是自己喜欢所以藏着掖着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
 
------
+*****
 
 ####  isummon  
 ##### 9398#       发表于 2018-4-25 16:05
@@ -5311,7 +5311,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 我觉得还行啊，阿斯卡连着两集卖萌了，杀必死杀必死
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9399#       发表于 2018-4-25 16:06
@@ -5327,7 +5327,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9400#       发表于 2018-4-25 16:06
@@ -5338,7 +5338,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 看得久了，EVA变画风是指片子的氛围还是画面？氛围的话本田雄的一个访谈好像提到过。
 
 
------
+*****
 
 ####  skives  
 ##### 9401#       发表于 2018-4-25 16:06
@@ -5347,7 +5347,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 雄蕊衰老 雌蕊自己上机 兽化
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9402#       发表于 2018-4-25 16:07
@@ -5359,7 +5359,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9403#       发表于 2018-4-25 16:08
@@ -5372,7 +5372,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 是这样 哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 好好谴责下02
 
 
------
+*****
 
 ####  love4aids  
 ##### 9404#       发表于 2018-4-25 16:08
@@ -5381,7 +5381,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 下一集就回到泳装回了，安啦
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 9405#       发表于 2018-4-25 16:09
@@ -5394,7 +5394,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 但这其实就是可能性最高的发展……
 
 
------
+*****
 
 ####  80proof  
 ##### 9406#       发表于 2018-4-25 16:09
@@ -5409,7 +5409,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 那时候看明日香其实还好
 
 
------
+*****
 
 ####  80proof  
 ##### 9407#       发表于 2018-4-25 16:11
@@ -5426,7 +5426,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 有戏的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9408#       发表于 2018-4-25 16:12
@@ -5438,7 +5438,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9409#       发表于 2018-4-25 16:12
@@ -5449,7 +5449,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  ynam  
 ##### 9410#       发表于 2018-4-25 16:13
@@ -5462,7 +5462,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 这是群像剧啊，196可以一次给两到三cp做助攻。
 
 
------
+*****
 
 ####  lanhao  
 ##### 9411#       发表于 2018-4-25 16:14
@@ -5471,7 +5471,7 @@ eva除了q换过画风吗，看了太久了<img src="https://static.saraba1st.co
 god ikuno ！！！
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9412#       发表于 2018-4-25 16:15
@@ -5484,7 +5484,7 @@ god ikuno ！！！
 你不会开eva就不会diss你
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9413#       发表于 2018-4-25 16:17
@@ -5498,7 +5498,7 @@ god ikuno ！！！
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9414#       发表于 2018-4-25 16:19
@@ -5511,7 +5511,7 @@ god ikuno ！！！
 “前两集的制作我们用了6个月，这在TV动画里是非常少见的，并且在这六个月中工作室的每一位成员都被一种严肃沉重的情绪笼罩着。但我确实想做点比这轻松的事情，然后鹤卷和哉就建议——实际上他是耿直的告诉我——“你知道吗？第八集会有点意思。”，所以我举手赞同并且说“是啊，我当然想做那一集。”，就是明日香第一次登场那集。那次工作就是那种我想要的并且我也真的肯开心的气氛，所以回忆起第八集真的是充满感情的。过了那集之后作品的风格又开始严肃了，而且整个制作组的气氛在那之后也每况愈下。”
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9415#       发表于 2018-4-25 16:22
@@ -5525,7 +5525,7 @@ god ikuno ！！！
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xyau  
 ##### 9416#       发表于 2018-4-25 16:23
@@ -5546,7 +5546,7 @@ god ikuno ！！！
 也叫人捉摸不透
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9417#       发表于 2018-4-25 16:25
@@ -5559,7 +5559,7 @@ god ikuno ！！！
 所以你大概知道锦织这些人的追求大概是什么了吧，他的偶像之一就是本田雄哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 9418#       发表于 2018-4-25 16:31
@@ -5571,7 +5571,7 @@ god ikuno ！！！
 这是要让我们轻松愉快地看剩下的9集吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 9419#       发表于 2018-4-25 16:31
@@ -5582,7 +5582,7 @@ god ikuno ！！！
 tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小女友了，不知道有没有人骂ooc
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 9420#       发表于 2018-4-25 16:31
@@ -5595,7 +5595,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 戴眼镜、爱看书、精通人情世故、性冷淡的样子、搭档遭遇变故、硬要说百合也行啊。最最最重要的是，小清水配的音。嗯，红鸟这下应该有劲制196的药了吧
 
 
------
+*****
 
 ####  skives  
 ##### 9421#       发表于 2018-4-25 16:33
@@ -5604,7 +5604,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 欢乐的荒野求生篇，开幕了哦，连续九集，杀必死杀必死！
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9422#       发表于 2018-4-25 16:34
@@ -5615,7 +5615,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 新旧不算同一部作品了，顺便，本田雄表示新剧场版就是自己喜欢的动画，不知道他有没有包含q。
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9423#       发表于 2018-4-25 16:35
@@ -5629,7 +5629,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9424#       发表于 2018-4-25 16:37
@@ -5642,7 +5642,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 就记得铁血什么鬼？
 
 
------
+*****
 
 ####  soulife7  
 ##### 9425#       发表于 2018-4-25 16:38
@@ -5664,7 +5664,7 @@ QQ图片20180425163808.png
 <img src="https://img.saraba1st.com/forum/201804/25/163812wmpb3j7mq7b477bu.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 9426#       发表于 2018-4-25 16:38
@@ -5675,7 +5675,7 @@ QQ图片20180425163808.png
 真嗣就是性格别扭，还完全不到神经病的地步，明日香那是精神出问题了。新剧场版还演了一段明日香跟绫波丽争风吃醋的剧情，要按对15话02的要求早该被骂死了
 
 
------
+*****
 
 ####  yy19  
 ##### 9427#       发表于 2018-4-25 16:40
@@ -5687,7 +5687,7 @@ QQ图片20180425163808.png
 标准B小棒读：EVA的预告，一个字都不能信！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  塞瑞娜  
 ##### 9428#       发表于 2018-4-25 16:41
@@ -5702,7 +5702,7 @@ QQ图片20180425163808.png
 想了想露露羞，你说得对<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9429#       发表于 2018-4-25 16:42
@@ -5713,7 +5713,7 @@ QQ图片20180425163808.png
 最用（狠）心塑（虐）造（待）
 
 
------
+*****
 
 ####  skives  
 ##### 9430#       发表于 2018-4-25 16:42
@@ -5724,7 +5724,7 @@ QQ图片20180425163808.png
 那ditf的结构就是光之翼—比翼鸟—xxx了，锦织哥哥还有九集的时间平息泥潭的怒火。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9431#       发表于 2018-4-25 16:42
@@ -5736,7 +5736,7 @@ QQ图片20180425163808.png
 毕竟是被痞子认可的男人
 
 
------
+*****
 
 ####  lanhao  
 ##### 9432#       发表于 2018-4-25 16:44
@@ -5747,7 +5747,7 @@ QQ图片20180425163808.png
 太真实了
 
 
------
+*****
 
 ####  isummon  
 ##### 9433#       发表于 2018-4-25 16:44
@@ -5759,7 +5759,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 这两套东西又不是同一时期做的……
 
 
------
+*****
 
 ####  lanhao  
 ##### 9434#       发表于 2018-4-25 16:45
@@ -5768,7 +5768,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 eva新剧场版明显是不同于tv的世界线啊
 
 
------
+*****
 
 ####  funo3355411  
 ##### 9435#       发表于 2018-4-25 16:45
@@ -5779,7 +5779,7 @@ eva新剧场版明显是不同于tv的世界线啊
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  isummon  
 ##### 9436#       发表于 2018-4-25 16:47
@@ -5791,7 +5791,7 @@ eva新剧场版明显是不同于tv的世界线啊
 痞子一看国鱼 “锦织OOC了，我收回前言”
 
 
------
+*****
 
 ####  elflie  
 ##### 9437#       发表于 2018-4-25 16:47
@@ -5800,7 +5800,7 @@ eva新剧场版明显是不同于tv的世界线啊
 别说EVA了，就监督对每集脚本的参与度而言，EVA至少除了第四话脚本没痞子外，每一集脚本都有着痞子的名字，目前国家队来说每集脚本都在ROLL，个人功力先不提，每集风格就差太远
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9438#       发表于 2018-4-25 16:47
@@ -5811,7 +5811,7 @@ eva新剧场版明显是不同于tv的世界线啊
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  zkc1991  
 ##### 9439#       发表于 2018-4-25 16:47
@@ -5820,7 +5820,7 @@ eva新剧场版明显是不同于tv的世界线啊
 不要把TV版和新剧场版混为一谈，好多人物性格都变了，当成独立作品去看
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9440#       发表于 2018-4-25 16:48
@@ -5833,7 +5833,7 @@ eva新剧场版明显是不同于tv的世界线啊
 可是不虐香的eva不好看啊
 
 
------
+*****
 
 ####  棒读  
 ##### 9441#       发表于 2018-4-25 16:50
@@ -5846,7 +5846,7 @@ eva新剧场版明显是不同于tv的世界线啊
 剧场版的明日香更符合当今主流喜好，傲娇小女友，q里进化成大姐姐
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9442#       发表于 2018-4-25 16:51
@@ -5857,7 +5857,7 @@ eva新剧场版明显是不同于tv的世界线啊
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  elflie  
 ##### 9443#       发表于 2018-4-25 16:51
@@ -5866,7 +5866,7 @@ eva新剧场版明显是不同于tv的世界线啊
 话说那一句“不想把问题留到下一集”的访谈是在哪说的了，我去翻翻看
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 9444#       发表于 2018-4-25 16:53
@@ -5875,7 +5875,7 @@ eva新剧场版明显是不同于tv的世界线啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">别拿eva比了，我国现在感觉还不如re-take
 
 
------
+*****
 
 ####  zkc1991  
 ##### 9445#       发表于 2018-4-25 16:54
@@ -5884,7 +5884,7 @@ eva新剧场版明显是不同于tv的世界线啊
 做EVA那帮人也有党争，庵野是美里党，虐起明日香毫不手软，其它几个香党很不爽，所以新剧场版就改动很大
 
 
------
+*****
 
 ####  新年才醒  
 ##### 9446#       发表于 2018-4-25 16:54
@@ -5893,7 +5893,7 @@ eva新剧场版明显是不同于tv的世界线啊
 说真的  Q到底算什么鬼。。。破里面小受的雄起是无用功么？  还是说痞子觉得破对大家太好了一定要喂屎  结果玩脱了现在都没法圆。。。
 
 
------
+*****
 
 ####  iceskey  
 ##### 9447#       发表于 2018-4-25 16:55
@@ -5902,7 +5902,7 @@ eva新剧场版明显是不同于tv的世界线啊
 审判的时间快到了，等一个首日被暴打，初动0.5pt<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 9448#       发表于 2018-4-25 16:55
@@ -5917,7 +5917,7 @@ eva新剧场版明显是不同于tv的世界线啊
 铁血的staff对角色没爱啊。。。。
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 9449#       发表于 2018-4-25 16:55
@@ -5929,7 +5929,7 @@ eva新剧场版明显是不同于tv的世界线啊
 不太懂，不是一周才出数据吗？
 
 
------
+*****
 
 ####  iceskey  
 ##### 9450#       发表于 2018-4-25 16:56
@@ -5944,7 +5944,7 @@ eva新剧场版明显是不同于tv的世界线啊
 你看他拍痞斯拉多快活
 
 
------
+*****
 
 ####  iceskey  
 ##### 9451#       发表于 2018-4-25 16:57
@@ -5956,7 +5956,7 @@ eva新剧场版明显是不同于tv的世界线啊
 有日榜的，没有数量但是有排名，今晚就出，可以参考一下南极2卷、骨头1卷等等猜一下首日情况
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9452#       发表于 2018-4-25 16:57
@@ -5968,7 +5968,7 @@ eva新剧场版明显是不同于tv的世界线啊
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9453#       发表于 2018-4-25 17:02
@@ -5979,7 +5979,7 @@ eva新剧场版明显是不同于tv的世界线啊
 说起来我把飞二的staff草草看了一下(包括原画师)，大概有一半人在ditF里露过脸，也许ditF只是差一个痞子或者半个痞子也行。就像飞2的2，3话和飞2的4话一样。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9454#       发表于 2018-4-25 17:04
@@ -5990,7 +5990,7 @@ eva新剧场版明显是不同于tv的世界线啊
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  novid  
 ##### 9455#       发表于 2018-4-25 17:04
@@ -5999,7 +5999,7 @@ eva新剧场版明显是不同于tv的世界线啊
 锦织：我真的只想做一个单纯的爱情故事啊为什么你们都想看第二个EVA<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9456#       发表于 2018-4-25 17:05
@@ -6011,7 +6011,7 @@ eva新剧场版明显是不同于tv的世界线啊
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  iceskey  
 ##### 9457#       发表于 2018-4-25 17:08
@@ -6026,7 +6026,7 @@ eva新剧场版明显是不同于tv的世界线啊
 锦织计划通<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lovepremiere  
 ##### 9458#       发表于 2018-4-25 17:08
@@ -6038,7 +6038,7 @@ eva新剧场版明显是不同于tv的世界线啊
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  棒读  
 ##### 9459#       发表于 2018-4-25 17:08
@@ -6049,7 +6049,7 @@ eva新剧场版明显是不同于tv的世界线啊
 你确定？飞2的核心人物每一个拉出来都能吊打国家队阵容，痞子就不提了，鬼才鹤卷和哉也绝非锦织敦史能比的，国家队没有khara参与，t社主力也没有真正出力，裂化版g社都谈不上
 
 
------
+*****
 
 ####  zkc1991  
 ##### 9460#       发表于 2018-4-25 17:10
@@ -6061,7 +6061,7 @@ eva新剧场版明显是不同于tv的世界线啊
 光露脸没用啊，摸鱼养殖就是典型的出工不出力<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 9461#       发表于 2018-4-25 17:11
@@ -6074,7 +6074,7 @@ eva新剧场版明显是不同于tv的世界线啊
 不一样，诺诺可是真正的强，无论是战斗力的强度还是精神力的强度，都不是平成废物大联欢能比的。拉露可这个姐姐大人塑造倒不太成功，惹人厌的事情做得不少，全靠最后一集扳回点印象分
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9462#       发表于 2018-4-25 17:12
@@ -6085,7 +6085,7 @@ eva新剧场版明显是不同于tv的世界线啊
 就举飞2第四话，原画师21个，作监两个，分镜痞子，演出大冢雅彦。其中有十个人在ditF里出场。
 
 
------
+*****
 
 ####  新年才醒  
 ##### 9463#       发表于 2018-4-25 17:12
@@ -6100,7 +6100,7 @@ eva新剧场版明显是不同于tv的世界线啊
 真是藏的太好了
 
 
------
+*****
 
 ####  elflie  
 ##### 9464#       发表于 2018-4-25 17:14
@@ -6109,7 +6109,7 @@ eva新剧场版明显是不同于tv的世界线啊
 国家队目前就是大佬挂名，新人练手
 
 
------
+*****
 
 ####  棒读  
 ##### 9465#       发表于 2018-4-25 17:14
@@ -6120,7 +6120,7 @@ eva新剧场版明显是不同于tv的世界线啊
 说真的，其他靠着老同僚关系人情串场就不提了，今石这个作为卖点挂名的又出了多少力呢？看到现在t社出力还不如a1的人
 
 
------
+*****
 
 ####  isummon  
 ##### 9466#       发表于 2018-4-25 17:14
@@ -6135,7 +6135,7 @@ MD  看到15才知道你TMD要做王道爱情啊。这都看了一大半了才
 抱歉，第二话的OP已经完全剧透了，包括歌词<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 9467#       发表于 2018-4-25 17:15
@@ -6150,7 +6150,7 @@ MD  看到15才知道你TMD要做王道爱情啊。这都看了一大半了才
 早就明明白白告诉你了啊，谁让你没看播放前特番<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  早見紗織  
 ##### 9468#       发表于 2018-4-25 17:15
@@ -6162,7 +6162,7 @@ Druids in the Franxx</blockquote>
 完美解释了02为什么玛法里奥化
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9469#       发表于 2018-4-25 17:16
@@ -6174,7 +6174,7 @@ Druids in the Franxx</blockquote>
 销量必须要被按在地上摩擦，我心里才能舒坦。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新年才醒  
 ##### 9470#       发表于 2018-4-25 17:17
@@ -6189,7 +6189,7 @@ Druids in the Franxx</blockquote>
 对02根本没兴趣，结果拖到15才彻底断了。。前面早断我早解脱了
 
 
------
+*****
 
 ####  新年才醒  
 ##### 9471#       发表于 2018-4-25 17:18
@@ -6201,7 +6201,7 @@ Druids in the Franxx</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我是被第二话吸引过来的呀。。。。不是我莓  我压根不看这番的
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9472#       发表于 2018-4-25 17:18
@@ -6212,7 +6212,7 @@ Druids in the Franxx</blockquote>
 t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿夫画过四卡左右的原画，第六集是雨宫哲分镜，吉成曜摸了。不过飞二非常核心的人大概就小山出力比较多吧，锦织是在飞二当过演出。
 
 
------
+*****
 
 ####  iceskey  
 ##### 9473#       发表于 2018-4-25 17:19
@@ -6227,7 +6227,7 @@ t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿�
 坐等被福岛p关小黑屋做爱马仕百万
 
 
------
+*****
 
 ####  zkc1991  
 ##### 9474#       发表于 2018-4-25 17:20
@@ -6236,7 +6236,7 @@ t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿�
 主要是G社那帮人已经成名了，好多都成了监督，不会轻易下场画原画，特别是你国就一部TV动画
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9475#       发表于 2018-4-25 17:21
@@ -6247,7 +6247,7 @@ t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿�
 我现在已经完全搞不懂病栋的走势了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 9476#       发表于 2018-4-25 17:23
@@ -6259,7 +6259,7 @@ t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿�
 摸鱼这集还行吧。。。翠雀爆种不是蛮好的。。。
 
 
------
+*****
 
 ####  Code:703  
 ##### 9477#       发表于 2018-4-25 17:23
@@ -6274,7 +6274,7 @@ t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿�
 以后平时就找各种雄蕊上机划水，关键时刻找广上机打boss。
 
 
------
+*****
 
 ####  iceskey  
 ##### 9478#       发表于 2018-4-25 17:24
@@ -6289,7 +6289,7 @@ t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿�
 02：如果早知道性取向也可以传染。。。1516我全都要.jpg
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9479#       发表于 2018-4-25 17:25
@@ -6298,7 +6298,7 @@ t社四位大佬，不少重要的战斗分镜应该是今石画的，石崎寿�
 破当时确实被骂啊，我认得有个30多岁的杂志编辑当时对破里明日香和绫波丽的塑造非常不满。Q他倒是又开心了
 
 
------
+*****
 
 ####  Code:703  
 ##### 9480#       发表于 2018-4-25 17:26
@@ -6310,7 +6310,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 疯狂暗示轮回论。
 
 
------
+*****
 
 ####  love4aids  
 ##### 9481#       发表于 2018-4-25 17:27
@@ -6319,7 +6319,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 都tm开局就比翼鸟了，你15集才看出来？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zkc1991  
 ##### 9482#       发表于 2018-4-25 17:27
@@ -6330,7 +6330,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 这种一般都是原教旨主义者，要的就是那股子扭曲味
 
 
------
+*****
 
 ####  Code:703  
 ##### 9483#       发表于 2018-4-25 17:28
@@ -6342,7 +6342,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 可以变成百合bitch，今天撩ichigo，明天撩miku，后天撩kokoro
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9484#       发表于 2018-4-25 17:29
@@ -6354,7 +6354,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 当然监督这块，痞子和鹤卷比锦织，emm……鹤卷夸过锦织的平衡很好<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9485#       发表于 2018-4-25 17:34
@@ -6363,7 +6363,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 以前也比较流行没有弱点的超人型角色，就拿90年代的美国暑期电影，充斥着像奥尼尔拍的铁人这种角色和电影，现在的超级英雄则基本全部要经历一遍内心被摔碎的过程。
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9486#       发表于 2018-4-25 17:35
@@ -6374,7 +6374,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9487#       发表于 2018-4-25 17:35
@@ -6385,7 +6385,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9488#       发表于 2018-4-25 17:37
@@ -6394,7 +6394,7 @@ eva新剧场版明显是不同于tv的世界线啊</blockquote>
 破里还是争风吃醋抢男人，确实很不习惯。但是我当时是和旧剧场版一起补的，不如说有一种得到救赎的感觉。
 
 
------
+*****
 
 ####  Mafise  
 ##### 9489#       发表于 2018-4-25 17:37
@@ -6408,7 +6408,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  isummon  
 ##### 9490#       发表于 2018-4-25 17:40
@@ -6420,7 +6420,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 基佬出现了以后<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whn1103  
 ##### 9491#       发表于 2018-4-25 17:47
@@ -6437,7 +6437,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9492#       发表于 2018-4-25 17:49
@@ -6452,7 +6452,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 这是要回收一下湿吹老师在漫画第一卷里给大伙的彩页福利吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9493#       发表于 2018-4-25 17:51
@@ -6461,7 +6461,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 说起做饭来，能看到02学做饭么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不过13小队也没个会的，和娜娜学？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9494#       发表于 2018-4-25 17:53
@@ -6472,7 +6472,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 老鼠和鱼选一个吧
 
 
------
+*****
 
 ####  skives  
 ##### 9495#       发表于 2018-4-25 17:54
@@ -6483,7 +6483,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 荒野求生了都……
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9496#       发表于 2018-4-25 17:55
@@ -6496,7 +6496,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 反正他们身体都不要了
 
 
------
+*****
 
 ####  mumubear  
 ##### 9497#       发表于 2018-4-25 17:55
@@ -6511,7 +6511,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 果然影之男主角。。。
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9498#       发表于 2018-4-25 17:55
@@ -6522,7 +6522,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 214。
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9499#       发表于 2018-4-25 17:57
@@ -6533,7 +6533,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9500#       发表于 2018-4-25 17:58
@@ -6547,7 +6547,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 你想看莓哭哭的阿斯卡么。。。。。
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9501#       发表于 2018-4-25 18:02
@@ -6560,7 +6560,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 负责live部分吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 9502#       发表于 2018-4-25 18:02
@@ -6569,7 +6569,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 日榜发布，首日没overlord高，亡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yy19  
 ##### 9503#       发表于 2018-4-25 18:03
@@ -6581,7 +6581,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 没关系。国鱼<strong>只要</strong>好好结尾就能吊打最后2话卜智刀讲JB玩意的EVA tva咯<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 9504#       发表于 2018-4-25 18:03
@@ -6590,7 +6590,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 南极2卷日榜9，骨头12，ditf日榜13，凉了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9505#       发表于 2018-4-25 18:04
@@ -6599,7 +6599,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 17集214做饭回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9506#       发表于 2018-4-25 18:05
@@ -6623,7 +6623,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 2018-4-25 18:05 上传
 
 
------
+*****
 
 ####  xingenge  
 ##### 9507#       发表于 2018-4-25 18:07
@@ -6640,7 +6640,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1fqp2a0m35rj20sg0sgb29.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9508#       发表于 2018-4-25 18:08
@@ -6649,7 +6649,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 壁吧专楼一片哀嚎<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9509#       发表于 2018-4-25 18:09
@@ -6660,7 +6660,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  iceskey  
 ##### 9510#       发表于 2018-4-25 18:11
@@ -6678,7 +6678,7 @@ tv版明日香简直就是个神经病女人啊，新剧场版改造成傲娇小
 等下周周榜吧，这个状况能平pt就不错了
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9511#       发表于 2018-4-25 18:11
@@ -6691,7 +6691,7 @@ OL2  4300PT 12
 国鱼PT可能注水了，略惨<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9512#       发表于 2018-4-25 18:12
@@ -6700,7 +6700,7 @@ OL2  4300PT 12
 锦织回去做百万吧 太丢人了
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9513#       发表于 2018-4-25 18:12
@@ -6709,7 +6709,7 @@ OL2  4300PT 12
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看来中间很多人退订啊
 
 
------
+*****
 
 ####  skives  
 ##### 9514#       发表于 2018-4-25 18:13
@@ -6718,7 +6718,7 @@ OL2  4300PT 12
 7到11，遭不住
 
 
------
+*****
 
 ####  soulife7  
 ##### 9515#       发表于 2018-4-25 18:14
@@ -6730,7 +6730,7 @@ OL2  4300PT 12
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  iceskey  
 ##### 9516#       发表于 2018-4-25 18:15
@@ -6748,7 +6748,7 @@ ditf尼限率高的原因吧
 60%尼限+发售前冲榜，说明偏向亚马逊，店头不行，aniplex一点用都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9517#       发表于 2018-4-25 18:16
@@ -6761,7 +6761,7 @@ ditf尼限率高的原因吧
 sukasuka还卖不过手机侠
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9518#       发表于 2018-4-25 18:17
@@ -6783,7 +6783,7 @@ sukasuka还卖不过手机侠
 <img src="https://img.saraba1st.com/forum/201804/25/181755c5buymqzmm6ykszb.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9519#       发表于 2018-4-25 18:18
@@ -6794,7 +6794,7 @@ sukasuka还卖不过手机侠
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  winoros  
 ##### 9520#       发表于 2018-4-25 18:18
@@ -6803,7 +6803,7 @@ sukasuka还卖不过手机侠
 aniplex店头不给力啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 9521#       发表于 2018-4-25 18:20
@@ -6818,7 +6818,7 @@ aniplex店头不给力啊</blockquote>
 一卷送三本啊！三本啊！
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9522#       发表于 2018-4-25 18:20
@@ -6827,7 +6827,7 @@ aniplex店头不给力啊</blockquote>
 我也觉得，推特就没见过有人晒A店台本以外的版本。可见想晒的都是深爱到会买台本这种奇怪的东西的人
 
 
------
+*****
 
 ####  winoros  
 ##### 9523#       发表于 2018-4-25 18:21
@@ -6842,7 +6842,7 @@ aniplex店头不给力啊</blockquote>
 我是买的HMV的4卷联动小草莓x02的挂画<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9524#       发表于 2018-4-25 18:21
@@ -6853,7 +6853,7 @@ aniplex店头不给力啊</blockquote>
 而是为了你自己！
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9525#       发表于 2018-4-25 18:21
@@ -6865,7 +6865,7 @@ aniplex店头不给力啊</blockquote>
 再来个人回这片可以去扑街了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9526#       发表于 2018-4-25 18:21
@@ -6876,7 +6876,7 @@ aniplex店头不给力啊</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9527#       发表于 2018-4-25 18:22
@@ -6887,7 +6887,7 @@ aniplex店头不给力啊</blockquote>
 锦织君后面九集想想办法啊，能不能长卖？
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9528#       发表于 2018-4-25 18:22
@@ -6898,7 +6898,7 @@ aniplex店头不给力啊</blockquote>
 留给国家队的时间不多了
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9529#       发表于 2018-4-25 18:24
@@ -6907,7 +6907,7 @@ aniplex店头不给力啊</blockquote>
 OL2肯定是超PT了，就看ditf能水多少了
 
 
------
+*****
 
 ####  skives  
 ##### 9530#       发表于 2018-4-25 18:24
@@ -6916,7 +6916,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 在中国被称为国家队，这个结果可以说是很真实了。
 
 
------
+*****
 
 ####  isummon  
 ##### 9531#       发表于 2018-4-25 18:24
@@ -6925,7 +6925,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 笑死了，刚看了两集W高达就看到这个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winoros  
 ##### 9532#       发表于 2018-4-25 18:24
@@ -6934,7 +6934,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定a爹史诗店头漏记了
 
 
------
+*****
 
 ####  iceskey  
 ##### 9533#       发表于 2018-4-25 18:26
@@ -6963,7 +6963,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 吹销量，不到最后一刻，是不能放弃的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9534#       发表于 2018-4-25 18:27
@@ -6979,7 +6979,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 所以18集应该是加强版国9
 
 
------
+*****
 
 ####  lanhao  
 ##### 9535#       发表于 2018-4-25 18:28
@@ -6991,7 +6991,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 始终在循环的ditf
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9536#       发表于 2018-4-25 18:28
@@ -7006,7 +7006,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9537#       发表于 2018-4-25 18:28
@@ -7015,7 +7015,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">加强版国9，加强演出和打戏那不就还行嘛。难道加强草莓？
 
 
------
+*****
 
 ####  skives  
 ##### 9538#       发表于 2018-4-25 18:29
@@ -7027,7 +7027,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 要上了小草莓，发卡的准备还足够吗
 
 
------
+*****
 
 ####  isummon  
 ##### 9539#       发表于 2018-4-25 18:29
@@ -7041,7 +7041,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 该轮到阿莓自爆了
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9540#       发表于 2018-4-25 18:29
@@ -7052,7 +7052,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9541#       发表于 2018-4-25 18:30
@@ -7064,7 +7064,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  mumubear  
 ##### 9542#       发表于 2018-4-25 18:30
@@ -7079,7 +7079,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 用papa的借花献佛怎么算自己的心意。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9543#       发表于 2018-4-25 18:30
@@ -7090,7 +7090,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 24集应该就是终极加强版的国15了
 
 
------
+*****
 
 ####  Code:703  
 ##### 9544#       发表于 2018-4-25 18:31
@@ -7105,7 +7105,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 下一话全员便当，再下一话出灰姑娘小队。
 
 
------
+*****
 
 ####  kira1988  
 ##### 9545#       发表于 2018-4-25 18:31
@@ -7117,7 +7117,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9546#       发表于 2018-4-25 18:31
@@ -7128,7 +7128,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9547#       发表于 2018-4-25 18:32
@@ -7140,7 +7140,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 果然如此。。。不行，忍住，还不能笑！<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9548#       发表于 2018-4-25 18:32
@@ -7149,7 +7149,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 漏记我印象最深的就是夏洛特发售那次，当时夏洛特当了一周的季霸，结果发现一堆对手都漏记了....<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9549#       发表于 2018-4-25 18:33
@@ -7164,7 +7164,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 冰菓还行，第一集樱花树下留到最后一集
 
 
------
+*****
 
 ####  黑沢逢世  
 ##### 9550#       发表于 2018-4-25 18:33
@@ -7175,7 +7175,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9551#       发表于 2018-4-25 18:33
@@ -7184,7 +7184,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 日榜第五，可以上香了
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9552#       发表于 2018-4-25 18:33
@@ -7196,7 +7196,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 壁吧还要哭到下周呢。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9553#       发表于 2018-4-25 18:33
@@ -7209,7 +7209,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 醒醒 15集冰菓备受好评的十文字篇都快完了
 
 
------
+*****
 
 ####  winoros  
 ##### 9554#       发表于 2018-4-25 18:34
@@ -7218,7 +7218,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少哭到长卖啊，还有的哭
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9555#       发表于 2018-4-25 18:35
@@ -7229,7 +7229,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9556#       发表于 2018-4-25 18:35
@@ -7238,7 +7238,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 说好的国鲲.....
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9557#       发表于 2018-4-25 18:36
@@ -7254,7 +7254,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 2018-4-25 18:36 上传
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9558#       发表于 2018-4-25 18:36
@@ -7263,7 +7263,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 可以开始问罪了吧
 
 
------
+*****
 
 ####  love4aids  
 ##### 9559#       发表于 2018-4-25 18:37
@@ -7276,7 +7276,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 窝看好你，锦织
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9560#       发表于 2018-4-25 18:39
@@ -7285,7 +7285,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 这片王道剧情够多了，0216背好锅hhhh
 
 
------
+*****
 
 ####  zjylyy  
 ##### 9561#       发表于 2018-4-25 18:39
@@ -7294,7 +7294,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 锦织哥哥加油啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9562#       发表于 2018-4-25 18:39
@@ -7303,7 +7303,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">周六特番提供素材，周一出数据提供证据，无尽的审判。
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9563#       发表于 2018-4-25 18:40
@@ -7314,7 +7314,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  mumubear  
 ##### 9564#       发表于 2018-4-25 18:41
@@ -7329,7 +7329,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 锦织：请一定要看到最后啊。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9565#       发表于 2018-4-25 18:42
@@ -7341,7 +7341,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 又到了人民群众痛打落水狗的时候了。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9566#       发表于 2018-4-25 18:42
@@ -7350,7 +7350,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 心满配对是不是也引起一大部分肥宅愤怒退订？
 
 
------
+*****
 
 ####  love4aids  
 ##### 9567#       发表于 2018-4-25 18:42
@@ -7359,7 +7359,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 7-11pt直接掉一半，回到216才有气色，不过还是有点晚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9568#       发表于 2018-4-25 18:42
@@ -7371,7 +7371,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 没王道剧情早就3开头了哪还有你5开头的事
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9569#       发表于 2018-4-25 18:43
@@ -7380,7 +7380,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 咱们0216厨就这么多人了，总不能一人买三份吧，这锅不背<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9570#       发表于 2018-4-25 18:43
@@ -7391,7 +7391,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 国15: 其实我还能再进化一次！
 
 
------
+*****
 
 ####  czm9657  
 ##### 9571#       发表于 2018-4-25 18:44
@@ -7403,7 +7403,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 还背锅呢，没13 15 这番死得更惨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9572#       发表于 2018-4-25 18:44
@@ -7414,7 +7414,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 这片不就0216厨买吗？所以加油
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9573#       发表于 2018-4-25 18:44
@@ -7423,7 +7423,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 有些人黑216黑到销量上来了，真的笑死了
 
 
------
+*****
 
 ####  skives  
 ##### 9574#       发表于 2018-4-25 18:44
@@ -7432,7 +7432,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 我承认，我是看到第十话才决定只买第一卷的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9575#       发表于 2018-4-25 18:44
@@ -7443,7 +7443,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 3000+2勇士何在？！！
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9576#       发表于 2018-4-25 18:45
@@ -7454,7 +7454,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 毕竟他在岸上的时候我总希望他不是狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9577#       发表于 2018-4-25 18:45
@@ -7467,7 +7467,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 我还以为能挑战下我们CG.....
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9578#       发表于 2018-4-25 18:47
@@ -7478,7 +7478,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9579#       发表于 2018-4-25 18:47
@@ -7487,7 +7487,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 有些莓党真的丢人
 
 
------
+*****
 
 ####  isummon  
 ##### 9580#       发表于 2018-4-25 18:48
@@ -7496,7 +7496,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 看来还是得多拍点甜甜的216回啊，再搞个人回就真的死球了
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9581#       发表于 2018-4-25 18:48
@@ -7510,7 +7510,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  skives  
 ##### 9582#       发表于 2018-4-25 18:48
@@ -7519,7 +7519,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 这个楼倒是可以挑战556了
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9583#       发表于 2018-4-25 18:48
@@ -7533,7 +7533,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  yjsp114514  
 ##### 9584#       发表于 2018-4-25 18:49
@@ -7547,7 +7547,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 求求你别嗦了www
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9585#       发表于 2018-4-25 18:49
@@ -7562,7 +7562,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 只知道卖的挺多的
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9586#       发表于 2018-4-25 18:50
@@ -7573,7 +7573,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  mumubear  
 ##### 9587#       发表于 2018-4-25 18:50
@@ -7585,7 +7585,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">来得及改剧情么？。。。
 
 
------
+*****
 
 ####  czm9657  
 ##### 9588#       发表于 2018-4-25 18:50
@@ -7594,7 +7594,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 壁吧说14播出后，推上一堆退订的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9589#       发表于 2018-4-25 18:50
@@ -7605,7 +7605,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 满爷虽是影之男主，到在大部分人看来只是配角，配角真的能影响销量吗？（笑）
 
 
------
+*****
 
 ####  Prolun  
 ##### 9590#       发表于 2018-4-25 18:50
@@ -7614,7 +7614,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 就这么亡了
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9591#       发表于 2018-4-25 18:51
@@ -7623,7 +7623,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">片都快做完了改球啊，静看表演，锦织要能实现泥谭剧本风评和销量的双反击那他牛逼。
 
 
------
+*****
 
 ####  winoros  
 ##### 9592#       发表于 2018-4-25 18:51
@@ -7632,7 +7632,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">店头退订比亚马逊麻烦多了，就听他们口头退订吧
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9593#       发表于 2018-4-25 18:51
@@ -7647,7 +7647,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 要我告诉你吗
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9594#       发表于 2018-4-25 18:51
@@ -7659,7 +7659,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9595#       发表于 2018-4-25 18:52
@@ -7670,7 +7670,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 那15集出来后到是订回来啊。。。
 
 
------
+*****
 
 ####  skives  
 ##### 9596#       发表于 2018-4-25 18:52
@@ -7679,7 +7679,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 销量的事儿还是归壁吧吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9597#       发表于 2018-4-25 18:52
@@ -7691,7 +7691,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9598#       发表于 2018-4-25 18:52
@@ -7700,7 +7700,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 11集我记得还是涨的 至少那一周好像没跌到1000以下
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9599#       发表于 2018-4-25 18:53
@@ -7712,7 +7712,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 麻烦不代表不能啊，人家铁了心你也没办法<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 9600#       发表于 2018-4-25 18:53
@@ -7725,7 +7725,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 国鱼十倍有余吧……
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9601#       发表于 2018-4-25 18:53
@@ -7736,7 +7736,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 2ch因为这个黑的一大堆，还刷屏
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9602#       发表于 2018-4-25 18:53
@@ -7749,7 +7749,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 心满郁和谐恩爱，气死渣操作的16
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9603#       发表于 2018-4-25 18:53
@@ -7761,7 +7761,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  塞瑞娜  
 ##### 9604#       发表于 2018-4-25 18:53
@@ -7776,7 +7776,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 看起来国2324也可能是国56<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9605#       发表于 2018-4-25 18:54
@@ -7785,7 +7785,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 结局要是拍了216之子/女/02怀孕，应该有救……
 
 
------
+*****
 
 ####  80proof  
 ##### 9606#       发表于 2018-4-25 18:54
@@ -7794,7 +7794,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 216快出来 国鱼顶不住啊<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9607#       发表于 2018-4-25 18:54
@@ -7803,7 +7803,7 @@ OL2肯定是超PT了，就看ditf能水多少了
 我敢说按泥潭假药发展，2300顶天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 9608#       发表于 2018-4-25 18:55
@@ -7824,7 +7824,7 @@ cg我记得5w+
 cg如果放到今年，破万都难，真的
 
 
------
+*****
 
 ####  nick1303  
 ##### 9609#       发表于 2018-4-25 18:55
@@ -7833,7 +7833,7 @@ cg如果放到今年，破万都难，真的
 假如是26集还好，24集不知道锦织能不能翻啊。
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 9610#       发表于 2018-4-25 18:55
@@ -7842,7 +7842,7 @@ cg如果放到今年，破万都难，真的
 红鸟说卖超cg我以为他知道数据在搞笑，我隐约记得后面加个0也不够吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9611#       发表于 2018-4-25 18:56
@@ -7851,7 +7851,7 @@ cg如果放到今年，破万都难，真的
 7-10把PT败了一半有余，中间小起伏就不细说了
 
 
------
+*****
 
 ####  yy19  
 ##### 9612#       发表于 2018-4-25 18:56
@@ -7866,7 +7866,7 @@ cg如果放到今年，破万都难，真的
 别酱紫。面对销量厨要学会阿Q回复：这都×102年了，圆盘早就成了利润指标而不是……<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9613#       发表于 2018-4-25 18:56
@@ -7877,7 +7877,7 @@ cg如果放到今年，破万都难，真的
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  love4aids  
 ##### 9614#       发表于 2018-4-25 18:56
@@ -7886,7 +7886,7 @@ cg如果放到今年，破万都难，真的
 按泥潭100前任说，我估计pt就1开头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9615#       发表于 2018-4-25 18:57
@@ -7898,7 +7898,7 @@ cg如果放到今年，破万都难，真的
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9616#       发表于 2018-4-25 18:57
@@ -7916,7 +7916,7 @@ cg如果放到今年，破万都难，真的 ...</blockquote>cg第一部前15集
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 9617#       发表于 2018-4-25 18:57
@@ -7925,7 +7925,7 @@ cg如果放到今年，破万都难，真的 ...</blockquote>cg第一部前15集
 剧场版：希拉图 in the franxx！也可以翻身<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9618#       发表于 2018-4-25 18:57
@@ -7934,7 +7934,7 @@ cg如果放到今年，破万都难，真的 ...</blockquote>cg第一部前15集
 你们猜最强工具龙能挡住鹤望兰几招？
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9619#       发表于 2018-4-25 18:57
@@ -7949,7 +7949,7 @@ cg我记得5w+
 我怎么记得是7开头的
 
 
------
+*****
 
 ####  skives  
 ##### 9620#       发表于 2018-4-25 18:58
@@ -7958,7 +7958,7 @@ cg我记得5w+
 cg放到今年也至少两万吧
 
 
------
+*****
 
 ####  空空空  
 ##### 9621#       发表于 2018-4-25 18:58
@@ -7973,7 +7973,7 @@ cg我记得5w+
 R1之后，原创比它能打的，有几个.....
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9622#       发表于 2018-4-25 18:58
@@ -7985,7 +7985,7 @@ R1之后，原创比它能打的，有几个.....
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9623#       发表于 2018-4-25 18:59
@@ -7996,7 +7996,7 @@ R1之后，原创比它能打的，有几个.....
 作为戏服总归是和我们自家作品比啊.....
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9624#       发表于 2018-4-25 18:59
@@ -8005,7 +8005,7 @@ R1之后，原创比它能打的，有几个.....
 销量第一卷定上限了 然后一右到底 
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9625#       发表于 2018-4-25 18:59
@@ -8017,7 +8017,7 @@ R1之后，原创比它能打的，有几个.....
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9626#       发表于 2018-4-25 18:59
@@ -8029,7 +8029,7 @@ R1之后，原创比它能打的，有几个.....</blockquote>想了想，好像
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  江风改二  
 ##### 9627#       发表于 2018-4-25 19:00
@@ -8043,7 +8043,7 @@ R1之后，原创比它能打的，有几个.....</blockquote>想了想，好像
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要往脸上贴金了吧。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9628#       发表于 2018-4-25 19:00
@@ -8052,7 +8052,7 @@ R1之后，原创比它能打的，有几个.....</blockquote>想了想，好像
 至于Ｒ魂卖的好不好 看月榜能不能进前10就知道
 
 
------
+*****
 
 ####  iceskey  
 ##### 9629#       发表于 2018-4-25 19:00
@@ -8070,7 +8070,7 @@ cg第一部前15集剧情真的很牛逼啊…
 时代不同了，没办法
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9630#       发表于 2018-4-25 19:00
@@ -8082,7 +8082,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  iceskey  
 ##### 9631#       发表于 2018-4-25 19:00
@@ -8094,7 +8094,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 具体的我记不清了，应该是6或者7开头，所以只说了5w以上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9632#       发表于 2018-4-25 19:01
@@ -8108,7 +8108,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 姐妹机合体技不可避免
 
 
------
+*****
 
 ####  lanhao  
 ##### 9633#       发表于 2018-4-25 19:02
@@ -8117,7 +8117,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 浪起来啊 锦织君
 
 
------
+*****
 
 ####  isummon  
 ##### 9634#       发表于 2018-4-25 19:04
@@ -8129,7 +8129,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 两台机意识流动，里边四个人怕不是要打起来……
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9635#       发表于 2018-4-25 19:05
@@ -8138,7 +8138,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 以国家队的阵容销量打不过天使龙打话绝对算大宝石 （天使龙两个通版月榜都进前10）
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9636#       发表于 2018-4-25 19:05
@@ -8151,7 +8151,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 到时候卖碟亏的钱开演唱会和卖CD赚回来！
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9637#       发表于 2018-4-25 19:05
@@ -8160,7 +8160,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 别说了，鸟羽已经在算账了，百万不破壁怕是不行了
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9638#       发表于 2018-4-25 19:05
@@ -8169,7 +8169,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 后面鲁路修有一直出新装BD之类的东西，累计相当可怕的
 
 
------
+*****
 
 ####  ChrisSnake  
 ##### 9639#       发表于 2018-4-25 19:06
@@ -8178,7 +8178,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 特番是啥意思？ 总集篇？
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9640#       发表于 2018-4-25 19:06
@@ -8189,7 +8189,7 @@ mf放今天绝对卖不过马三角</blockquote>女王个人魅力把delta那两
 我霉会让着它们就如同这集妥协一样
 
 
------
+*****
 
 ####  iceskey  
 ##### 9641#       发表于 2018-4-25 19:06
@@ -8203,7 +8203,7 @@ dvd榜倒是莫名的高，压了南极dvd
 女性向动画ditf<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winoros  
 ##### 9642#       发表于 2018-4-25 19:06
@@ -8216,7 +8216,7 @@ dvd榜倒是莫名的高，压了南极dvd
  *13位　*72,603　コードギアス 反逆のルルーシュ
 
 
------
+*****
 
 ####  iceskey  
 ##### 9643#       发表于 2018-4-25 19:07
@@ -8230,7 +8230,7 @@ dvd榜倒是莫名的高，压了南极dvd
 总集篇要算进集数
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9644#       发表于 2018-4-25 19:08
@@ -8241,7 +8241,7 @@ R1 累平：72603 先发：45367
 R2 累平：64204 先发：42690
 
 
------
+*****
 
 ####  czm9657  
 ##### 9645#       发表于 2018-4-25 19:09
@@ -8250,7 +8250,7 @@ R2 累平：64204 先发：42690
 特番的话 周四还会出预告吗
 
 
------
+*****
 
 ####  ChrisSnake  
 ##### 9646#       发表于 2018-4-25 19:10
@@ -8264,7 +8264,7 @@ R2 累平：64204 先发：42690
 内容还是总集篇嘛 现在很多总集篇都不算集数了
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9647#       发表于 2018-4-25 19:10
@@ -8275,7 +8275,7 @@ R2 累平：64204 先发：42690
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  iceskey  
 ##### 9648#       发表于 2018-4-25 19:10
@@ -8287,7 +8287,7 @@ R2 累平：64204 先发：42690
 不是，前半可能是总集篇形式，但是后半有staff访谈
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9649#       发表于 2018-4-25 19:13
@@ -8296,7 +8296,7 @@ R2 累平：64204 先发：42690
 02本子题材有很多。081老汉 326小鲜肉 10勇士 爸爸们 
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9650#       发表于 2018-4-25 19:13
@@ -8308,7 +8308,7 @@ R2 累平：64204 先发：42690
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9651#       发表于 2018-4-25 19:15
@@ -8319,7 +8319,7 @@ R2 累平：64204 先发：42690
 papa们还行。。。有人买这种的？
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9652#       发表于 2018-4-25 19:16
@@ -8328,7 +8328,7 @@ papa们还行。。。有人买这种的？
 02的本子可能还不如556和390的本子好用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9653#       发表于 2018-4-25 19:16
@@ -8337,7 +8337,7 @@ papa们还行。。。有人买这种的？
 爸爸我看不行，爸爸变成猴子形态肯定行
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9654#       发表于 2018-4-25 19:16
@@ -8349,7 +8349,7 @@ papa们还行。。。有人买这种的？
 一半剪辑一半访谈
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9655#       发表于 2018-4-25 19:17
@@ -8360,7 +8360,7 @@ papa们还行。。。有人买这种的？
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  funo3355411  
 ##### 9656#       发表于 2018-4-25 19:18
@@ -8371,7 +8371,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9657#       发表于 2018-4-25 19:19
@@ -8393,7 +8393,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 <img src="https://img.saraba1st.com/forum/201804/25/191918eyy68355i5l7yo3g.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9658#       发表于 2018-4-25 19:19
@@ -8404,7 +8404,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 26队长曾经只有搭档便当
 
 
------
+*****
 
 ####  xyau  
 ##### 9659#       发表于 2018-4-25 19:20
@@ -8415,7 +8415,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 官推把214打成56了……
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9660#       发表于 2018-4-25 19:22
@@ -8424,7 +8424,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 可见，慌了，名字都发错了
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9661#       发表于 2018-4-25 19:23
@@ -8436,7 +8436,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  love4aids  
 ##### 9662#       发表于 2018-4-25 19:23
@@ -8447,7 +8447,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 专楼还有尬黑216销量毒药的生物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9663#       发表于 2018-4-25 19:25
@@ -8458,7 +8458,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 神了，最后翠雀脸上还有东西划过。
 
 
------
+*****
 
 ####  zjylyy  
 ##### 9664#       发表于 2018-4-25 19:28
@@ -8467,7 +8467,7 @@ p站有02326的<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9665#       发表于 2018-4-25 19:29
@@ -8479,7 +8479,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  80proof  
 ##### 9666#       发表于 2018-4-25 19:34
@@ -8490,7 +8490,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 56你..........<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9667#       发表于 2018-4-25 19:34
@@ -8501,7 +8501,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 一叽咕这集打人的时候如果附带点中二修正意味台词就好了，也能代表整个13队发泄不满，结果纯粹是个人的无能狂怒，跟胖子揍326一样。该说不愧同一个脚本么。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9668#       发表于 2018-4-25 19:36
@@ -8513,7 +8513,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xyau  
 ##### 9669#       发表于 2018-4-25 19:37
@@ -8524,7 +8524,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 好像说了句しっかりしろ
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9670#       发表于 2018-4-25 19:41
@@ -8534,7 +8534,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 杀pt？
 
 
------
+*****
 
 ####  ChrisSnake  
 ##### 9671#       发表于 2018-4-25 19:41
@@ -8546,7 +8546,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 我选择睡觉
 
 
------
+*****
 
 ####  lanhao  
 ##### 9672#       发表于 2018-4-25 19:41
@@ -8555,7 +8555,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 13小队没有不满 也不能说这行为是对的吧 阿莓修正下 其实对变人的意义的加深也蛮好的
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9673#       发表于 2018-4-25 19:44
@@ -8564,7 +8564,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 这三集都是0216我还能等等，后面如果真的用不上个人回我就要黑烂了
 
 
------
+*****
 
 ####  ynam  
 ##### 9674#       发表于 2018-4-25 19:46
@@ -8575,7 +8575,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 这锅濑古得背，但也有莓性格和肥仔像的缘故，不过莓得到了比肥仔甚至心更好的待遇。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9675#       发表于 2018-4-25 19:46
@@ -8587,7 +8587,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 吹逼和分锅大会，超有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9676#       发表于 2018-4-25 19:47
@@ -8599,7 +8599,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 真没什么意义 不仅13小队工具人没啥意义 这些机体都没啥意义 至今对13小队这些机体的特性都没表现出来 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 不仅没表现出来 还显得拖后腿
 
 
------
+*****
 
 ####  zjylyy  
 ##### 9677#       发表于 2018-4-25 19:49
@@ -8611,7 +8611,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 有啊，15话不是有投影泪花吗<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9678#       发表于 2018-4-25 19:49
@@ -8624,7 +8624,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 国10涉及部分世界观，现在都市被破坏，后续会有用
 
 
------
+*****
 
 ####  zkn1968  
 ##### 9679#       发表于 2018-4-25 19:50
@@ -8636,7 +8636,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 初始设定的问题，小山重人设计了机体外形，核心STAFF群没有给机体注入灵魂。
 
 
------
+*****
 
 ####  zkn1968  
 ##### 9680#       发表于 2018-4-25 19:51
@@ -8648,7 +8648,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 15集的质量不足以让人订回来
 
 
------
+*****
 
 ####  skives  
 ##### 9681#       发表于 2018-4-25 19:52
@@ -8657,7 +8657,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 假如我是14集退订的，看到15集肯定更气
 
 
------
+*****
 
 ####  彩虹之羽  
 ##### 9682#       发表于 2018-4-25 19:53
@@ -8666,7 +8666,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 喷了 泥潭专楼没有研究过销量的人么  
 
 
------
+*****
 
 ####  deidara  
 ##### 9683#       发表于 2018-4-25 19:53
@@ -8680,7 +8680,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 15集倒是被狗男女感动了就没后话。
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9684#       发表于 2018-4-25 19:53
@@ -8695,7 +8695,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 你要说满爷影男主吧，11集前的人设实在没这个分量（11集以后其实也没有，14集刚有点重要起来的架势15集就又回去了）……他要是一开始就画得好看点戏份讨喜一点说不定还能作为女性向主力卖点。
 
 
------
+*****
 
 ####  zkn1968  
 ##### 9685#       发表于 2018-4-25 19:54
@@ -8707,7 +8707,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 不可能，胖子的格局也就是到此为止了
 
 
------
+*****
 
 ####  zkn1968  
 ##### 9686#       发表于 2018-4-25 19:56
@@ -8722,7 +8722,7 @@ franxx啥构造啊，咋还能哭呢，博士的恶趣味吗？</blockquote>就�
 EVA前16话的质量吊打国家队不成问题
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9687#       发表于 2018-4-25 19:56
@@ -8734,7 +8734,7 @@ EVA前16话的质量吊打国家队不成问题
 那是泥潭
 
 
------
+*****
 
 ####  zkn1968  
 ##### 9688#       发表于 2018-4-25 19:56
@@ -8748,7 +8748,7 @@ EVA前16话的质量吊打国家队不成问题
 1556的国9，我是真没看出来有存在的必要
 
 
------
+*****
 
 ####  彩虹之羽  
 ##### 9689#       发表于 2018-4-25 19:56
@@ -8757,7 +8757,7 @@ EVA前16话的质量吊打国家队不成问题
 现在只是因为国家队超不了pt 原先设想是a爹店头有3000到4000的人买 所以实际上可能会超pt   日榜出了只是告诉你a爹店头不强而已  骨傲天最后肯定是超pt的 起码5000左右   而且这首日是不包括日亚水平的 只是隐藏店头率先发货  现在看来 国家队初动平pt 差不多  稍微会超一点  后面还有后劲呢  
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9690#       发表于 2018-4-25 19:57
@@ -8771,7 +8771,7 @@ EVA开头到屋岛作战女神微笑
 大概率吊打国家队从头到底加起来...
 
 
------
+*****
 
 ####  lanhao  
 ##### 9691#       发表于 2018-4-25 19:57
@@ -8780,7 +8780,7 @@ EVA开头到屋岛作战女神微笑
 吊兰是支援型 金雀是近距离破坏力强著称 青葙是特化近战与速度的机体 翠雀是二刀流  <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 当然还有最强鹤望兰 大范围aoe穿透高伤害 速度快到看不见 
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9692#       发表于 2018-4-25 19:58
@@ -8791,7 +8791,7 @@ EVA开头到屋岛作战女神微笑
 2CH假的....
 
 
------
+*****
 
 ####  isummon  
 ##### 9693#       发表于 2018-4-25 19:58
@@ -8805,7 +8805,7 @@ EVA开头到屋岛作战女神微笑
 想起大家之前努力分析保皇党和跑路党以及战力对比，我就想苦笑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">四个小弱鸡儿根本摸不到红皮二段的边，还搞个啥子站队和实力对比……
 
 
------
+*****
 
 ####  love4aids  
 ##### 9694#       发表于 2018-4-25 19:58
@@ -8839,7 +8839,7 @@ EVA开头到屋岛作战女神微笑
 查看全部评分
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 9695#       发表于 2018-4-25 19:59
@@ -8851,7 +8851,7 @@ EVA开头到屋岛作战女神微笑
 和世界观无关,但从他们这个年龄还是可能相对成熟地处理人际关系而不是只有秀一发操作的角度<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">,国九还是不错的
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9696#       发表于 2018-4-25 20:00
@@ -8863,7 +8863,7 @@ EVA开头到屋岛作战女神微笑
 下周是没播放效应的，要等很久了
 
 
------
+*****
 
 ####  czm9657  
 ##### 9697#       发表于 2018-4-25 20:00
@@ -8875,7 +8875,7 @@ EVA开头到屋岛作战女神微笑
 不不不，从前楼发的PT走势图看，还是有不少人订回来的
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9698#       发表于 2018-4-25 20:00
@@ -8889,7 +8889,7 @@ EVA开头到屋岛作战女神微笑
 青葙是弱化版翠雀....<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9699#       发表于 2018-4-25 20:01
@@ -8903,7 +8903,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  早見紗織  
 ##### 9700#       发表于 2018-4-25 20:01
@@ -8917,7 +8917,7 @@ EVA开头到屋岛作战女神微笑
 说好的做群像剧，锦织哥哥销量暴死也不会骗你
 
 
------
+*****
 
 ####  lanhao  
 ##### 9701#       发表于 2018-4-25 20:01
@@ -8930,7 +8930,7 @@ EVA开头到屋岛作战女神微笑
 15集apart团队协作我看得还是很爽的
 
 
------
+*****
 
 ####  novid  
 ##### 9702#       发表于 2018-4-25 20:01
@@ -8939,7 +8939,7 @@ EVA开头到屋岛作战女神微笑
 说起来近些年非偶像非女性向的原创似乎是越来越萎了
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9703#       发表于 2018-4-25 20:02
@@ -8954,7 +8954,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  deidara  
 ##### 9704#       发表于 2018-4-25 20:02
@@ -8965,7 +8965,7 @@ EVA开头到屋岛作战女神微笑
 第十话有什么问题么。
 
 
------
+*****
 
 ####  iceskey  
 ##### 9705#       发表于 2018-4-25 20:03
@@ -8980,7 +8980,7 @@ EVA开头到屋岛作战女神微笑
 如果要删，还是删9最好，礼物部分可以压缩进10
 
 
------
+*****
 
 ####  isummon  
 ##### 9706#       发表于 2018-4-25 20:03
@@ -8989,7 +8989,7 @@ EVA开头到屋岛作战女神微笑
 本周要是有预告就好了，充分讨论先把药搞出来。现在无厘头没方向根本制不下去
 
 
------
+*****
 
 ####  早見紗織  
 ##### 9707#       发表于 2018-4-25 20:03
@@ -9001,7 +9001,7 @@ EVA开头到屋岛作战女神微笑
 国8里02跳楼那一卡应该会回收的吧
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9708#       发表于 2018-4-25 20:03
@@ -9012,7 +9012,7 @@ EVA开头到屋岛作战女神微笑
 开始预告要虐02了
 
 
------
+*****
 
 ####  winoros  
 ##### 9709#       发表于 2018-4-25 20:03
@@ -9021,7 +9021,7 @@ EVA开头到屋岛作战女神微笑
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至少等水pt了 再扯退订吧
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9710#       发表于 2018-4-25 20:04
@@ -9036,7 +9036,7 @@ EVA开头到屋岛作战女神微笑
 想看翠雀阿黑颜吖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9711#       发表于 2018-4-25 20:04
@@ -9045,7 +9045,7 @@ EVA开头到屋岛作战女神微笑
 所以删掉一部分配角 把戏份加到反派 13小队部分人当后勤 把这片当偶像片来拍 会好看很对
 
 
------
+*****
 
 ####  skives  
 ##### 9712#       发表于 2018-4-25 20:04
@@ -9056,7 +9056,7 @@ EVA开头到屋岛作战女神微笑
 第十话本身没什么问题，是我心态崩了
 
 
------
+*****
 
 ####  isummon  
 ##### 9713#       发表于 2018-4-25 20:04
@@ -9068,7 +9068,7 @@ EVA开头到屋岛作战女神微笑
 “想像人类一样吵吵架”那里？已经回收了吧，人类游戏啊，现在02知道翻车以后就不玩了
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9714#       发表于 2018-4-25 20:05
@@ -9079,7 +9079,7 @@ EVA开头到屋岛作战女神微笑
 说到群像，可是塑造的13小队形象也并没有塑造出来啊，男队员们人设真的挺路人的，不够吸睛，更吸引不了女性观众，还不如早点塑造9s的队员们，9a和16搞点基。
 
 
------
+*****
 
 ####  skives  
 ##### 9715#       发表于 2018-4-25 20:06
@@ -9088,7 +9088,7 @@ EVA开头到屋岛作战女神微笑
 十个主角，其中大部分还都是没有任何黑历史充实形象的孩子，想不出成功的先例
 
 
------
+*****
 
 ####  早見紗織  
 ##### 9716#       发表于 2018-4-25 20:07
@@ -9100,7 +9100,7 @@ EVA开头到屋岛作战女神微笑
 联想到第二话那几个类似的动作，总觉得后面还要再跳一次的感觉
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9717#       发表于 2018-4-25 20:07
@@ -9111,7 +9111,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  ynam  
 ##### 9718#       发表于 2018-4-25 20:08
@@ -9124,7 +9124,7 @@ EVA开头到屋岛作战女神微笑
 56556390196表示这锅我不背，他们一开始都挺02让莓先别喷，然并卵。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9719#       发表于 2018-4-25 20:08
@@ -9140,7 +9140,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9720#       发表于 2018-4-25 20:08
@@ -9155,7 +9155,7 @@ EVA开头到屋岛作战女神微笑
 毕竟除了女主一个流水线出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 9721#       发表于 2018-4-25 20:08
@@ -9166,7 +9166,7 @@ EVA开头到屋岛作战女神微笑
 10个人就2个有过去，其他8个基本等于从一张白纸开始塑造，又没有激烈的矛盾冲突加持，24话还是太难了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9722#       发表于 2018-4-25 20:08
@@ -9178,7 +9178,7 @@ EVA开头到屋岛作战女神微笑
 “sayonara darling！”
 
 
------
+*****
 
 ####  isummon  
 ##### 9723#       发表于 2018-4-25 20:09
@@ -9190,7 +9190,7 @@ EVA开头到屋岛作战女神微笑
 数码宝贝？虽然少了两个
 
 
------
+*****
 
 ####  novid  
 ##### 9724#       发表于 2018-4-25 20:09
@@ -9203,7 +9203,7 @@ EVA开头到屋岛作战女神微笑
 错了，下次肯定是没抓到真掉下去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  haradatos  
 ##### 9725#       发表于 2018-4-25 20:09
@@ -9217,7 +9217,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  江风改二  
 ##### 9726#       发表于 2018-4-25 20:09
@@ -9226,7 +9226,7 @@ EVA开头到屋岛作战女神微笑
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">忽然想起来，以前有张图，我们想要的泽拉图是asuka，给我们的泽拉图是狗公主。在哪集专楼来着，我记得挺早的时候，简直神预言。
 
 
------
+*****
 
 ####  isummon  
 ##### 9727#       发表于 2018-4-25 20:10
@@ -9242,7 +9242,7 @@ EVA开头到屋岛作战女神微笑
 哦指的是这个表现啊。那也不会跳楼了，顶多就是真嗣怒拉凌波丽那种。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9728#       发表于 2018-4-25 20:10
@@ -9254,7 +9254,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9729#       发表于 2018-4-25 20:10
@@ -9265,7 +9265,7 @@ EVA开头到屋岛作战女神微笑
 满爷已经不错了 在有限的戏份 玩出了自己特有的性格 
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9730#       发表于 2018-4-25 20:12
@@ -9279,7 +9279,7 @@ EVA开头到屋岛作战女神微笑
 说到了重点！群像剧的成功多半要建立在每个角色有各自的背景，这样才方便塑造。锦织是翻车了啊。
 
 
------
+*****
 
 ####  ynam  
 ##### 9731#       发表于 2018-4-25 20:13
@@ -9290,7 +9290,7 @@ EVA开头到屋岛作战女神微笑
 其实只看这集表现他差不多是个男五。
 
 
------
+*****
 
 ####  ror  
 ##### 9732#       发表于 2018-4-25 20:13
@@ -9301,7 +9301,7 @@ EVA开头到屋岛作战女神微笑
 数码宝贝那每个人黑历史一点都不少吧
 
 
------
+*****
 
 ####  mumubear  
 ##### 9733#       发表于 2018-4-25 20:13
@@ -9315,7 +9315,7 @@ EVA开头到屋岛作战女神微笑
 但我还是喜欢看翻车。。。
 
 
------
+*****
 
 ####  skives  
 ##### 9734#       发表于 2018-4-25 20:13
@@ -9326,7 +9326,7 @@ EVA开头到屋岛作战女神微笑
 数码宝贝的孩子们可以写他们家庭的故事，ditf、一群孤儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 9735#       发表于 2018-4-25 20:13
@@ -9335,7 +9335,7 @@ EVA开头到屋岛作战女神微笑
 那么有没有一群背景差不多的孤儿的群像剧呢
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9736#       发表于 2018-4-25 20:14
@@ -9346,7 +9346,7 @@ EVA开头到屋岛作战女神微笑
 广主席男一无疑。可满爷咋成男四了？
 
 
------
+*****
 
 ####  lanhao  
 ##### 9737#       发表于 2018-4-25 20:15
@@ -9357,7 +9357,7 @@ EVA开头到屋岛作战女神微笑
 满爷细节多 这集全队竖大拇指 唯独他不  公频秀恩爱 其他三个男生感动地流泪 他是别过头 让观众看不见
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9738#       发表于 2018-4-25 20:16
@@ -9372,7 +9372,7 @@ EVA开头到屋岛作战女神微笑
 这么看，国家队描写角色的负面部分的用力程度还不如一部子供片呢……最负面的：满（试图强开02）、心（背叛伙伴），剩下的也就666欺负一下弱鸡阶段的广这种小儿科毛病了，主角还一点不带记恨的。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9739#       发表于 2018-4-25 20:16
@@ -9394,7 +9394,7 @@ EVA开头到屋岛作战女神微笑
 2018-4-25 20:16 上传
 
 
------
+*****
 
 ####  deidara  
 ##### 9740#       发表于 2018-4-25 20:17
@@ -9406,7 +9406,7 @@ EVA开头到屋岛作战女神微笑
 最后人家也同意让两人公开见面了，这也够意思了。
 
 
------
+*****
 
 ####  江风改二  
 ##### 9741#       发表于 2018-4-25 20:17
@@ -9425,7 +9425,7 @@ EVA开头到屋岛作战女神微笑
 喷了 这图还是红鸟做的。
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9742#       发表于 2018-4-25 20:18
@@ -9437,7 +9437,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9743#       发表于 2018-4-25 20:18
@@ -9457,7 +9457,7 @@ EVA开头到屋岛作战女神微笑
 下集广主席被迫离队，这几个人每个人又都知道点小秘密，蛮有可能撕起来的
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9744#       发表于 2018-4-25 20:19
@@ -9468,7 +9468,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  love4aids  
 ##### 9745#       发表于 2018-4-25 20:19
@@ -9479,7 +9479,7 @@ EVA开头到屋岛作战女神微笑
 一般观众表示：你装你🐴么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ynam  
 ##### 9746#       发表于 2018-4-25 20:20
@@ -9490,7 +9490,7 @@ EVA开头到屋岛作战女神微笑
 可能是关注角度不同吧，满战斗部分不是很出彩也没有像196或556那样发现了任何关键的东西。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9747#       发表于 2018-4-25 20:20
@@ -9499,7 +9499,7 @@ EVA开头到屋岛作战女神微笑
 326了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9748#       发表于 2018-4-25 20:20
@@ -9508,7 +9508,7 @@ EVA开头到屋岛作战女神微笑
 满爷最大的问题是人设不够帅，发型的问题。
 
 
------
+*****
 
 ####  lanhao  
 ##### 9749#       发表于 2018-4-25 20:20
@@ -9519,7 +9519,7 @@ EVA开头到屋岛作战女神微笑
 对啊 像326这种早期扮黑脸的角色 在正常观众里几乎是没人厨的 戏份一多怕是要炎上
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9750#       发表于 2018-4-25 20:20
@@ -9531,7 +9531,7 @@ EVA开头到屋岛作战女神微笑
 心满郁在一起
 
 
------
+*****
 
 ####  haradatos  
 ##### 9751#       发表于 2018-4-25 20:21
@@ -9543,7 +9543,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  love4aids  
 ##### 9752#       发表于 2018-4-25 20:21
@@ -9556,7 +9556,7 @@ EVA开头到屋岛作战女神微笑
 你那么喜欢分析，想明白一点啊
 
 
------
+*****
 
 ####  山贼先生  
 ##### 9753#       发表于 2018-4-25 20:21
@@ -9565,7 +9565,7 @@ EVA开头到屋岛作战女神微笑
 326楼留名<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xiyue365  
 ##### 9754#       发表于 2018-4-25 20:21
@@ -9574,7 +9574,7 @@ EVA开头到屋岛作战女神微笑
 突然326页
 
 
------
+*****
 
 ####  lanhao  
 ##### 9755#       发表于 2018-4-25 20:22
@@ -9585,7 +9585,7 @@ EVA开头到屋岛作战女神微笑
 全队除了 鹤望兰和翠雀 有战斗出彩的吗 不都是放放炮 挠挠痒 最后一枪
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9756#       发表于 2018-4-25 20:22
@@ -9594,7 +9594,7 @@ EVA开头到屋岛作战女神微笑
 泥潭太宠满了...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  deidara  
 ##### 9757#       发表于 2018-4-25 20:22
@@ -9605,7 +9605,7 @@ EVA开头到屋岛作战女神微笑
 数码宝贝那些孩子家庭背景很复杂。。。
 
 
------
+*****
 
 ####  isummon  
 ##### 9758#       发表于 2018-4-25 20:22
@@ -9617,7 +9617,7 @@ EVA开头到屋岛作战女神微笑
 不算黑历史吧，只能算是黑背景，最多是家庭的问题，大家也就吵吵架，关键时刻正能量还是爆表。也不会出现素娜强吻大和被太一看到这种剧情……
 
 
------
+*****
 
 ####  Meteors  
 ##### 9759#       发表于 2018-4-25 20:22
@@ -9629,7 +9629,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9760#       发表于 2018-4-25 20:22
@@ -9638,7 +9638,7 @@ EVA开头到屋岛作战女神微笑
 满副主席永远健康！
 
 
------
+*****
 
 ####  love4aids  
 ##### 9761#       发表于 2018-4-25 20:22
@@ -9649,7 +9649,7 @@ EVA开头到屋岛作战女神微笑
 你的帖子让我印象很深刻的
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9762#       发表于 2018-4-25 20:23
@@ -9658,7 +9658,7 @@ EVA开头到屋岛作战女神微笑
 没注意到，差点错过了。。。
 
 
------
+*****
 
 ####  xiyue365  
 ##### 9763#       发表于 2018-4-25 20:24
@@ -9675,7 +9675,7 @@ EVA开头到屋岛作战女神微笑
 流子也会害羞也会不好意思，会长也会温柔也会逞强，哪个不比这边自然。
 
 
------
+*****
 
 ####  七夜琉璃  
 ##### 9764#       发表于 2018-4-25 20:24
@@ -9690,7 +9690,7 @@ EVA开头到屋岛作战女神微笑
 何苦说破呢
 
 
------
+*****
 
 ####  isummon  
 ##### 9765#       发表于 2018-4-25 20:24
@@ -9702,7 +9702,7 @@ EVA开头到屋岛作战女神微笑
 心满线是专楼预测最后的尊严了……
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9766#       发表于 2018-4-25 20:24
@@ -9717,7 +9717,7 @@ EVA开头到屋岛作战女神微笑
 洒家心里苦啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9767#       发表于 2018-4-25 20:25
@@ -9731,7 +9731,7 @@ EVA开头到屋岛作战女神微笑
 你看第三集他上了鹤望兰之后的表情+台词，活脱脱一个看不起男主又即将被打脸的瘪三役，开头人设就立歪了后续却一直捧，很谜的操作。
 
 
------
+*****
 
 ####  love4aids  
 ##### 9768#       发表于 2018-4-25 20:25
@@ -9746,7 +9746,7 @@ EVA开头到屋岛作战女神微笑
 有个性是心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9769#       发表于 2018-4-25 20:26
@@ -9755,7 +9755,7 @@ EVA开头到屋岛作战女神微笑
 如果是我来写 熊孩子组就来个冲动操作导致全队受到不可扭转的损失 满爷就来个扭曲过度 背叛 然后便当悔改 胖子作为组里的稳定担当 不过不失 听从队长命令的王牌pilot
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9770#       发表于 2018-4-25 20:26
@@ -9771,7 +9771,7 @@ EVA开头到屋岛作战女神微笑
 郁也有
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9771#       发表于 2018-4-25 20:26
@@ -9784,7 +9784,7 @@ EVA开头到屋岛作战女神微笑
 近几年有故事设定苦大仇深，主角连续吃瘪超过2话，然后还卖的不错（超5000）的非系列作动画嘛？
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9772#       发表于 2018-4-25 20:27
@@ -9797,7 +9797,7 @@ EVA开头到屋岛作战女神微笑
 高达....
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9773#       发表于 2018-4-25 20:27
@@ -9812,7 +9812,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9774#       发表于 2018-4-25 20:27
@@ -9823,7 +9823,7 @@ EVA开头到屋岛作战女神微笑
 哼，我看你就是为难我满爷。。。（笑）
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9775#       发表于 2018-4-25 20:27
@@ -9835,7 +9835,7 @@ EVA开头到屋岛作战女神微笑
 11话以后又没声了，塑料（工具）CP走起<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9776#       发表于 2018-4-25 20:27
@@ -9846,7 +9846,7 @@ EVA开头到屋岛作战女神微笑
 配角除了心，其他都是工具人
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9777#       发表于 2018-4-25 20:27
@@ -9860,7 +9860,7 @@ EVA开头到屋岛作战女神微笑
 有粉丝基础的还是好卖
 
 
------
+*****
 
 ####  ynam  
 ##### 9778#       发表于 2018-4-25 20:27
@@ -9871,7 +9871,7 @@ EVA开头到屋岛作战女神微笑
 我觉得国11满那个自暴自弃的非常有影子主人公的味道了，其他时候不行，不伴随强大实力的装逼犯不是好的装逼犯。
 
 
------
+*****
 
 ####  love4aids  
 ##### 9779#       发表于 2018-4-25 20:28
@@ -9882,7 +9882,7 @@ EVA开头到屋岛作战女神微笑
 那我的话有没有道理啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9780#       发表于 2018-4-25 20:28
@@ -9895,7 +9895,7 @@ EVA开头到屋岛作战女神微笑
 还说不是真爱
 
 
------
+*****
 
 ####  lanhao  
 ##### 9781#       发表于 2018-4-25 20:28
@@ -9908,7 +9908,7 @@ EVA开头到屋岛作战女神微笑
 哪有什么人捧 泥潭部分人在玩而已 p站图也没多少
 
 
------
+*****
 
 ####  isummon  
 ##### 9782#       发表于 2018-4-25 20:29
@@ -9917,7 +9917,7 @@ EVA开头到屋岛作战女神微笑
 都快别说了，最有个性的是直美酱谢谢
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9783#       发表于 2018-4-25 20:29
@@ -9931,7 +9931,7 @@ EVA开头到屋岛作战女神微笑
 锦织：看了专楼，我才发现我根本没搞懂谁才是主角组<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 9784#       发表于 2018-4-25 20:29
@@ -9946,7 +9946,7 @@ EVA开头到屋岛作战女神微笑
 二刺螈常见现象之“角色表现跟我想象不一致，辣鸡”啦，趴在地上想了一下，可能跟“我原本以为是个百人斩大姐姐手把手带我飞，没想竟然是tm个处女技术比我还差”类似的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9785#       发表于 2018-4-25 20:29
@@ -9955,7 +9955,7 @@ EVA开头到屋岛作战女神微笑
 其实楼里很多话看上去都有一股微妙的怨气，太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9786#       发表于 2018-4-25 20:30
@@ -9966,7 +9966,7 @@ EVA开头到屋岛作战女神微笑
 真是影子主人公，15话就是他表现的机会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9787#       发表于 2018-4-25 20:30
@@ -9982,7 +9982,7 @@ EVA开头到屋岛作战女神微笑
 泥潭专楼本质满爷说 GET
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9788#       发表于 2018-4-25 20:30
@@ -9996,7 +9996,7 @@ EVA开头到屋岛作战女神微笑
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">魔法少女小圆哦。
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9789#       发表于 2018-4-25 20:31
@@ -10013,7 +10013,7 @@ EVA开头到屋岛作战女神微笑
 不知道这不是不平行制作的锅
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9790#       发表于 2018-4-25 20:31
@@ -10025,7 +10025,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9791#       发表于 2018-4-25 20:31
@@ -10036,7 +10036,7 @@ EVA开头到屋岛作战女神微笑
 不是最近
 
 
------
+*****
 
 ####  haradatos  
 ##### 9792#       发表于 2018-4-25 20:31
@@ -10047,7 +10047,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9793#       发表于 2018-4-25 20:32
@@ -10056,7 +10056,7 @@ EVA开头到屋岛作战女神微笑
 结城友奈好像卖的很好？
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9794#       发表于 2018-4-25 20:32
@@ -10070,7 +10070,7 @@ EVA开头到屋岛作战女神微笑
 所以我才觉得这种操作很谜。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9795#       发表于 2018-4-25 20:32
@@ -10079,7 +10079,7 @@ EVA开头到屋岛作战女神微笑
 泥潭众：烂不烂不重要，让我再吸一口<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 9796#       发表于 2018-4-25 20:32
@@ -10088,7 +10088,7 @@ EVA开头到屋岛作战女神微笑
 刚来就错过326页，这次不要错过miku了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9797#       发表于 2018-4-25 20:33
@@ -10101,7 +10101,7 @@ EVA开头到屋岛作战女神微笑
 还是因为爱着角色，结果关键的剧情里角色被制作组弄得像傻子一样，都很生气。
 
 
------
+*****
 
 ####  lanhao  
 ##### 9798#       发表于 2018-4-25 20:33
@@ -10111,7 +10111,7 @@ EVA开头到屋岛作战女神微笑
 至今不知道主角方要干啥 反抗又没有什么迹象 
 
 
------
+*****
 
 ####  love4aids  
 ##### 9799#       发表于 2018-4-25 20:33
@@ -10126,7 +10126,7 @@ EVA开头到屋岛作战女神微笑
 我现在还保留着心广的期待好吧
 
 
------
+*****
 
 ####  xiyue365  
 ##### 9800#       发表于 2018-4-25 20:33
@@ -10135,7 +10135,7 @@ EVA开头到屋岛作战女神微笑
 友奈还可以，第一季9000吧，那一季的俩黑马之一
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9801#       发表于 2018-4-25 20:34
@@ -10146,7 +10146,7 @@ EVA开头到屋岛作战女神微笑
 毕竟是邪恶之地...
 
 
------
+*****
 
 ####  deidara  
 ##### 9802#       发表于 2018-4-25 20:34
@@ -10157,7 +10157,7 @@ EVA开头到屋岛作战女神微笑
 这事儿第十集我就在说了，当时也是一堆喷我的。
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9803#       发表于 2018-4-25 20:35
@@ -10169,7 +10169,7 @@ EVA开头到屋岛作战女神微笑
 那就yuri on ice，运动番主角好像连金牌都没拿。
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 9804#       发表于 2018-4-25 20:35
@@ -10183,7 +10183,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9805#       发表于 2018-4-25 20:35
@@ -10194,7 +10194,7 @@ EVA开头到屋岛作战女神微笑
 很明显了吧 第三集就表现了他的敌视是和幼时有关的
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9806#       发表于 2018-4-25 20:35
@@ -10206,7 +10206,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  白叹夜  
 ##### 9807#       发表于 2018-4-25 20:36
@@ -10221,7 +10221,7 @@ EVA开头到屋岛作战女神微笑
 广这种当自强的男生心没机会的啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9808#       发表于 2018-4-25 20:37
@@ -10232,7 +10232,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9809#       发表于 2018-4-25 20:37
@@ -10243,7 +10243,7 @@ EVA开头到屋岛作战女神微笑
 淦，还真是，之前等着看心满carry送阿广上鹤望兰，谁想到是消费小草莓。。。锦织你退群吧。
 
 
------
+*****
 
 ####  七夜琉璃  
 ##### 9810#       发表于 2018-4-25 20:37
@@ -10257,7 +10257,7 @@ EVA开头到屋岛作战女神微笑
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9811#       发表于 2018-4-25 20:38
@@ -10266,7 +10266,7 @@ EVA开头到屋岛作战女神微笑
 当年你们可不是这么说流子的，而是说她全程无成长被人当枪使。气话就别说了吧。
 
 
------
+*****
 
 ####  deidara  
 ##### 9812#       发表于 2018-4-25 20:38
@@ -10279,7 +10279,7 @@ EVA开头到屋岛作战女神微笑
 你觉得我屁股在哪？
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 9813#       发表于 2018-4-25 20:38
@@ -10291,7 +10291,7 @@ EVA开头到屋岛作战女神微笑
 挺好的，累计卷均好像有9000。 虽然我是不理解第一季那个跟舞hime似的天降白魔法结局怎么这么能卖的（好像第二季圆回来了？没有看）……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9814#       发表于 2018-4-25 20:38
@@ -10300,7 +10300,7 @@ EVA开头到屋岛作战女神微笑
 战斗根本没有团队协作的必要 配角也插入不了主角的感情线 要群像 只能个人回 可是又没有很明显的主线线索去靠 只能单元剧 虽然很好看 但真观众可是不耐烦的
 
 
------
+*****
 
 ####  步六孤  
 ##### 9815#       发表于 2018-4-25 20:38
@@ -10309,7 +10309,7 @@ EVA开头到屋岛作战女神微笑
 今天发售初动要出了，商业成绩将最有力得审判锦织<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9816#       发表于 2018-4-25 20:38
@@ -10318,7 +10318,7 @@ EVA开头到屋岛作战女神微笑
 16,17年的原创真没有哪个能说苦大仇深还卖得好，勉强擦边的是大河内的那个PP，不过那个卷均5800，也不能说特别好....
 
 
------
+*****
 
 ####  isummon  
 ##### 9817#       发表于 2018-4-25 20:39
@@ -10333,7 +10333,7 @@ EVA开头到屋岛作战女神微笑
 然后特么正面甩给你一发记忆回流，淦
 
 
------
+*****
 
 ####  haradatos  
 ##### 9818#       发表于 2018-4-25 20:39
@@ -10347,7 +10347,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  skives  
 ##### 9819#       发表于 2018-4-25 20:39
@@ -10376,7 +10376,7 @@ EVA开头到屋岛作战女神微笑
 2018-4-25 20:38 上传
 
 
------
+*****
 
 ####  Shylia  
 ##### 9820#       发表于 2018-4-25 20:40
@@ -10388,7 +10388,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  yy19  
 ##### 9821#       发表于 2018-4-25 20:40
@@ -10400,7 +10400,7 @@ EVA开头到屋岛作战女神微笑
 请把最后“王牌”两个字换成普通（说好听点“成长型”），蟹蟹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9822#       发表于 2018-4-25 20:40
@@ -10413,7 +10413,7 @@ EVA开头到屋岛作战女神微笑
 至少保留了一个生孩子支线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9823#       发表于 2018-4-25 20:41
@@ -10424,7 +10424,7 @@ EVA开头到屋岛作战女神微笑
 然而这镜头意义何在？？！
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9824#       发表于 2018-4-25 20:41
@@ -10433,7 +10433,7 @@ EVA开头到屋岛作战女神微笑
 哭一回就黑成这样，下回要是变成第八集那个样，怕是第二个OOC贴要出来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9825#       发表于 2018-4-25 20:41
@@ -10445,7 +10445,7 @@ EVA开头到屋岛作战女神微笑
 快别提了，国7的标题还是“流星暂停”呢
 
 
------
+*****
 
 ####  lanhao  
 ##### 9826#       发表于 2018-4-25 20:42
@@ -10454,7 +10454,7 @@ EVA开头到屋岛作战女神微笑
 虽然泥潭莓厨很多 但是我还是要说 这集记忆回流反复横跳太好了 是真的傻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 9827#       发表于 2018-4-25 20:42
@@ -10466,7 +10466,7 @@ EVA开头到屋岛作战女神微笑
 让鬼佬在这一刻集体大喊“release him！”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9828#       发表于 2018-4-25 20:42
@@ -10478,7 +10478,7 @@ EVA开头到屋岛作战女神微笑
 你屁股在02黑，好了，别说了，停了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白叹夜  
 ##### 9829#       发表于 2018-4-25 20:42
@@ -10490,7 +10490,7 @@ EVA开头到屋岛作战女神微笑
 这里一股告白成功的味道是最迷的<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9830#       发表于 2018-4-25 20:42
@@ -10502,7 +10502,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9831#       发表于 2018-4-25 20:43
@@ -10515,7 +10515,7 @@ EVA开头到屋岛作战女神微笑
 让我想到了知乎的那个问答“有什么让人觉得才刚刚起步却已经是巅峰的事？”
 
 
------
+*****
 
 ####  ynam  
 ##### 9832#       发表于 2018-4-25 20:43
@@ -10526,7 +10526,7 @@ EVA开头到屋岛作战女神微笑
 拿第二也算好了，而且冰尤没贵乱白学，男一到男n都有固定cp，从不喂屎，可惜锦织没大妈的心，成不了真霸权。
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9833#       发表于 2018-4-25 20:43
@@ -10535,7 +10535,7 @@ EVA开头到屋岛作战女神微笑
 辣鸡 骨头2的卖不过<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9834#       发表于 2018-4-25 20:43
@@ -10547,7 +10547,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9835#       发表于 2018-4-25 20:44
@@ -10558,7 +10558,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xiyue365  
 ##### 9836#       发表于 2018-4-25 20:44
@@ -10572,7 +10572,7 @@ EVA开头到屋岛作战女神微笑
 然后结尾给了个更大的白魔法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9837#       发表于 2018-4-25 20:44
@@ -10588,7 +10588,7 @@ EVA开头到屋岛作战女神微笑
 不要再让我想起来了！！！！！！！！！！！！！！！！！！！！！！！！！！！
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 9838#       发表于 2018-4-25 20:44
@@ -10600,7 +10600,7 @@ EVA开头到屋岛作战女神微笑
 没想到竟然是第二次白魔法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9839#       发表于 2018-4-25 20:44
@@ -10613,7 +10613,7 @@ EVA开头到屋岛作战女神微笑
 那只能说一句，阿广ooc了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9840#       发表于 2018-4-25 20:45
@@ -10624,7 +10624,7 @@ EVA开头到屋岛作战女神微笑
 当初看到这个镜头只有一个感觉，专楼最low的假药破产了，都这样了，怎么可能送阿广上鹤望兰？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9841#       发表于 2018-4-25 20:45
@@ -10633,7 +10633,7 @@ EVA开头到屋岛作战女神微笑
 说真的 拍成天元突破二之达令在弗兰姬上 要好的多 作画资源这么多 15集风格又这么相似
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9842#       发表于 2018-4-25 20:45
@@ -10646,7 +10646,7 @@ EVA开头到屋岛作战女神微笑
 能回到第一第二集的样子就吹爆。可架不住观众就想看02软妹的样子，撒撒娇，darlingdarling 就好了。
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9843#       发表于 2018-4-25 20:45
@@ -10658,7 +10658,7 @@ EVA开头到屋岛作战女神微笑
 偶像片监督是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9844#       发表于 2018-4-25 20:46
@@ -10675,7 +10675,7 @@ EVA开头到屋岛作战女神微笑
 自带过滤60%的观众
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9845#       发表于 2018-4-25 20:46
@@ -10687,7 +10687,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9846#       发表于 2018-4-25 20:47
@@ -10702,7 +10702,7 @@ EVA开头到屋岛作战女神微笑
 半集戏份都没有的怎么配叫工具人 比宋兵甲高级点罢
 
 
------
+*****
 
 ####  lanhao  
 ##### 9847#       发表于 2018-4-25 20:47
@@ -10715,7 +10715,7 @@ EVA开头到屋岛作战女神微笑
 萝卜片？
 
 
------
+*****
 
 ####  isummon  
 ##### 9848#       发表于 2018-4-25 20:47
@@ -10724,7 +10724,7 @@ EVA开头到屋岛作战女神微笑
 要02回到前面几集的酷炫状态，得是发现了什么不得了的事情，或者做了什么无法挽回的情况才行……现在昂首挺胸，比较接近的还是国4吧
 
 
------
+*****
 
 ####  绫魂h  
 ##### 9849#       发表于 2018-4-25 20:48
@@ -10742,7 +10742,7 @@ EVA开头到屋岛作战女神微笑
 个人认为论话题度的话，11话是仅次于14话的
 
 
------
+*****
 
 ####  isummon  
 ##### 9850#       发表于 2018-4-25 20:48
@@ -10754,7 +10754,7 @@ EVA开头到屋岛作战女神微笑
 不，送就送了，都这样了，居然直接剧情杀给放了。台词听完我立马佛了
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9851#       发表于 2018-4-25 20:48
@@ -10771,7 +10771,7 @@ EVA开头到屋岛作战女神微笑
 就像电影里的所谓“粉丝向”一样，明明谁都能看，但是有粉丝向这个标签很多人就不想买票了
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9852#       发表于 2018-4-25 20:49
@@ -10789,7 +10789,7 @@ EVA开头到屋岛作战女神微笑
 这是第二季？？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9853#       发表于 2018-4-25 20:49
@@ -10801,7 +10801,7 @@ EVA开头到屋岛作战女神微笑
 五郎：我来！
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9854#       发表于 2018-4-25 20:49
@@ -10813,7 +10813,7 @@ EVA开头到屋岛作战女神微笑
 都不懂泥潭喜欢败犬是结果论还是就喜欢这种设定的模板<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 9855#       发表于 2018-4-25 20:50
@@ -10827,7 +10827,7 @@ EVA开头到屋岛作战女神微笑
 就是这个剧情杀的方式太尼玛没说服力了
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 9856#       发表于 2018-4-25 20:50
@@ -10836,7 +10836,7 @@ EVA开头到屋岛作战女神微笑
 说来鬼佬确实大多真是喜欢或是说能理解直来直往的感情，像小草莓最后送上机时那句“广就让给你了”的台词，我们这边的观众应该大多都能感受其中的细微心情；鬼佬那边就是一边倒的“what? Let you have Hiro? As if he is your thing to give?”这种类似的反应<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9857#       发表于 2018-4-25 20:50
@@ -10853,7 +10853,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9858#       发表于 2018-4-25 20:50
@@ -10862,7 +10862,7 @@ EVA开头到屋岛作战女神微笑
 最近我甚至不想看什么心满七七八八的 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 我只想看到底是试探说还是利用说
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9859#       发表于 2018-4-25 20:51
@@ -10876,7 +10876,7 @@ EVA开头到屋岛作战女神微笑
 小学生：萝卜什么的已经过时了，jpg
 
 
------
+*****
 
 ####  skives  
 ##### 9860#       发表于 2018-4-25 20:51
@@ -10904,7 +10904,7 @@ EVA开头到屋岛作战女神微笑
 2018-4-25 20:51 上传
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9861#       发表于 2018-4-25 20:51
@@ -10916,7 +10916,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9862#       发表于 2018-4-25 20:52
@@ -10925,7 +10925,7 @@ EVA开头到屋岛作战女神微笑
 才周三你们就330了，这楼连着营业14天怕不是703有望……
 
 
------
+*****
 
 ####  love4aids  
 ##### 9863#       发表于 2018-4-25 20:52
@@ -10937,7 +10937,7 @@ EVA开头到屋岛作战女神微笑
 这能恶心死多少莓党
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9864#       发表于 2018-4-25 20:53
@@ -10948,7 +10948,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9865#       发表于 2018-4-25 20:53
@@ -10972,7 +10972,7 @@ EVA开头到屋岛作战女神微笑
 有一种看萝卜的人都过时了的赶脚
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9866#       发表于 2018-4-25 20:53
@@ -10987,7 +10987,7 @@ EVA开头到屋岛作战女神微笑
 还有第二次？？
 
 
------
+*****
 
 ####  deidara  
 ##### 9867#       发表于 2018-4-25 20:54
@@ -11001,7 +11001,7 @@ EVA开头到屋岛作战女神微笑
 这次共同体内部决议，道理上没什么好黑的。责任主要在你广，你广越早把话说开越可能避免不可控局面。他最知情同时最有人望，又是当事人，掌握最关键的情报，结果这些人说不定现在还不知道02小时候吃的苦。
 
 
------
+*****
 
 ####  isummon  
 ##### 9868#       发表于 2018-4-25 20:54
@@ -11013,7 +11013,7 @@ EVA开头到屋岛作战女神微笑
 我以前造过这种药，没有15话可以这样搞……这一话出了还走这结局，别想卖了
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9869#       发表于 2018-4-25 20:54
@@ -11029,7 +11029,7 @@ EVA开头到屋岛作战女神微笑
 手没抽，吻不拒，告白不回应，全程放置play活像莓不存在，这才是让人很服气的地方。
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9870#       发表于 2018-4-25 20:54
@@ -11045,7 +11045,7 @@ EVA开头到屋岛作战女神微笑
 这鸡舍也不指望萝卜厨会买账<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9871#       发表于 2018-4-25 20:55
@@ -11062,7 +11062,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  xiyue365  
 ##### 9872#       发表于 2018-4-25 20:55
@@ -11079,7 +11079,7 @@ EVA开头到屋岛作战女神微笑
 另外还有各种前传小说漫画。
 
 
------
+*****
 
 ####  isummon  
 ##### 9873#       发表于 2018-4-25 20:55
@@ -11092,7 +11092,7 @@ EVA开头到屋岛作战女神微笑
 阿广觉得上机以后的道歉就足够了，别的就不管那么多咯
 
 
------
+*****
 
 ####  lanhao  
 ##### 9874#       发表于 2018-4-25 20:56
@@ -11107,7 +11107,7 @@ EVA开头到屋岛作战女神微笑
 可惜了  ditf有萝卜的标签 却没有任何黑深残  销量却不高
 
 
------
+*****
 
 ####  love4aids  
 ##### 9875#       发表于 2018-4-25 20:56
@@ -11123,7 +11123,7 @@ EVA开头到屋岛作战女神微笑
 13话投票楼2000人，这已经说明问题了，那一周是全网热度爆炸的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9876#       发表于 2018-4-25 20:56
@@ -11132,7 +11132,7 @@ EVA开头到屋岛作战女神微笑
 当年是什么类型的番都要带萝卜，现在基本都是去更强....
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 9877#       发表于 2018-4-25 20:56
@@ -11144,7 +11144,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  白叹夜  
 ##### 9878#       发表于 2018-4-25 20:57
@@ -11158,7 +11158,7 @@ EVA开头到屋岛作战女神微笑
 莓党：”太好了，你们两个“<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9879#       发表于 2018-4-25 20:57
@@ -11171,7 +11171,7 @@ EVA开头到屋岛作战女神微笑
 眼神逃避就不算了？最后一话直视草莓，会心一笑，这杀伤力，莓党一周估计都吃不下饭了
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9880#       发表于 2018-4-25 20:58
@@ -11189,7 +11189,7 @@ EVA开头到屋岛作战女神微笑
 然后默默列入喂屎动画黑名单...
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9881#       发表于 2018-4-25 20:58
@@ -11203,7 +11203,7 @@ EVA开头到屋岛作战女神微笑
 来看贵乱吃糖的小年轻都被设计合理 外观“帅气”的机体吓跑了
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9882#       发表于 2018-4-25 20:58
@@ -11212,7 +11212,7 @@ EVA开头到屋岛作战女神微笑
 苦大仇深黑深残别说在日本不火，现在在我朝也不是特别受待见...
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9883#       发表于 2018-4-25 20:58
@@ -11226,7 +11226,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  shamanda  
 ##### 9884#       发表于 2018-4-25 20:58
@@ -11240,7 +11240,7 @@ EVA开头到屋岛作战女神微笑
 这不是大胜利怎么会恶心死，就算没有15话又有几个莓党觉得最终能正面刚赢02的，都是抱着爽一把再死的心情啊。
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 9885#       发表于 2018-4-25 20:59
@@ -11255,7 +11255,7 @@ EVA开头到屋岛作战女神微笑
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  love4aids  
 ##### 9886#       发表于 2018-4-25 20:59
@@ -11266,7 +11266,7 @@ EVA开头到屋岛作战女神微笑
 我觉的，大部分莓党这集之后只能期待独身到最后的结局了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9887#       发表于 2018-4-25 21:00
@@ -11279,7 +11279,7 @@ EVA开头到屋岛作战女神微笑
 m才去看吧
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9888#       发表于 2018-4-25 21:00
@@ -11290,7 +11290,7 @@ m才去看吧
 5对CP齐洒狗粮....
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9889#       发表于 2018-4-25 21:01
@@ -11304,7 +11304,7 @@ m才去看吧
 他一整集下来就在上机后对莓说了句对不起，全程都要么独白要么靠神佛级贴心好哥们56帮忙，某种意义上说还真是个被爱着所以不肯让他犯一点“错”的男主角啊……
 
 
------
+*****
 
 ####  棒读  
 ##### 9890#       发表于 2018-4-25 21:01
@@ -11322,7 +11322,7 @@ m才去看吧
 2018-4-25 21:01 上传
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9891#       发表于 2018-4-25 21:01
@@ -11334,7 +11334,7 @@ m才去看吧
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  skives  
 ##### 9892#       发表于 2018-4-25 21:02
@@ -11348,7 +11348,7 @@ m才去看吧
 求求你，别提了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空空空  
 ##### 9893#       发表于 2018-4-25 21:02
@@ -11359,7 +11359,7 @@ m才去看吧
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9894#       发表于 2018-4-25 21:02
@@ -11374,7 +11374,7 @@ m才去看吧
 后来吗。。。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9895#       发表于 2018-4-25 21:03
@@ -11390,7 +11390,7 @@ m才去看吧
 而且这样子演，怕是02党顺着网线砍死锦织
 
 
------
+*****
 
 ####  isummon  
 ##### 9896#       发表于 2018-4-25 21:03
@@ -11404,7 +11404,7 @@ m才去看吧
 喜欢这位的已经判定02ooc被砍头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9897#       发表于 2018-4-25 21:03
@@ -11419,7 +11419,7 @@ m才去看吧</blockquote>
 但是时不时被大复活术恶心也很难受啊
 
 
------
+*****
 
 ####  yy19  
 ##### 9898#       发表于 2018-4-25 21:03
@@ -11435,7 +11435,7 @@ m才去看吧</blockquote>
 “机器人？卜看” 可是无数【哔哔】小学生的常备tan幕<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9899#       发表于 2018-4-25 21:03
@@ -11444,7 +11444,7 @@ m才去看吧</blockquote>
 其实为什么觉得阿广没有拒绝莓？我觉得其实挺明显的了，而且两人青梅竹马，她告白完之后广什么态度莓也能get，特别是上机后给莓看到记忆然后“对不起”，又公频互相达令阿广的喊秀恩爱，不就已经表明态度以及拒绝莓了么。亲口直白的拒绝没必要了
 
 
------
+*****
 
 ####  lanhao  
 ##### 9900#       发表于 2018-4-25 21:03
@@ -11453,7 +11453,7 @@ m才去看吧</blockquote>
 怎么会觉得像明日香
 
 
------
+*****
 
 ####  江风改二  
 ##### 9901#       发表于 2018-4-25 21:04
@@ -11468,7 +11468,7 @@ m才去看吧</blockquote>
 没觉得，只是没想到真成狗公主了。
 
 
------
+*****
 
 ####  love4aids  
 ##### 9902#       发表于 2018-4-25 21:05
@@ -11481,7 +11481,7 @@ m才去看吧</blockquote>
 1556的结局已经被14集给走死了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9903#       发表于 2018-4-25 21:05
@@ -11497,7 +11497,7 @@ m才去看吧</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9904#       发表于 2018-4-25 21:05
@@ -11512,7 +11512,7 @@ m才去看吧</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9905#       发表于 2018-4-25 21:05
@@ -11530,7 +11530,7 @@ m才去看吧</blockquote>
 另外对不起是看记忆之前的事……广基本是憋到不可能忽略莓的时候（除非他敢上机了都不跟雌蕊蹦一个字）才对莓说了一句话。
 
 
------
+*****
 
 ####  lanhao  
 ##### 9906#       发表于 2018-4-25 21:05
@@ -11541,7 +11541,7 @@ m才去看吧</blockquote>
 莓也是这样和五郎心里拒绝的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  一刀捅死大萌德  
 ##### 9907#       发表于 2018-4-25 21:06
@@ -11560,7 +11560,7 @@ m才去看吧</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  棒读  
 ##### 9908#       发表于 2018-4-25 21:06
@@ -11575,7 +11575,7 @@ m才去看吧</blockquote>
 FLCL里男主也kiss过晴子啊，还是特别肉麻的那种
 
 
------
+*****
 
 ####  haradatos  
 ##### 9909#       发表于 2018-4-25 21:06
@@ -11586,7 +11586,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Shylia  
 ##### 9910#       发表于 2018-4-25 21:07
@@ -11603,7 +11603,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9911#       发表于 2018-4-25 21:07
@@ -11616,7 +11616,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种
 她当时拉手那个举动，是看到广盯着屏幕看02啊，然后安慰他的意思
 
 
------
+*****
 
 ####  yy19  
 ##### 9912#       发表于 2018-4-25 21:07
@@ -11625,7 +11625,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种
 edit.
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9913#       发表于 2018-4-25 21:07
@@ -11640,7 +11640,7 @@ edit.
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9914#       发表于 2018-4-25 21:08
@@ -11651,7 +11651,7 @@ edit.
 差不多啦
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9915#       发表于 2018-4-25 21:08
@@ -11662,7 +11662,7 @@ edit.
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  deidara  
 ##### 9916#       发表于 2018-4-25 21:08
@@ -11676,7 +11676,7 @@ edit.
 上一个这么想的党魁在外边晾了几周了。。。虽然我也是这么想的，但是我水平比较low没去剪mad，最早那几个帖子也都被忘了没人鞭尸。
 
 
------
+*****
 
 ####  namirin  
 ##### 9917#       发表于 2018-4-25 21:08
@@ -11685,7 +11685,7 @@ edit.
 明日香是miku<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9918#       发表于 2018-4-25 21:09
@@ -11699,7 +11699,7 @@ edit.
 有段时间也看黑深残，但大多数剧情根本没正确反映过人性，反倒是大都很搞笑还会突然喂屎。之后当然是避着走啦，给自己找不愉快干啥
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9919#       发表于 2018-4-25 21:09
@@ -11715,7 +11715,7 @@ m才去看吧</blockquote>
 巨人寄生兽食尸鬼那段时间是真的火，可能大家都觉得新鲜吧，后来广电一查封，忽然这类型就不再受待见了，现在想想感觉也挺神奇的...
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9920#       发表于 2018-4-25 21:09
@@ -11724,7 +11724,7 @@ m才去看吧</blockquote>
 从这集来看比翼鸟不是唯一的，我霉也可以开动渣广。这说明还霉输。
 
 
------
+*****
 
 ####  白叹夜  
 ##### 9921#       发表于 2018-4-25 21:09
@@ -11735,7 +11735,7 @@ m才去看吧</blockquote>
 可以，他莓情商太低连收卡资格都没有
 
 
------
+*****
 
 ####  love4aids  
 ##### 9922#       发表于 2018-4-25 21:09
@@ -11744,7 +11744,7 @@ m才去看吧</blockquote>
 02跟明日香除了头发颜色可能是老乡外，有任何相似点么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shylia  
 ##### 9923#       发表于 2018-4-25 21:09
@@ -11756,7 +11756,7 @@ m才去看吧</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 9924#       发表于 2018-4-25 21:09
@@ -11768,7 +11768,7 @@ m才去看吧</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Code:703  
 ##### 9925#       发表于 2018-4-25 21:10
@@ -11783,7 +11783,7 @@ m才去看吧</blockquote>
 国16如果上来告诉你9队和0216都被拍死了，那绝对全网爆炸。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9926#       发表于 2018-4-25 21:10
@@ -11798,7 +11798,7 @@ m才去看吧</blockquote>
 现在忽然掉头的情节绝对是负分操作....
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9927#       发表于 2018-4-25 21:10
@@ -11818,7 +11818,7 @@ m才去看吧</blockquote>
 我就记得铁血和骑士魔法两部....
 
 
------
+*****
 
 ####  isummon  
 ##### 9928#       发表于 2018-4-25 21:11
@@ -11832,7 +11832,7 @@ m才去看吧</blockquote>
 史诗级右肩
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 9929#       发表于 2018-4-25 21:12
@@ -11844,7 +11844,7 @@ m才去看吧</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9930#       发表于 2018-4-25 21:12
@@ -11856,7 +11856,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 显然不一样啊……开局比翼鸟宣言没看出来的话，第二集OP出来真该听懂了，何必把02和国鱼往其他角色、作品上面套
 
 
------
+*****
 
 ####  love4aids  
 ##### 9931#       发表于 2018-4-25 21:12
@@ -11871,7 +11871,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 锦织，你做的是爱情片，怎么变成搞笑片了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 9932#       发表于 2018-4-25 21:12
@@ -11884,7 +11884,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 可想而知直美的感觉了，问他啥情况也不说，每天一副憋着屎的样子，最后负气出走还把压力给了直美。难啊。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9933#       发表于 2018-4-25 21:13
@@ -11893,7 +11893,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 和02相似的不是你种的芙蕾嘛。
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9934#       发表于 2018-4-25 21:14
@@ -11907,7 +11907,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 真想表达安慰的心思好歹改成单纯拍一下手，或者别脸红来个担忧的眼神吧……莓那一小段我怎么看都是宣誓主权，当场还惊了下这是准备怎么展开。
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 9935#       发表于 2018-4-25 21:14
@@ -11919,7 +11919,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9936#       发表于 2018-4-25 21:14
@@ -11930,7 +11930,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 02差弗雷差得有点多 
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9937#       发表于 2018-4-25 21:14
@@ -11943,7 +11943,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 总之，理解黑深残根本就是一昧的试图恶心人之后，他们所有的操作根本不能引起我的波动甚至还想笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ynam  
 ##### 9938#       发表于 2018-4-25 21:15
@@ -11955,7 +11955,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 深渊算欧美日天朝大火吧，虽然它画风不黑深残不硬核。
 
 
------
+*****
 
 ####  lanhao  
 ##### 9939#       发表于 2018-4-25 21:15
@@ -11964,7 +11964,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 不管02过程中那些神神叨叨的话 就是女司机翻车翻到自己老公身上这么个过程
 
 
------
+*****
 
 ####  isummon  
 ##### 9940#       发表于 2018-4-25 21:16
@@ -11975,7 +11975,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 芙蕾醒得比02快，02翻车了才知道玩脱了
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9941#       发表于 2018-4-25 21:16
@@ -11986,7 +11986,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 相似处都是用尽心机利用主角，同样也希望主角为自己杀更多敌人，当然主角能死掉也更好。 
 
 
------
+*****
 
 ####  love4aids  
 ##### 9942#       发表于 2018-4-25 21:16
@@ -11998,7 +11998,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 每天都憋着屎去开训练机了，这不是直美最后承受不住压力把广推开了么，不然这破片第一集就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Code:703  
 ##### 9943#       发表于 2018-4-25 21:17
@@ -12018,7 +12018,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 2018-4-25 21:17 上传
 
 
------
+*****
 
 ####  skives  
 ##### 9944#       发表于 2018-4-25 21:17
@@ -12027,7 +12027,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 02当初在湖边遇到的不是广就好了，一直骗下去，龙化 掐死 剧终。
 
 
------
+*****
 
 ####  isummon  
 ##### 9945#       发表于 2018-4-25 21:18
@@ -12038,7 +12038,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 愈发觉得直美酱是好人了 她离开的第102天，我很想她
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 9946#       发表于 2018-4-25 21:18
@@ -12049,7 +12049,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 那不一样。56是自己知道那时候没戏，自己都不要15回答，所以15也确实没回答什么。而15不太可能告白后来一句16你不用回答吧……？16估计就是主动冷处理。
 
 
------
+*****
 
 ####  Code:703  
 ##### 9947#       发表于 2018-4-25 21:19
@@ -12063,7 +12063,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 共有产权了解一下。
 
 
------
+*****
 
 ####  lanhao  
 ##### 9948#       发表于 2018-4-25 21:19
@@ -12074,7 +12074,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 她比弗雷单纯多了 倒回去看的话 你会发现02挺天真的 说到底是广利用了02还是02利用了广都说不清 
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9949#       发表于 2018-4-25 21:20
@@ -12086,7 +12086,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 那就是第二个081，什么都不会发生<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Code:703  
 ##### 9950#       发表于 2018-4-25 21:20
@@ -12098,7 +12098,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 有个好备胎，开车上路不慌啊。
 
 
------
+*****
 
 ####  yy19  
 ##### 9951#       发表于 2018-4-25 21:21
@@ -12113,7 +12113,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 你们是不是有个错觉：02很爱演达令-情侣戏？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Code:703  
 ##### 9952#       发表于 2018-4-25 21:21
@@ -12125,7 +12125,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 按照专楼的理解，02一直吸雄蕊，就不会变成龙。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9953#       发表于 2018-4-25 21:22
@@ -12136,7 +12136,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 当时看那段剧情，心里怪怪的，后来才知道原来这种叫NTR...
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9954#       发表于 2018-4-25 21:22
@@ -12147,7 +12147,7 @@ FLCL里男主也kiss过晴子啊，还是特别肉麻的那种</blockquote>
 02单纯？ 她一系列接近广都是为了她的计划，只不过到12集演不下才准备吃了他，让自己保住这张人皮。 
 
 
------
+*****
 
 ####  zkn1968  
 ##### 9955#       发表于 2018-4-25 21:23
@@ -12159,7 +12159,7 @@ EVA开头到屋岛作战女神微笑</blockquote>
 同样是溶解液怪物，雨天使历来被吐槽最弱使徒，现在看来逼格也比国八叫龙高不少。
 
 
------
+*****
 
 ####  love4aids  
 ##### 9956#       发表于 2018-4-25 21:23
@@ -12171,7 +12171,7 @@ EVA开头到屋岛作战女神微笑</blockquote>
 兄弟，你心态崩了好久了，该醒醒了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9957#       发表于 2018-4-25 21:24
@@ -12183,7 +12183,7 @@ EVA开头到屋岛作战女神微笑</blockquote>
 林直孝：一言难尽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9958#       发表于 2018-4-25 21:24
@@ -12194,7 +12194,7 @@ EVA开头到屋岛作战女神微笑</blockquote>
 我的意思是如果广不是小广<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，02依然对他有了兴趣，下了圈套，两个人永远不会有重新相认的戏码。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9959#       发表于 2018-4-25 21:24
@@ -12208,7 +12208,7 @@ EVA开头到屋岛作战女神微笑</blockquote>
 Rec
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9960#       发表于 2018-4-25 21:24
@@ -12217,7 +12217,7 @@ Rec
 至于渣广第5集就表决心了，第六集都可以为它去死了。 渣广已经不能算利用它了。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9961#       发表于 2018-4-25 21:25
@@ -12226,7 +12226,7 @@ Rec
 02不是演人类演不下去了，是演霸道总裁演不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zkn1968  
 ##### 9962#       发表于 2018-4-25 21:25
@@ -12238,7 +12238,7 @@ Rec
 国九作为推进1556关系的小组回，十四、十五看下来，看不明白国九存在的意义。
 
 
------
+*****
 
 ####  isummon  
 ##### 9963#       发表于 2018-4-25 21:26
@@ -12247,7 +12247,7 @@ Rec
 02心超大好嘛……根本没人知道阿广能否玩过第三次，连博士都不知道。你要说她"单纯"那确实挺"单纯"的
 
 
------
+*****
 
 ####  mumubear  
 ##### 9964#       发表于 2018-4-25 21:26
@@ -12259,7 +12259,7 @@ Rec</blockquote>
 你国八九十要是没那个工具龙，就是第二个rec了。。。
 
 
------
+*****
 
 ####  白叹夜  
 ##### 9965#       发表于 2018-4-25 21:26
@@ -12268,7 +12268,7 @@ Rec</blockquote>
 突然发现莓记忆里的广都是神童广，废柴广一个回忆镜头都没给过
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9966#       发表于 2018-4-25 21:26
@@ -12280,7 +12280,7 @@ Rec</blockquote>
 从另一个角度看，02的小darling早死了
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 9967#       发表于 2018-4-25 21:26
@@ -12299,7 +12299,7 @@ Rec</blockquote>
 机甲少女也算一个吧，这下4个了
 
 
------
+*****
 
 ####  lanhao  
 ##### 9968#       发表于 2018-4-25 21:26
@@ -12310,7 +12310,7 @@ Rec</blockquote>
 你仔细看 你会发现她根本就不是什么计划  这么没底的计划我第一次见 第4集如果阿广不去表白 早都被ape带走了 7-12集司马脸加神神叨叨的对话是想让被利用的人得神经衰弱嘛 
 
 
------
+*****
 
 ####  ynam  
 ##### 9969#       发表于 2018-4-25 21:27
@@ -12321,7 +12321,7 @@ Rec</blockquote>
 一开始广不送镜子02就不会炸毛，丑逼望镜子也是需要勇气的，虽然02美但不碍她嫌自己尖牙丑。
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 9970#       发表于 2018-4-25 21:27
@@ -12330,7 +12330,7 @@ Rec</blockquote>
 主席光明正大，一没骗感情二没小手段，能算利用吗。
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 9971#       发表于 2018-4-25 21:27
@@ -12341,7 +12341,7 @@ Rec</blockquote>
 所以莓莓应该憧憬那种特别机灵的，五郎莓希望的
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9972#       发表于 2018-4-25 21:28
@@ -12352,7 +12352,7 @@ Rec</blockquote>
 所以02的所谓“计划”下ape眼皮底下的小动作，还是博士默许的
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9973#       发表于 2018-4-25 21:28
@@ -12363,7 +12363,7 @@ Rec</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  whn1103  
 ##### 9974#       发表于 2018-4-25 21:28
@@ -12376,7 +12376,7 @@ Rec</blockquote>
 说实在的在15定了目标情况下，这个过渡的内容简直泥潭随便抓一只都能编的出……
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9975#       发表于 2018-4-25 21:29
@@ -12391,7 +12391,7 @@ Rec</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9976#       发表于 2018-4-25 21:29
@@ -12403,7 +12403,7 @@ Rec</blockquote>
 莓那会儿搭档卡都掏出来了，我无法回应你也说了，就差直接对不起我不喜欢你。这点来说56的操作就很机智，强行把一个其实有了答案的问题改成未完待续……
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 9977#       发表于 2018-4-25 21:29
@@ -12415,7 +12415,7 @@ Rec</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9978#       发表于 2018-4-25 21:29
@@ -12427,7 +12427,7 @@ Rec</blockquote>
 人外控，味道好，会为02流泪，你觉得这个世界上有几个这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9979#       发表于 2018-4-25 21:30
@@ -12442,7 +12442,7 @@ Rec</blockquote>
 阿广可是莓心里英雄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9980#       发表于 2018-4-25 21:30
@@ -12458,7 +12458,7 @@ Rec</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9981#       发表于 2018-4-25 21:30
@@ -12471,7 +12471,7 @@ REC女主是开萝卜的呀也是主要作战手段
 Rec女主不是哪个低配02吗？
 
 
------
+*****
 
 ####  whn1103  
 ##### 9982#       发表于 2018-4-25 21:30
@@ -12486,7 +12486,7 @@ Rec女主不是哪个低配02吗？
 面子上怎么让02服软也不太好写，让濑古来写估计只能俩人对着莓莓哭了
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9983#       发表于 2018-4-25 21:30
@@ -12498,7 +12498,7 @@ Rec女主不是哪个低配02吗？
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">我也喜欢幼广可惜消了记忆后就死了，可能15找回来了一点点
 
 
------
+*****
 
 ####  知青王卫国  
 ##### 9984#       发表于 2018-4-25 21:31
@@ -12510,7 +12510,7 @@ Rec女主不是哪个低配02吗？</blockquote>reC女主是米特欧拉（正�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  ynam  
 ##### 9985#       发表于 2018-4-25 21:31
@@ -12524,7 +12524,7 @@ Rec女主不是哪个低配02吗？</blockquote>reC女主是米特欧拉（正�
 因为今集面包怪台词比较多，打怪表现比影子主人公突出啊。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9986#       发表于 2018-4-25 21:31
@@ -12535,7 +12535,7 @@ Rec女主不是哪个低配02吗？</blockquote>reC女主是米特欧拉（正�
 并不是镜子问题，而是02身体已倒极限了。这点它自己很清楚，所以一直反对检查。
 
 
------
+*****
 
 ####  lanhao  
 ##### 9987#       发表于 2018-4-25 21:31
@@ -12544,7 +12544,7 @@ Rec女主不是哪个低配02吗？</blockquote>reC女主是米特欧拉（正�
 开始是想玩人类游戏 但是在第六集后对眼前这个人却产生了一丝丝感情  连同与小darling的经历 丑陋的叫龙化令她坐立难安 不能再以之前的神态去面对现在眼前这个人  “人类游戏已经玩够了！” 我是这么理解的
 
 
------
+*****
 
 ####  yy19  
 ##### 9988#       发表于 2018-4-25 21:31
@@ -12559,7 +12559,7 @@ Rec女主不是哪个低配02吗？</blockquote>reC女主是米特欧拉（正�
 支持。【哔哔】LGBTQ……平权大业任重道远！<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9989#       发表于 2018-4-25 21:32
@@ -12568,7 +12568,7 @@ Rec女主不是哪个低配02吗？</blockquote>reC女主是米特欧拉（正�
 我倒是更喜欢那个会葬鸟的废广<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，第五集展现了一种特殊美味的亡命气质。
 
 
------
+*****
 
 ####  Schorched  
 ##### 9990#       发表于 2018-4-25 21:33
@@ -12580,7 +12580,7 @@ Rec女主不是哪个低配02吗？</blockquote>reC女主是米特欧拉（正�
 别随便定义正常这个词啊<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 9991#       发表于 2018-4-25 21:33
@@ -12592,7 +12592,7 @@ Rec女主不是哪个低配02吗？</blockquote>
 Rec女主不是爱唠叨的小米卿吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 9992#       发表于 2018-4-25 21:34
@@ -12604,7 +12604,7 @@ Rec女主不是哪个低配02吗？</blockquote>红毛哪里不像女主了<img 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  ynam  
 ##### 9993#       发表于 2018-4-25 21:35
@@ -12615,7 +12615,7 @@ Rec女主不是哪个低配02吗？</blockquote>红毛哪里不像女主了<img 
 镜子不是主因也是诱因了，加上之前男女吵架回很难说02对广只有利用而没其他感情。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 9994#       发表于 2018-4-25 21:35
@@ -12628,7 +12628,7 @@ reC女主是米特欧拉（正论）
 水濑祈guna
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9995#       发表于 2018-4-25 21:35
@@ -12637,7 +12637,7 @@ reC女主是米特欧拉（正论）
 渣广弱智在上机这么多次都没窥探过02想什么。换我大土狼早就把02给窥探光了。
 
 
------
+*****
 
 ####  xiyue365  
 ##### 9996#       发表于 2018-4-25 21:35
@@ -12648,7 +12648,7 @@ rec女主是小米啊，看结局就知道了啊<img src="https://static.saraba1
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  yy19  
 ##### 9997#       发表于 2018-4-25 21:36
@@ -12663,7 +12663,7 @@ rec女主是小米啊，看结局就知道了啊<img src="https://static.saraba1
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9998#       发表于 2018-4-25 21:36
@@ -12686,7 +12686,7 @@ rec女主是小米啊，看结局就知道了啊<img src="https://static.saraba1
 nga投票，应该算一般人多的地方了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9999#       发表于 2018-4-25 21:37
@@ -12695,7 +12695,7 @@ nga投票，应该算一般人多的地方了<img src="https://static.saraba1st.
 还不如像梅芙靠谱呢
 
 
------
+*****
 
 ####  Schorched  
 ##### 10000#       发表于 2018-4-25 21:37
@@ -12710,7 +12710,7 @@ nga投票，应该算一般人多的地方了<img src="https://static.saraba1st.
 说起来我这种不讨厌02恋爱脑，但是觉得02这恋爱谈得太让人失望的算是什么厨什么黑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10001#       发表于 2018-4-25 21:37
@@ -12736,7 +12736,7 @@ nga投票，应该算一般人多的地方了<img src="https://static.saraba1st.
 查看全部评分
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10002#       发表于 2018-4-25 21:38
@@ -12748,7 +12748,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 10003#       发表于 2018-4-25 21:38
@@ -12763,7 +12763,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 赛蕾嘉身材是真的好。。。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10004#       发表于 2018-4-25 21:38
@@ -12772,7 +12772,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 02在14话明显表现出内疚感，这可以看出之前一系列都是在利用他。
 
 
------
+*****
 
 ####  isummon  
 ##### 10005#       发表于 2018-4-25 21:38
@@ -12783,7 +12783,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 所以说……02前期展现出来的非人气质的魅力，确实就是非人的，因为她在装。但是她又表现出比其他小屁孩懂很多的样子，反而更像成长后的人……真是矛盾又纠结的角色，还是莓莓哭的02比较好处理。
 
 
------
+*****
 
 ####  mumubear  
 ##### 10006#       发表于 2018-4-25 21:39
@@ -12797,7 +12797,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以十三小队为啥没人去怼广这个万恶之源啊。。。
 
 
------
+*****
 
 ####  love4aids  
 ##### 10007#       发表于 2018-4-25 21:39
@@ -12809,7 +12809,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 就当瞎了眼， 谁都有眼瞎的时候<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 10008#       发表于 2018-4-25 21:39
@@ -12818,7 +12818,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 14集里阿广担忧的是什么“难道你是知道我的身体只能和你驾驶才…”， 可见阿广认为，试探说对他而言，是喂屎。
 
 
------
+*****
 
 ####  借月照华庭  
 ##### 10009#       发表于 2018-4-25 21:40
@@ -12831,7 +12831,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 这么说的话广就是个沼泽人了
 
 
------
+*****
 
 ####  skives  
 ##### 10010#       发表于 2018-4-25 21:40
@@ -12840,7 +12840,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 阿广不怕02利用他，阿广担心的是02认出了他仍然选择利用他。
 
 
------
+*****
 
 ####  lanhao  
 ##### 10011#       发表于 2018-4-25 21:41
@@ -12851,7 +12851,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 喜欢大广的原因就是 同样的不惧怕角 同样的认为自己是人 同样的对待 所以内心对和小广的模糊记忆的恐惧才让她不断地在7-12集问像不像人类 
 
 
------
+*****
 
 ####  love4aids  
 ##### 10012#       发表于 2018-4-25 21:41
@@ -12866,7 +12866,7 @@ rec女主是小米啊，看结局就知道了啊</blockquote>结局给小米黑�
 小圈子是多么的重要，在13小队这个小社会里体现的淋漓尽致<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10013#       发表于 2018-4-25 21:42
@@ -12882,7 +12882,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 可见虽然有很多人不喜欢他，但满是有一部分人认真支持喜欢的，比太和666这种不被讨厌但真遇到选择的时候就被扔到一边去的角色强很多。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10014#       发表于 2018-4-25 21:42
@@ -12896,7 +12896,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  love4aids  
 ##### 10015#       发表于 2018-4-25 21:42
@@ -12908,7 +12908,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 02可是他的救命稻草<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10016#       发表于 2018-4-25 21:43
@@ -12920,7 +12920,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 广可是给大家起名的Godfather，谁敢怼Godfather<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 10017#       发表于 2018-4-25 21:43
@@ -12934,7 +12934,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 那你怎么看待直美的票数的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zkc1991  
 ##### 10018#       发表于 2018-4-25 21:43
@@ -12950,7 +12950,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 我记得有一张采访日本小朋友的截图，小朋友说萝卜动画，过时了
 
 
------
+*****
 
 ####  xyau  
 ##### 10019#       发表于 2018-4-25 21:44
@@ -12961,7 +12961,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 对比#14里556的欲言又止，可能是在CD大招
 
 
------
+*****
 
 ####  80proof  
 ##### 10020#       发表于 2018-4-25 21:44
@@ -12980,7 +12980,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 看不透锦织对销量的看法<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10021#       发表于 2018-4-25 21:44
@@ -12989,7 +12989,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 390和666分开来人气都不是特别高，但是他们组CP起来倒是挺猛的，有很多人喜欢听他们讲相声<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10022#       发表于 2018-4-25 21:45
@@ -13001,7 +13001,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  lanhao  
 ##### 10023#       发表于 2018-4-25 21:45
@@ -13016,7 +13016,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 泥潭一万种假药 他选了个最睿智的
 
 
------
+*****
 
 ####  love4aids  
 ##### 10024#       发表于 2018-4-25 21:45
@@ -13037,7 +13037,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 本质自嗨片
 
 
------
+*****
 
 ####  Schorched  
 ##### 10025#       发表于 2018-4-25 21:46
@@ -13049,7 +13049,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 我们可真是太扭曲了（棒读）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10026#       发表于 2018-4-25 21:46
@@ -13058,7 +13058,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 02和芙蕾还有一个共同点就是自私。 而广和鸡神都是为了大家。
 
 
------
+*****
 
 ####  isummon  
 ##### 10027#       发表于 2018-4-25 21:46
@@ -13073,7 +13073,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 死宅真恶心.jpg
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10028#       发表于 2018-4-25 21:46
@@ -13087,7 +13087,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10029#       发表于 2018-4-25 21:46
@@ -13099,7 +13099,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 直美是妹子啊，性别加成天然优势，所以你看我限定的是男配角。
 
 
------
+*****
 
 ####  ynam  
 ##### 10030#       发表于 2018-4-25 21:47
@@ -13110,7 +13110,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 我不喜欢前期广正因为他很没人间味，就像被说成没有感情的怪物他也不会生气一样。湿吹版的广我倒是好评，能看得出他是会思考小伙伴发言的人。
 
 
------
+*****
 
 ####  love4aids  
 ##### 10031#       发表于 2018-4-25 21:47
@@ -13125,7 +13125,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 就是要这种扭曲感
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10032#       发表于 2018-4-25 21:47
@@ -13143,7 +13143,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 “肥仔不会伤害肥仔”到现在开机想的是面包的面包人
 
 
------
+*****
 
 ####  isummon  
 ##### 10033#       发表于 2018-4-25 21:47
@@ -13155,7 +13155,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 02智商黑+216厨
 
 
------
+*****
 
 ####  Schorched  
 ##### 10034#       发表于 2018-4-25 21:47
@@ -13167,7 +13167,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 这锅02不背，制作组太tm蠢了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 10035#       发表于 2018-4-25 21:47
@@ -13178,7 +13178,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 终于碎角相见的02、16、kiss还有带着喜悦泪水的红色鹤望兰
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10036#       发表于 2018-4-25 21:48
@@ -13191,7 +13191,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是的我们大家13小队、花园的广厨团心中的广主席暂且不说，小叫龙公主心心念念的广主席确实是没了
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10037#       发表于 2018-4-25 21:48
@@ -13202,7 +13202,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 这图里的孩子们就是666和214
 
 
------
+*****
 
 ####  ynam  
 ##### 10038#       发表于 2018-4-25 21:48
@@ -13213,7 +13213,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 直美挺多，坐实直美影子女主。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10039#       发表于 2018-4-25 21:48
@@ -13234,7 +13234,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 “啊，这种被NTR的感觉，舒服了”
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10040#       发表于 2018-4-25 21:50
@@ -13249,7 +13249,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 56首先得泡的上啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10041#       发表于 2018-4-25 21:50
@@ -13265,7 +13265,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 我的偶像追求不到我只能去找备胎接盘，哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 10042#       发表于 2018-4-25 21:50
@@ -13281,7 +13281,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 所以15最后肯定是单身啦，如果1556成了，这不是我认识的肥宅<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ynam  
 ##### 10043#       发表于 2018-4-25 21:51
@@ -13297,7 +13297,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 锦织哥哥表示：全部男角都是我的分身。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10044#       发表于 2018-4-25 21:51
@@ -13315,7 +13315,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10045#       发表于 2018-4-25 21:51
@@ -13324,7 +13324,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 02没说几句话，到现在就表达了要跟广说清楚，结果你们先一巴掌拍死了。笑死我了
 
 
------
+*****
 
 ####  Code:703  
 ##### 10046#       发表于 2018-4-25 21:51
@@ -13336,7 +13336,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 全员都是广起的名字，全员都是广厨，唯一一个例外的326还是因爱生恨。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10047#       发表于 2018-4-25 21:51
@@ -13348,7 +13348,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 准备留下悔恨的泪水吧<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10048#       发表于 2018-4-25 21:52
@@ -13363,7 +13363,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 偶像可以百合营业啊。。。
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10049#       发表于 2018-4-25 21:52
@@ -13376,7 +13376,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 长期饭票刷业绩么
 
 
------
+*****
 
 ####  love4aids  
 ##### 10050#       发表于 2018-4-25 21:52
@@ -13391,7 +13391,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 所以莓党别急，肯定不会发生最low的展开的，15肯定是一个人美美的活下去的<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Code:703  
 ##### 10051#       发表于 2018-4-25 21:52
@@ -13419,7 +13419,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10052#       发表于 2018-4-25 21:53
@@ -13430,7 +13430,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 最恶心的不是成为广的翅膀么。。。
 
 
------
+*****
 
 ####  love4aids  
 ##### 10053#       发表于 2018-4-25 21:53
@@ -13445,7 +13445,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 还真是，看来196的机会大大的要有啊，百合营业没啥毛病<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10054#       发表于 2018-4-25 21:53
@@ -13457,7 +13457,7 @@ nga投票，应该算一般人多的地方了</blockquote>
 幸苦你了，直美，下次显灵的时候记得掐死万恶之源。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10055#       发表于 2018-4-25 21:54
@@ -13469,7 +13469,7 @@ best girl！naomi！
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我期待这一天
 
 
------
+*****
 
 ####  love4aids  
 ##### 10056#       发表于 2018-4-25 21:54
@@ -13478,7 +13478,7 @@ best girl！naomi！
 直美这个戏服绝了，怨妇感太强了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 10057#       发表于 2018-4-25 21:55
@@ -13490,7 +13490,7 @@ best girl！naomi！
 15跟56 不也是挺low的么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10058#       发表于 2018-4-25 21:55
@@ -13502,7 +13502,7 @@ best girl！naomi！
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10059#       发表于 2018-4-25 21:55
@@ -13511,7 +13511,7 @@ best girl！naomi！
 12话渣广的告白很尴尬，第六集后两人感情也没进一步。 
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10060#       发表于 2018-4-25 21:55
@@ -13523,7 +13523,7 @@ best girl！naomi！
 下周才放，预告不冲突吧
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10061#       发表于 2018-4-25 21:55
@@ -13534,7 +13534,7 @@ best girl！naomi！
 自称naomi的naomi有点小萌
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10062#       发表于 2018-4-25 21:55
@@ -13545,7 +13545,7 @@ best girl！naomi！
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 10063#       发表于 2018-4-25 21:56
@@ -13554,7 +13554,7 @@ best girl！naomi！
 明天还有预告吗
 
 
------
+*****
 
 ####  Schorched  
 ##### 10064#       发表于 2018-4-25 21:56
@@ -13566,7 +13566,7 @@ best girl！naomi！
 主要原因还是这些年没什么拿得出手的黑深残大作吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，不如说滥竽充数的臭鱼烂虾挺多的，再加上b站up主带过一些节奏（虽然不能说这些up说的都不对，但客观上的确把黑深残贬低了一个档次），这种现象很正常
 
 
------
+*****
 
 ####  lanhao  
 ##### 10065#       发表于 2018-4-25 21:56
@@ -13577,7 +13577,7 @@ best girl！naomi！
 对15集开头的02来说才是真的尴尬
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10066#       发表于 2018-4-25 21:57
@@ -13586,7 +13586,7 @@ best girl！naomi！
 国六不是暗示了吗，广才是02的翅膀（左手幼广，右手大广）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ynam  
 ##### 10067#       发表于 2018-4-25 21:57
@@ -13597,7 +13597,7 @@ best girl！naomi！
 不会，泥潭双飞三飞党可多了，后宫脑带入主角意淫自己万人迷错了吗？
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10068#       发表于 2018-4-25 21:57
@@ -13610,7 +13610,7 @@ best girl！naomi！
 杀龙 越多越好 单机自己刷负担大，效率也差一截。 
 
 
------
+*****
 
 ####  love4aids  
 ##### 10069#       发表于 2018-4-25 21:58
@@ -13622,7 +13622,7 @@ best girl！naomi！
 作为广厨我当然支持三飞，但是在莓党眼里，不就是low到家了么233
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10070#       发表于 2018-4-25 21:58
@@ -13635,7 +13635,7 @@ best girl！naomi！
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10071#       发表于 2018-4-25 21:58
@@ -13644,7 +13644,7 @@ best girl！naomi！
 感情没进步还行，7,8都不存在的
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10072#       发表于 2018-4-25 21:58
@@ -13655,7 +13655,7 @@ best girl！naomi！
 第四话:想和你开弗兰 第六话:想和你在一起开弗兰 十五:想和你在一起
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10073#       发表于 2018-4-25 21:58
@@ -13664,7 +13664,7 @@ best girl！naomi！
 阿广都要当02的翅膀了，怎么还有后宫脑的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  yy19  
 ##### 10074#       发表于 2018-4-25 21:59
@@ -13678,7 +13678,7 @@ best girl！naomi！
 噗，和11话选图，真是微妙的对照/映射<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 10075#       发表于 2018-4-25 21:59
@@ -13694,7 +13694,7 @@ m才去看吧</blockquote>
 纯黑深残的我觉得可能就只有国王游戏之流了，其他挂名黑深残的（尤其是口碑比较好的），哪个不是看着像屎的糖或者鸡汤？
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10076#       发表于 2018-4-25 22:00
@@ -13706,7 +13706,7 @@ m才去看吧</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10077#       发表于 2018-4-25 22:00
@@ -13718,7 +13718,7 @@ m才去看吧</blockquote>
 7 8解说员。它们很重要，多少内幕都是他们报的。 博士才是最没存在感角色。
 
 
------
+*****
 
 ####  love4aids  
 ##### 10078#       发表于 2018-4-25 22:01
@@ -13737,7 +13737,7 @@ m才去看吧</blockquote>
 来来来，你们要的15集以来最萌的02<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10079#       发表于 2018-4-25 22:02
@@ -13746,7 +13746,7 @@ m才去看吧</blockquote>
 02那个小尖牙，莫名觉得好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10080#       发表于 2018-4-25 22:03
@@ -13760,7 +13760,7 @@ m才去看吧</blockquote>
 02我鼻子失灵了 一开始没闻出来 都是编剧的错
 
 
------
+*****
 
 ####  funo3355411  
 ##### 10081#       发表于 2018-4-25 22:03
@@ -13771,7 +13771,7 @@ m才去看吧</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10082#       发表于 2018-4-25 22:03
@@ -13782,7 +13782,7 @@ m才去看吧</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10083#       发表于 2018-4-25 22:04
@@ -13794,7 +13794,7 @@ m才去看吧</blockquote>
 哦，我说的什么没看不懂，也行吧
 
 
------
+*****
 
 ####  love4aids  
 ##### 10084#       发表于 2018-4-25 22:04
@@ -13809,7 +13809,7 @@ m才去看吧</blockquote>
 不知道小队其他人员看到会不会默念ooc<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10085#       发表于 2018-4-25 22:05
@@ -13818,7 +13818,7 @@ m才去看吧</blockquote>
 真的求来个02个人回和博士回来实锤下 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 回顾02台词是真的难受
 
 
------
+*****
 
 ####  80proof  
 ##### 10086#       发表于 2018-4-25 22:05
@@ -13829,7 +13829,7 @@ m才去看吧</blockquote>
 离5对xxcp齐发狗粮不远了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10087#       发表于 2018-4-25 22:05
@@ -13841,7 +13841,7 @@ m才去看吧</blockquote>
 第九集有，五郎：原来02在你面前是那样的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 10088#       发表于 2018-4-25 22:06
@@ -13853,7 +13853,7 @@ m才去看吧</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10089#       发表于 2018-4-25 22:06
@@ -13867,7 +13867,7 @@ m才去看吧</blockquote>
 想到02和现广处了半年一点感情都没有，吃两人的糖的时候就有种别扭感
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10090#       发表于 2018-4-25 22:06
@@ -13876,7 +13876,7 @@ m才去看吧</blockquote>
 再下集02就要对你广发泄兽欲了。 只有我霉能救他。
 
 
------
+*****
 
 ####  skives  
 ##### 10091#       发表于 2018-4-25 22:06
@@ -13888,7 +13888,7 @@ m才去看吧</blockquote>
 02厨:“这样的泽拉图我不想看。”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 10092#       发表于 2018-4-25 22:06
@@ -13897,7 +13897,7 @@ m才去看吧</blockquote>
 希望后面7和8发挥更多的作用，目前真的就是解说员了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ynam  
 ##### 10093#       发表于 2018-4-25 22:07
@@ -13908,7 +13908,7 @@ m才去看吧</blockquote>
 有的，就说了人家是带入主角了，怎么要管你广的性格和性癖呢。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10094#       发表于 2018-4-25 22:07
@@ -13919,7 +13919,7 @@ m才去看吧</blockquote>
 其实他们适合做boss，要么只有low的不行的NINES可打了。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10095#       发表于 2018-4-25 22:07
@@ -13928,7 +13928,7 @@ m才去看吧</blockquote>
 不想继续ooc的话赶紧折腾前任给1602添点堵，又能恢复暴躁大姐了
 
 
------
+*****
 
 ####  五更伪境  
 ##### 10096#       发表于 2018-4-25 22:08
@@ -13937,7 +13937,7 @@ m才去看吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这周头像的钦定感可能跟第九集的五五开
 
 
------
+*****
 
 ####  Schorched  
 ##### 10097#       发表于 2018-4-25 22:09
@@ -13949,7 +13949,7 @@ m才去看吧</blockquote>
 食尸鬼是真不明白为什么这么火，我没看过漫画，动画只看了前2季，第三季也不打算看了，感觉唯数不多的亮点就是第一季的几个名场景，镜头语言用的是真不错，op也很棒，但那赫子看着跟玩具一样没有实感，金木黑化后的剧情发展莫名其妙，第一季属于总体来说属于可看可不看的文艺片，第二季是真的看着膈应人<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10098#       发表于 2018-4-25 22:09
@@ -13963,7 +13963,7 @@ m才去看吧</blockquote>
 18-24话一集打一个
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10099#       发表于 2018-4-25 22:10
@@ -13977,7 +13977,7 @@ m才去看吧</blockquote>
 负分吧  哪有告白时说你的角好看的。。。
 
 
------
+*****
 
 ####  五更伪境  
 ##### 10100#       发表于 2018-4-25 22:10
@@ -13989,7 +13989,7 @@ m才去看吧</blockquote>
 解说等于无敌，78真是找了个好职业
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10101#       发表于 2018-4-25 22:10
@@ -14003,7 +14003,7 @@ m才去看吧</blockquote>
 能不能不要随便代表02厨<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  funo3355411  
 ##### 10102#       发表于 2018-4-25 22:10
@@ -14014,7 +14014,7 @@ m才去看吧</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  skives  
 ##### 10103#       发表于 2018-4-25 22:10
@@ -14025,7 +14025,7 @@ m才去看吧</blockquote>
 扭曲的02厨
 
 
------
+*****
 
 ####  skives  
 ##### 10104#       发表于 2018-4-25 22:11
@@ -14034,7 +14034,7 @@ m才去看吧</blockquote>
 告白还是负分的，因为是“看了五郎和太，我才明白这种感情是什么。”
 
 
------
+*****
 
 ####  Schorched  
 ##### 10105#       发表于 2018-4-25 22:11
@@ -14048,7 +14048,7 @@ m才去看吧</blockquote>
 那你对cc的评价如何呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10106#       发表于 2018-4-25 22:11
@@ -14063,7 +14063,7 @@ m才去看吧</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  棒读  
 ##### 10107#       发表于 2018-4-25 22:12
@@ -14075,7 +14075,7 @@ m才去看吧</blockquote>
 还好只有声音没图像，下一集02还能继续装高冷，大家假装没事发生
 
 
------
+*****
 
 ####  lanhao  
 ##### 10108#       发表于 2018-4-25 22:12
@@ -14084,7 +14084,7 @@ m才去看吧</blockquote>
 我现在非常想知道为什么当初微博上会有这么多人对着试探说这种劣质糖吃得这么开心。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 试探说这种low到爆的交往方式 有什么甜味
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10109#       发表于 2018-4-25 22:13
@@ -14095,7 +14095,7 @@ m才去看吧</blockquote>
 心满意足还不够？
 
 
------
+*****
 
 ####  love4aids  
 ##### 10110#       发表于 2018-4-25 22:13
@@ -14114,7 +14114,7 @@ m才去看吧</blockquote>
 狐狸精就是这样的
 
 
------
+*****
 
 ####  xyau  
 ##### 10111#       发表于 2018-4-25 22:14
@@ -14130,7 +14130,7 @@ m才去看吧</blockquote>
 超雷曼级直奔13都市，不知道13队的实验藏了什么，指挥官知情多少。7一直表现接近博士立场，8的部分太少了。
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10112#       发表于 2018-4-25 22:15
@@ -14143,7 +14143,7 @@ m才去看吧</blockquote>
 虽然我不磕0216但是作为很多角色的cp厨，我告诉你，不管角色出于什么目的接近对方“同框即发糖，对视即上床，相视一笑子孙满堂。 ​”
 
 
------
+*****
 
 ####  isummon  
 ##### 10113#       发表于 2018-4-25 22:15
@@ -14152,7 +14152,7 @@ m才去看吧</blockquote>
 现在想想，龙化这个东西应该还是02控制的，她前面应该还是对广产生了感情，所以憋到极限，并且还尝试用肉体补偿广（不过这大冬天的打野战也是有点……）。十位壮士，对不起咯。
 
 
------
+*****
 
 ####  Schorched  
 ##### 10114#       发表于 2018-4-25 22:15
@@ -14166,7 +14166,7 @@ m才去看吧</blockquote>
 对的，现在的黑深残感觉纯粹是膈应观众
 
 
------
+*****
 
 ####  windmillge  
 ##### 10115#       发表于 2018-4-25 22:16
@@ -14184,7 +14184,7 @@ m才去看吧</blockquote>
 所以应该只是STAFF粗心罢了，广还是看过02的记忆后自己也恢复了全部记忆吧。
 
 
------
+*****
 
 ####  棒读  
 ##### 10116#       发表于 2018-4-25 22:16
@@ -14199,7 +14199,7 @@ m才去看吧</blockquote>
 对广热情，对13小队那帮废物高冷
 
 
------
+*****
 
 ####  adiedfish  
 ##### 10117#       发表于 2018-4-25 22:16
@@ -14211,7 +14211,7 @@ m才去看吧</blockquote>
 怎么救，替广显身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 10118#       发表于 2018-4-25 22:17
@@ -14226,7 +14226,7 @@ m才去看吧</blockquote>
 既然你一直纠结这个，可以尝试理解一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10119#       发表于 2018-4-25 22:17
@@ -14241,7 +14241,7 @@ m才去看吧</blockquote>
 02：“诶，Darling还会害羞啊，好吧，以后就叫你Hiro了”
 
 
------
+*****
 
 ####  lanhao  
 ##### 10120#       发表于 2018-4-25 22:17
@@ -14252,7 +14252,7 @@ m才去看吧</blockquote>
 这么村的方式 难道不会让cp感降低吗 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  isummon  
 ##### 10121#       发表于 2018-4-25 22:17
@@ -14266,7 +14266,7 @@ m才去看吧</blockquote>
 第一集那个炮王龙的目的一直都很谜，不知道13都市到底干了什么，吸引了这么厉害的玩意。估计还是得大结局交代了。
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10122#       发表于 2018-4-25 22:18
@@ -14278,7 +14278,7 @@ m才去看吧</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 10123#       发表于 2018-4-25 22:18
@@ -14290,7 +14290,7 @@ m才去看吧</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  80proof  
 ##### 10124#       发表于 2018-4-25 22:18
@@ -14302,7 +14302,7 @@ m才去看吧</blockquote>
 我朋友说 人吃糖 不挑的 只挑人 不挑糖<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 10125#       发表于 2018-4-25 22:18
@@ -14314,7 +14314,7 @@ m才去看吧</blockquote>
 搞不好02是叫龙女王，所有叫龙都是为了夺回女王而战
 
 
------
+*****
 
 ####  love4aids  
 ##### 10126#       发表于 2018-4-25 22:19
@@ -14326,7 +14326,7 @@ m才去看吧</blockquote>
 起点都抛弃黑暗流了，黑深残的受众还有多少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10127#       发表于 2018-4-25 22:19
@@ -14341,7 +14341,7 @@ m才去看吧</blockquote>
 呀咩咯！！！
 
 
------
+*****
 
 ####  棒读  
 ##### 10128#       发表于 2018-4-25 22:19
@@ -14350,7 +14350,7 @@ m才去看吧</blockquote>
 其实这集锦织哥哥是想告诉那些处男，女人平时跟在【】上的表情是不一样的，平时很强势的也会变成小娇妻，队霸跟02都是如此，不算ooc
 
 
------
+*****
 
 ####  skives  
 ##### 10129#       发表于 2018-4-25 22:19
@@ -14359,7 +14359,7 @@ m才去看吧</blockquote>
 总感觉02去哪里，哪里就会有叫龙出现，12话提过花园附近本来是不会有叫龙出现的。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10130#       发表于 2018-4-25 22:19
@@ -14371,7 +14371,7 @@ m才去看吧</blockquote>
 哪厉害了，莫霍级而已，阿广踩着刹车都能一秒三杀
 
 
------
+*****
 
 ####  lanhao  
 ##### 10131#       发表于 2018-4-25 22:19
@@ -14385,7 +14385,7 @@ m才去看吧</blockquote>
 利用5替身4 试探1 那试探的意义在哪 微博那种从第2集开始试探的 该不该吃屎
 
 
------
+*****
 
 ####  mumubear  
 ##### 10132#       发表于 2018-4-25 22:19
@@ -14402,7 +14402,7 @@ ape也跟着急了。。。不然090还能多活两年。
 garden的小孩也能少打两针。
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10133#       发表于 2018-4-25 22:20
@@ -14415,7 +14415,7 @@ garden的小孩也能少打两针。
 因为爱所以做xxxx和不爱但做了xxxx在CP爱好者眼里差不多是天与地，云与泥，朱雀和红鸟的区别。
 
 
------
+*****
 
 ####  lanhao  
 ##### 10134#       发表于 2018-4-25 22:21
@@ -14426,7 +14426,7 @@ garden的小孩也能少打两针。
 02和广完全是一个性格 只不过一个挂着微笑面对大家 一个是挂着司马脸面对大家
 
 
------
+*****
 
 ####  skives  
 ##### 10135#       发表于 2018-4-25 22:21
@@ -14435,7 +14435,7 @@ garden的小孩也能少打两针。
 试探说和02口中的圈套矛盾了，她肯定不会对小广做不好的事情。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10136#       发表于 2018-4-25 22:22
@@ -14446,7 +14446,7 @@ garden的小孩也能少打两针。
 头槌打脸，02可吃不消。
 
 
------
+*****
 
 ####  isummon  
 ##### 10137#       发表于 2018-4-25 22:22
@@ -14470,7 +14470,7 @@ garden的小孩也能少打两针。
 2018-4-25 22:21 上传
 
 
------
+*****
 
 ####  棒读  
 ##### 10138#       发表于 2018-4-25 22:22
@@ -14482,7 +14482,7 @@ garden的小孩也能少打两针。
 不一定啊，爱总是自私的，草莓不也为了留住广而违背了他的意志伤害过他的感情吗
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10139#       发表于 2018-4-25 22:22
@@ -14498,7 +14498,7 @@ garden的小孩也能少打两针。
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Mafise  
 ##### 10140#       发表于 2018-4-25 22:22
@@ -14509,7 +14509,7 @@ garden的小孩也能少打两针。
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  ynam  
 ##### 10141#       发表于 2018-4-25 22:23
@@ -14524,7 +14524,7 @@ garden的小孩也能少打两针。
 你忘了国六那个被泥潭喷爆的冷漠02了？
 
 
------
+*****
 
 ####  棒读  
 ##### 10142#       发表于 2018-4-25 22:23
@@ -14539,7 +14539,7 @@ garden的小孩也能少打两针。
 满：关我屁事，咱能假装没事发生吗？
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10143#       发表于 2018-4-25 22:24
@@ -14558,7 +14558,7 @@ garden的小孩也能少打两针。
 要是一集90%的台词都是Darling来Darling去，我简直要死了
 
 
------
+*****
 
 ####  adiedfish  
 ##### 10144#       发表于 2018-4-25 22:24
@@ -14574,7 +14574,7 @@ garden的小孩也能少打两针。
 但一码归一码，全族群的恋爱脑女王夺回作战想想真是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 10145#       发表于 2018-4-25 22:24
@@ -14585,7 +14585,7 @@ garden的小孩也能少打两针。
 02说圈套会让广变成怪物，另外一般来说和她上机会致死。这两件事02都不会对小广做。
 
 
------
+*****
 
 ####  mumubear  
 ##### 10146#       发表于 2018-4-25 22:24
@@ -14600,7 +14600,7 @@ garden的小孩也能少打两针。
 满君要是没骑过02能当影主角？。。。。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10147#       发表于 2018-4-25 22:24
@@ -14609,7 +14609,7 @@ garden的小孩也能少打两针。
 02会不会给全队道歉？ 估计会吧 不放低姿态我霉可不饶它。
 
 
------
+*****
 
 ####  Mafise  
 ##### 10148#       发表于 2018-4-25 22:24
@@ -14622,7 +14622,7 @@ garden的小孩也能少打两针。
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10149#       发表于 2018-4-25 22:25
@@ -14631,7 +14631,7 @@ garden的小孩也能少打两针。
 这片的战斗太朴实了。。。。  不能加点特效么
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10150#       发表于 2018-4-25 22:25
@@ -14643,7 +14643,7 @@ garden的小孩也能少打两针。
 我觉得大决战前都不一定能见到他们...
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10151#       发表于 2018-4-25 22:25
@@ -14654,7 +14654,7 @@ garden的小孩也能少打两针。
 绝了，我到现在都看不出02什么性格
 
 
------
+*****
 
 ####  mumubear  
 ##### 10152#       发表于 2018-4-25 22:26
@@ -14672,7 +14672,7 @@ garden的小孩也能少打两针。
 下机就变脸。。。后来再也没有光翼了。。。
 
 
------
+*****
 
 ####  ynam  
 ##### 10153#       发表于 2018-4-25 22:26
@@ -14686,7 +14686,7 @@ garden的小孩也能少打两针。
 也有认为02必须倒贴广的
 
 
------
+*****
 
 ####  xyau  
 ##### 10154#       发表于 2018-4-25 22:26
@@ -14699,7 +14699,7 @@ garden的小孩也能少打两针。
 这2话可能是在消化记忆，和02吵架分开又加剧混乱，降低了信息处理效率，但是想清楚了就又积极行动起来
 
 
------
+*****
 
 ####  lanhao  
 ##### 10155#       发表于 2018-4-25 22:26
@@ -14710,7 +14710,7 @@ garden的小孩也能少打两针。
 红有角加圆形爆炸加一枪穿爆 还朴实阿
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10156#       发表于 2018-4-25 22:26
@@ -14722,7 +14722,7 @@ garden的小孩也能少打两针。
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 10157#       发表于 2018-4-25 22:27
@@ -14733,7 +14733,7 @@ garden的小孩也能少打两针。
 都是极端的自我中心 觉得他人无法理解自己
 
 
------
+*****
 
 ####  love4aids  
 ##### 10158#       发表于 2018-4-25 22:27
@@ -14754,7 +14754,7 @@ garden的小孩也能少打两针。
 试探，替身，利用都是一体的，反正锦织估计也不会细讲了，那只能瞎几把脑补一通了
 
 
------
+*****
 
 ####  windmillge  
 ##### 10159#       发表于 2018-4-25 22:28
@@ -14768,7 +14768,7 @@ garden的小孩也能少打两针。
 对，性格应该是个惯性问题。也可以说像早晨睡醒总得迷迷糊糊一段时间才能清醒过来。
 
 
------
+*****
 
 ####  zkc1991  
 ##### 10160#       发表于 2018-4-25 22:29
@@ -14778,7 +14778,7 @@ garden的小孩也能少打两针。
 就是这张<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10161#       发表于 2018-4-25 22:29
@@ -14792,7 +14792,7 @@ garden的小孩也能少打两针。
 你最好把感情经历的过程讲清楚 怎么转变的 
 
 
------
+*****
 
 ####  isummon  
 ##### 10162#       发表于 2018-4-25 22:29
@@ -14807,7 +14807,7 @@ garden的小孩也能少打两针。
 别的我不管不分析了，现在讲清楚湖边老司机的骚操作和kiss是谁教的就行
 
 
------
+*****
 
 ####  love4aids  
 ##### 10163#       发表于 2018-4-25 22:30
@@ -14819,7 +14819,7 @@ garden的小孩也能少打两针。
 觉得02行为奇怪的，很别扭的多了去，但是喷爆真没几个好吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10164#       发表于 2018-4-25 22:31
@@ -14831,7 +14831,7 @@ garden的小孩也能少打两针。
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10165#       发表于 2018-4-25 22:31
@@ -14843,7 +14843,7 @@ garden的小孩也能少打两针。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Mafise  
 ##### 10166#       发表于 2018-4-25 22:31
@@ -14856,7 +14856,7 @@ garden的小孩也能少打两针。
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10167#       发表于 2018-4-25 22:31
@@ -14867,7 +14867,7 @@ garden的小孩也能少打两针。
 博士的小黄片。。。。
 
 
------
+*****
 
 ####  love4aids  
 ##### 10168#       发表于 2018-4-25 22:31
@@ -14882,7 +14882,7 @@ garden的小孩也能少打两针。
 我又不是锦织
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10169#       发表于 2018-4-25 22:31
@@ -14893,7 +14893,7 @@ garden的小孩也能少打两针。
 野兽不需要教吧 都是天生就会了
 
 
------
+*****
 
 ####  adiedfish  
 ##### 10170#       发表于 2018-4-25 22:32
@@ -14905,7 +14905,7 @@ garden的小孩也能少打两针。
 博士吧 “驾驶员色一点比较好” 然后卡擦卡擦操作一番，02就学到了
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10171#       发表于 2018-4-25 22:32
@@ -14917,7 +14917,7 @@ garden的小孩也能少打两针。
 须乡君何在？！
 
 
------
+*****
 
 ####  xyau  
 ##### 10172#       发表于 2018-4-25 22:32
@@ -14926,7 +14926,7 @@ garden的小孩也能少打两针。
 #1和#15都是鹤望兰·兽追叫龙啊，叫龙并不是冲着02的
 
 
------
+*****
 
 ####  love4aids  
 ##### 10173#       发表于 2018-4-25 22:32
@@ -14941,7 +14941,7 @@ garden的小孩也能少打两针。
 第7话看到那个海报，草莓就会强吻了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10174#       发表于 2018-4-25 22:32
@@ -14952,7 +14952,7 @@ garden的小孩也能少打两针。
 沙耶也是看过书才知道各种普雷法的。。。。
 
 
------
+*****
 
 ####  棒读  
 ##### 10175#       发表于 2018-4-25 22:32
@@ -14975,7 +14975,7 @@ garden的小孩也能少打两针。
 这个梗TOP2已经用过一次了
 
 
------
+*****
 
 ####  skives  
 ##### 10176#       发表于 2018-4-25 22:33
@@ -14986,7 +14986,7 @@ garden的小孩也能少打两针。
 现在这个地步，只能说这人看片看多了，个人觉得这种事无师自通也正常
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 10177#       发表于 2018-4-25 22:34
@@ -15008,7 +15008,7 @@ garden的小孩也能少打两针。
 <img src="https://img.saraba1st.com/forum/201804/25/223407xxq17lpnpplp0czq.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10178#       发表于 2018-4-25 22:34
@@ -15019,7 +15019,7 @@ garden的小孩也能少打两针。
 强大是强大了 自以为自己孤独才是现实中这种人最恶心的地方 这两人其实真的有被人排斥或者厌恶吗 081 13小队 自以为是的自我中心觉得大家都不能理解我  <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10179#       发表于 2018-4-25 22:34
@@ -15041,7 +15041,7 @@ garden的小孩也能少打两针。
 然而小黄毛接着说：“9iota这家伙就是这样不合群才找不到搭档的，虽然说现在有广君你了，你们做过了嘛？（笑）”
 
 
------
+*****
 
 ####  ynam  
 ##### 10180#       发表于 2018-4-25 22:34
@@ -15052,7 +15052,7 @@ garden的小孩也能少打两针。
 想想也不算喷但是有批评，那时候02身上谜团太多所以一堆人即便不满02也不像现在这样戾气那么重。
 
 
------
+*****
 
 ####  isummon  
 ##### 10181#       发表于 2018-4-25 22:35
@@ -15064,7 +15064,7 @@ garden的小孩也能少打两针。
 背头男第三话出场了啊 结果走错片场被吸个干净。不过最后摸个大奶妹，也是塞翁失马。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10182#       发表于 2018-4-25 22:35
@@ -15075,7 +15075,7 @@ garden的小孩也能少打两针。
 胖哥：吃不饱怎么打龙呢
 
 
------
+*****
 
 ####  adiedfish  
 ##### 10183#       发表于 2018-4-25 22:36
@@ -15087,7 +15087,7 @@ garden的小孩也能少打两针。
 主要核心里拿东西摆明了人或者说驾驶员易变，和这种宇宙癌细胞不是一个概念啊，生物有女王好说，但变异机体或者说武器有女王就很奇怪了。
 
 
------
+*****
 
 ####  Mafise  
 ##### 10184#       发表于 2018-4-25 22:36
@@ -15105,7 +15105,7 @@ garden的小孩也能少打两针。
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10185#       发表于 2018-4-25 22:36
@@ -15117,7 +15117,7 @@ garden的小孩也能少打两针。
 这集最后的大裂隙不就是TOP的变动重力源挖掘现场么
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10186#       发表于 2018-4-25 22:37
@@ -15126,7 +15126,7 @@ garden的小孩也能少打两针。
 阿满很幸运 还好第三话时02不饿 要么他凶多吉少 
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10187#       发表于 2018-4-25 22:37
@@ -15138,7 +15138,7 @@ garden的小孩也能少打两针。
 你这要求也太低了，或者说他们的追求太高了
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10188#       发表于 2018-4-25 22:38
@@ -15150,7 +15150,7 @@ garden的小孩也能少打两针。
 说得好像大人们很待见0216似得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 10189#       发表于 2018-4-25 22:38
@@ -15162,7 +15162,7 @@ garden的小孩也能少打两针。
 实际上就是没人能理解阿广啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10190#       发表于 2018-4-25 22:38
@@ -15171,7 +15171,7 @@ garden的小孩也能少打两针。
 阿广也没有认为别人排斥厌恶自己啊，只是觉得不同而已，人家跟周围人处得又没什么大问题，有点自己想法还不行了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 感情现实中人人都是有想法就全跟朋友说的么
 
 
------
+*****
 
 ####  lanhao  
 ##### 10191#       发表于 2018-4-25 22:38
@@ -15182,7 +15182,7 @@ garden的小孩也能少打两针。
 就现实而言 就现实而言 剧中他们两爱怎么孤高怎么孤高
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10192#       发表于 2018-4-25 22:38
@@ -15198,7 +15198,7 @@ garden的小孩也能少打两针。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可以的可以的
 
 
------
+*****
 
 ####  Schorched  
 ##### 10193#       发表于 2018-4-25 22:39
@@ -15213,7 +15213,7 @@ garden的小孩也能少打两针。
 说起来02在后面的集数该怎么面对13小队其他成员呢，跟广不用说了，跟莓能讨论讨论阿广（02：我家男人真是太粘人了。莓：。。。）<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，锦织哥哥如果能处理好这一点，我还是能走程序吹一波的
 
 
------
+*****
 
 ####  Nemo艇长  
 ##### 10194#       发表于 2018-4-25 22:39
@@ -15225,7 +15225,7 @@ garden的小孩也能少打两针。
 这个戏服太真实了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。好厉害。
 
 
------
+*****
 
 ####  novid  
 ##### 10195#       发表于 2018-4-25 22:40
@@ -15238,7 +15238,7 @@ garden的小孩也能少打两针。
 APE又不是不会造卫星
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10196#       发表于 2018-4-25 22:40
@@ -15250,7 +15250,7 @@ APE又不是不会造卫星
 我就说到这了
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10197#       发表于 2018-4-25 22:40
@@ -15263,7 +15263,7 @@ APE又不是不会造卫星
 这么久下来就问了几句直美去哪了。。。。。
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10198#       发表于 2018-4-25 22:41
@@ -15272,7 +15272,7 @@ APE又不是不会造卫星
 703可能会成为下一只必打的工具龙 到时你广轻手宰了她 发现真相
 
 
------
+*****
 
 ####  lanhao  
 ##### 10199#       发表于 2018-4-25 22:41
@@ -15285,7 +15285,7 @@ APE又不是不会造卫星
 广阔的世界啊 直美已经是活在我（广）记忆中过去的女人了 抛弃过去走向未来 才是真啊
 
 
------
+*****
 
 ####  星隐月明  
 ##### 10200#       发表于 2018-4-25 22:41
@@ -15294,7 +15294,7 @@ APE又不是不会造卫星
 抽空补了银河美少年，虽然都是贵乱，兼用卡也用得挺多，但打得是真TM爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10201#       发表于 2018-4-25 22:42
@@ -15305,7 +15305,7 @@ APE又不是不会造卫星
 还行吧，白天和别人玩成一片晚上独自眺望窗外放在一个人身上也并不冲突
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10202#       发表于 2018-4-25 22:42
@@ -15316,7 +15316,7 @@ APE又不是不会造卫星
 早送肉联厂了  勿念
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10203#       发表于 2018-4-25 22:42
@@ -15328,7 +15328,7 @@ APE又不是不会造卫星
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10204#       发表于 2018-4-25 22:43
@@ -15340,7 +15340,7 @@ APE又不是不会造卫星
 就现实而言也是，遇到与众不同的人，你是真的不知道他们一天到晚都在想什么
 
 
------
+*****
 
 ####  Mafise  
 ##### 10205#       发表于 2018-4-25 22:43
@@ -15355,7 +15355,7 @@ APE又不是不会造卫星
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  sonesosl4  
 ##### 10206#       发表于 2018-4-25 22:43
@@ -15364,7 +15364,7 @@ APE又不是不会造卫星
 等一个红皮鹤望兰的PVC<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 10207#       发表于 2018-4-25 22:43
@@ -15375,7 +15375,7 @@ APE又不是不会造卫星
 不过她为什么会有那样的结论？认为能同调意识连接就算互相理解了？
 
 
------
+*****
 
 ####  棒读  
 ##### 10208#       发表于 2018-4-25 22:43
@@ -15387,7 +15387,7 @@ APE又不是不会造卫星
 你没看过TOP2吧，这里头宇宙怪兽是指太阳系防卫系统啊，七号是它们的指挥官，叫龙没准也是什么防卫系统，其中的钥匙就是02
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10209#       发表于 2018-4-25 22:43
@@ -15402,7 +15402,7 @@ APE又 ...</blockquote>
 S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 
 
------
+*****
 
 ####  isummon  
 ##### 10210#       发表于 2018-4-25 22:44
@@ -15411,7 +15411,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 现在把鹤望兰扒拉走继续大战是非常合理的，因为02的湖边操作中，喜欢 = 注定会发生男女肉体关系 or 男生会向女生索求肉体关系。不打断的话就是天使龙片场了。
 
 
------
+*****
 
 ####  wangh  
 ##### 10211#       发表于 2018-4-25 22:44
@@ -15423,7 +15423,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 这张真棒<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 10212#       发表于 2018-4-25 22:45
@@ -15435,7 +15435,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 很有可能是博士教的，目前感觉对旧人类有所了解的只有ape和博士，ape不太可能会这么搞，就算是ape下的命令，实际执行也是由博士来做（当然不是本子展开，你们在想什么呢，看看旧人类留下的宝贵遗物小电影什么的不行吗）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10213#       发表于 2018-4-25 22:46
@@ -15449,7 +15449,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 “我们都是彼此利用对方（为自己下一步的利用对方找好借口和台阶），开好鹤望兰就得了，哪来那么多好逼逼的（饲料滚啊）。”
 
 
------
+*****
 
 ####  lanhao  
 ##### 10214#       发表于 2018-4-25 22:46
@@ -15467,7 +15467,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 你可以看作是我的脑补
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10215#       发表于 2018-4-25 22:48
@@ -15480,7 +15480,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 要8集就放电影那早就小娇妻了
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10216#       发表于 2018-4-25 22:48
@@ -15489,7 +15489,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 现在想想很多设定和FF7很像。。地底城市看不到天空，抽生命源导致大地枯竭，虚伪的繁荣。 博士们就知道造怪物和测试实验体，最后实验体和怪物都叛变了。
 
 
------
+*****
 
 ####  isummon  
 ##### 10217#       发表于 2018-4-25 22:49
@@ -15498,7 +15498,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 不过仔细想想，湖边操作啥子的，可能就是个噱头，和前面02的风骚操作一样，没啥好仔细追究的，想多了就会ooc啊
 
 
------
+*****
 
 ####  Schorched  
 ##### 10218#       发表于 2018-4-25 22:49
@@ -15510,7 +15510,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 就不太明白，02要真是普通缺爱少女，何必对别人摆一副臭脸，像国7那样对13小队保持一种朦朦胧胧的疏离感和羡慕是再好不过的，可惜了，非要装逼，9队留下的陋习吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10219#       发表于 2018-4-25 22:50
@@ -15521,7 +15521,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 016反而是成长在和02完全相反的环境了 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10220#       发表于 2018-4-25 22:50
@@ -15530,7 +15530,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 弗兰西西的回忆交流可能是半龙人的特权吧。。。  普通人好像就没有这功能？
 
 
------
+*****
 
 ####  yy19  
 ##### 10221#       发表于 2018-4-25 22:51
@@ -15545,7 +15545,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 别介，那时真上本垒了，02才欲哭无泪呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10222#       发表于 2018-4-25 22:51
@@ -15558,7 +15558,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  棒读  
 ##### 10223#       发表于 2018-4-25 22:51
@@ -15569,7 +15569,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 对02来说13小队那帮废物不但百无一用还成天要她救场，队霸又成天给她穿小鞋，换谁也给不了好脸啊
 
 
------
+*****
 
 ####  lanhao  
 ##### 10224#       发表于 2018-4-25 22:52
@@ -15580,7 +15580,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 感觉02自己都不知道有这功能<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 10225#       发表于 2018-4-25 22:52
@@ -15592,7 +15592,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 阿广是那样的人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 10226#       发表于 2018-4-25 22:52
@@ -15611,7 +15611,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 还是说666是特殊编号让13队吸引叫龙？但没有这方面的伏笔吧
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10227#       发表于 2018-4-25 22:54
@@ -15624,7 +15624,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 她觉得只要开弗兰西西就能和广相互理解
 
 
------
+*****
 
 ####  Schorched  
 ##### 10228#       发表于 2018-4-25 22:54
@@ -15636,7 +15636,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 举个不太恰当的例子，你是一个睾贵的主机玩家，但身边的人都只玩王者荣耀和吃鸡，连一些游戏大厂的名字都没听说过，但出于工作和基本的精神需求又不得不和他们打好关系，围一桌吃饭时一句话都插不上，这种情况下是不是有一种哑巴吃黄连的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  dzrykh  
 ##### 10229#       发表于 2018-4-25 22:55
@@ -15647,7 +15647,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10230#       发表于 2018-4-25 22:55
@@ -15659,7 +15659,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 10231#       发表于 2018-4-25 22:55
@@ -15671,7 +15671,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 后面开始好了吧，国9不就是个例子么。只不过后面开始暴躁，纠结于是否弄死阿广之间，游戏玩不下去了。
 
 
------
+*****
 
 ####  magicz2  
 ##### 10232#       发表于 2018-4-25 22:56
@@ -15686,7 +15686,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 莓有莓
 
 
------
+*****
 
 ####  isummon  
 ##### 10233#       发表于 2018-4-25 22:56
@@ -15698,7 +15698,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 湖水旁边天太冷了啊，得去驾驶舱弄……
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 10234#       发表于 2018-4-25 22:57
@@ -15707,7 +15707,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 这么看来国家队里真的是有不少拍脑袋就决定的设定和剧情。记得之前访谈不是说为了国家对特意做了一本设定书嘛，估计是锦织和今石他们一群人东想西想一堆没用的设定？（笑）
 
 
------
+*****
 
 ####  lanhao  
 ##### 10235#       发表于 2018-4-25 22:58
@@ -15718,7 +15718,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 你这个例子其实不是很合适 像阿广这种god father型的 不照样拿金枝给莓看 莓不一样好好听着 你不说他们永远不知道 抱着对方永远不能理解的态度 那你也永远别想被他人理解
 
 
------
+*****
 
 ####  Schorched  
 ##### 10236#       发表于 2018-4-25 22:59
@@ -15730,7 +15730,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 作为一个能把网游玩成单机的人我表示孤独这种情绪不难理解，不过那些口口声声说自己好孤独好痛苦的人是真的矫情就是了，一个人独处都受不了，白活那么久了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10237#       发表于 2018-4-25 22:59
@@ -15746,7 +15746,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 别的一些动画就算最终敌人埋的很深，主角前期还是有一个目标的，比如前往XXX地区，找到某某人
 
 
------
+*****
 
 ####  yy19  
 ##### 10238#       发表于 2018-4-25 22:59
@@ -15763,7 +15763,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 说真的，这老金啊……<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 10239#       发表于 2018-4-25 23:01
@@ -15778,7 +15778,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  novid  
 ##### 10240#       发表于 2018-4-25 23:01
@@ -15789,7 +15789,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 11话种植园在一处固定场所的挖掘作业，s计划
 
 
------
+*****
 
 ####  lanhao  
 ##### 10241#       发表于 2018-4-25 23:01
@@ -15803,7 +15803,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 有是有 去大冰隙 但这不算 因为这对主角方是被动的 而且还一点不知道
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10242#       发表于 2018-4-25 23:01
@@ -15812,7 +15812,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 阿尔法必死在我霉枪下。 这黄毛小弟怎么看也不是做大 boss的料。
 
 
------
+*****
 
 ####  yy19  
 ##### 10243#       发表于 2018-4-25 23:01
@@ -15824,7 +15824,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 披人皮的怪物呗。在阿广面前最有人味，其他时候视对象依次递减。
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10244#       发表于 2018-4-25 23:01
@@ -15833,7 +15833,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 现在看可能是广主席半天进不了弗兰西西的nt聊天室02才不耐烦的。。。   对02来说只有弗兰西西这种交流方式是最可靠的  其他的交流随便应付下就行了
 
 
------
+*****
 
 ####  棒读  
 ##### 10245#       发表于 2018-4-25 23:03
@@ -15844,7 +15844,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 队霸15话真情流露，终于说出憋了很久的那句“你要是不存在就好了”。之前找的种种理由，本质上就是为了这句话，为什么02不存在就好了呢？因为02不存在就没人跟她抢男人了，这就是13小队队长大人的觉悟。（合理怀疑之前直美也因为同样的理由被“不存在”了）。15话简直是队霸形象升格的一集啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10246#       发表于 2018-4-25 23:03
@@ -15858,7 +15858,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 方便后面超展开
 
 
------
+*****
 
 ####  arsenalfcc  
 ##### 10247#       发表于 2018-4-25 23:03
@@ -15870,7 +15870,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  mumubear  
 ##### 10248#       发表于 2018-4-25 23:04
@@ -15894,7 +15894,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 还有九集我看锦织怎么玩
 
 
------
+*****
 
 ####  dzrykh  
 ##### 10249#       发表于 2018-4-25 23:05
@@ -15903,7 +15903,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从国五有人提出队霸论以来，这个论断被不断的证明和强化
 
 
------
+*****
 
 ####  xyau  
 ##### 10250#       发表于 2018-4-25 23:06
@@ -15914,7 +15914,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 结果摸角交流还能碎角，真的很玄幻……
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 10251#       发表于 2018-4-25 23:06
@@ -15925,7 +15925,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 别介啊，指不定后面9α是小队的帮手，在危机时刻对莓告白了。不良男配认真少女可是王道啊。。。
 
 
------
+*****
 
 ####  Mafise  
 ##### 10252#       发表于 2018-4-25 23:06
@@ -15943,7 +15943,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  skives  
 ##### 10253#       发表于 2018-4-25 23:07
@@ -15952,7 +15952,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 02的角设定的神棍一点没问题
 
 
------
+*****
 
 ####  Schorched  
 ##### 10254#       发表于 2018-4-25 23:07
@@ -15964,7 +15964,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 你能理解那种根本不想好好学习却被其他人当做竞争目标的学痞吗，“md整天挂张面具好烦啊，老子想和学渣一起玩你们学霸不要靠近我啊啊啊啊啊啊”大概这种感受，阿广肯定不是这样不过也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  ynam  
 ##### 10255#       发表于 2018-4-25 23:08
@@ -15976,7 +15976,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 说来“你要是不存在就好了”真是标准小物臭反派台词，我便是没想到锦织会在这里用，而且还让自己偶像说出来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 10256#       发表于 2018-4-25 23:08
@@ -15985,7 +15985,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 国16会跳多少时间呢 直接种植园线了吧 
 
 
------
+*****
 
 ####  skives  
 ##### 10257#       发表于 2018-4-25 23:08
@@ -15997,7 +15997,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 本来很多事就是一厢情愿的错觉，你也肯定喜欢过第五集最后那段舞蹈啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10258#       发表于 2018-4-25 23:09
@@ -16009,7 +16009,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 所以说 广这种看到02与工作人员挣扎对拼的身影会产生“哇这好美丽”的想法在现实中是不可能存在的呀 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  mumubear  
 ##### 10259#       发表于 2018-4-25 23:09
@@ -16027,7 +16027,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 其他都是垫脚石和丑角。。。
 
 
------
+*****
 
 ####  love4aids  
 ##### 10260#       发表于 2018-4-25 23:09
@@ -16042,7 +16042,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 扭曲的偶像厨
 
 
------
+*****
 
 ####  棒读  
 ##### 10261#       发表于 2018-4-25 23:11
@@ -16054,7 +16054,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 草莓之前还有人说她是队长身份得顾大局云云，现在越来越明白了她基本上心思都花在抢男人上头了，之前一切打着队长旗号的行为基本都是为抢男人服务的，开头几集她频繁战斗中掉链子之谜也解开了，队霸也是个缺爱少女，本质上她对小队的感情（五郎除外）也没比02强多少
 
 
------
+*****
 
 ####  yy19  
 ##### 10262#       发表于 2018-4-25 23:11
@@ -16065,7 +16065,7 @@ S计划？ 萨菲罗斯计划？同样都是博士的终极杰作</blockquote>
 edit.
 
 
------
+*****
 
 ####  lanhao  
 ##### 10263#       发表于 2018-4-25 23:13
@@ -16076,7 +16076,7 @@ edit.
 我的意思是就现实而言这种人很恶心啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10264#       发表于 2018-4-25 23:13
@@ -16087,7 +16087,7 @@ edit.
 刷屏的不是因为这个原因，是因为羁绊者
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 10265#       发表于 2018-4-25 23:13
@@ -16096,7 +16096,7 @@ edit.
 都一万多楼了……556页果然不是梦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 10266#       发表于 2018-4-25 23:15
@@ -16108,7 +16108,7 @@ edit.
 你说的不无道理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，分分钟把你骂成汉奸
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10267#       发表于 2018-4-25 23:15
@@ -16117,7 +16117,7 @@ edit.
 感觉这片最不会死的就是02 从它小时候测试来看 具备瞬间HP回复根本打不死 
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10268#       发表于 2018-4-25 23:16
@@ -16129,7 +16129,7 @@ edit.
 要是队霸知道了小时候广和02的事情，再知道广是因为02才和自己开不了机，到时候<blockquote>你要是不存在就好了</blockquote>会喊得更加发自内心
 
 
------
+*****
 
 ####  novid  
 ##### 10269#       发表于 2018-4-25 23:17
@@ -16140,7 +16140,7 @@ edit.
 死是不会，会变成别的东西
 
 
------
+*****
 
 ####  lanhao  
 ##### 10270#       发表于 2018-4-25 23:18
@@ -16151,7 +16151,7 @@ edit.
 这群人不存在爸爸派 只存在广厨和非广厨
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10271#       发表于 2018-4-25 23:19
@@ -16162,7 +16162,7 @@ edit.
 既生霉何生鬼
 
 
------
+*****
 
 ####  Mafise  
 ##### 10272#       发表于 2018-4-25 23:19
@@ -16175,7 +16175,7 @@ edit.
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  yy19  
 ##### 10273#       发表于 2018-4-25 23:20
@@ -16186,7 +16186,7 @@ edit.
 edit.
 
 
------
+*****
 
 ####  novid  
 ##### 10274#       发表于 2018-4-25 23:21
@@ -16197,7 +16197,7 @@ edit.
 下周来点够劲的真药，努把力703有望
 
 
------
+*****
 
 ####  mumubear  
 ##### 10275#       发表于 2018-4-25 23:21
@@ -16215,7 +16215,7 @@ edit.
 失忆广被阿满diss,被吾郎当弟弟。。。当然要藏起心思啦。。。
 
 
------
+*****
 
 ####  Mafise  
 ##### 10276#       发表于 2018-4-25 23:23
@@ -16231,7 +16231,7 @@ edit.
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  Schorched  
 ##### 10277#       发表于 2018-4-25 23:25
@@ -16243,7 +16243,7 @@ edit.
 现实中那些说我好孤独的，你只要问你为什么这么孤独（不想和别人交往），多半是连屁都放不出来的，另外孤高者需要什么pose吗，我见到过的反倒是那种整天唯唯诺诺，对人和善，一点都不起眼的人更孤独些，别人对这种人哪有什么深刻印象，顶多来一句“这人不咋说话”。
 
 
------
+*****
 
 ####  Schorched  
 ##### 10278#       发表于 2018-4-25 23:26
@@ -16255,7 +16255,7 @@ edit.
 只有中二病才会主动追求孤独，就算是神经病，也是会想找个和他一样疯的人作伴的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shylia  
 ##### 10279#       发表于 2018-4-25 23:28
@@ -16268,7 +16268,7 @@ edit.
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Schorched  
 ##### 10280#       发表于 2018-4-25 23:31
@@ -16280,7 +16280,7 @@ edit.
 讲道理这种10岁多一点的小屁孩就算不告密，想做到当做无事发生过也是不可能的，肯定会被大人察觉异常然后拷问的（如果大人能给点力的话）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10281#       发表于 2018-4-25 23:33
@@ -16291,7 +16291,7 @@ edit.
 不用如果 这群大人如果给力点 16怕是连见都见不到02 更何谈私奔
 
 
------
+*****
 
 ####  Schorched  
 ##### 10282#       发表于 2018-4-25 23:33
@@ -16306,7 +16306,7 @@ edit.
 小时候啊，还在garden时，我记错了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10283#       发表于 2018-4-25 23:35
@@ -16318,7 +16318,7 @@ edit.
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hl8243  
 ##### 10284#       发表于 2018-4-25 23:36
@@ -16334,7 +16334,7 @@ edit.
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  asuka02  
 ##### 10285#       发表于 2018-4-25 23:37
@@ -16345,7 +16345,7 @@ edit.
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  六花自我中  
 ##### 10286#       发表于 2018-4-25 23:37
@@ -16357,7 +16357,7 @@ edit.
 这帮小屁孩本来就不知道感情为何物吖
 
 
------
+*****
 
 ####  pepase  
 ##### 10287#       发表于 2018-4-25 23:39
@@ -16368,7 +16368,7 @@ edit.
 博士掏出当年和7姐的实战资料<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 10288#       发表于 2018-4-25 23:39
@@ -16385,7 +16385,7 @@ edit.
 官网一直有更新的
 
 
------
+*****
 
 ####  Schorched  
 ##### 10289#       发表于 2018-4-25 23:40
@@ -16397,7 +16397,7 @@ edit.
 算了，这片tmd就不能深究设定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10290#       发表于 2018-4-25 23:44
@@ -16420,7 +16420,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 鬼佬还是很好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10291#       发表于 2018-4-25 23:45
@@ -16434,7 +16434,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 想派便当还不简单。
 
 
------
+*****
 
 ####  Shylia  
 ##### 10292#       发表于 2018-4-25 23:47
@@ -16446,7 +16446,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10293#       发表于 2018-4-25 23:48
@@ -16455,7 +16455,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 不死身基本上不都是Flag吗...
 
 
------
+*****
 
 ####  Code:703  
 ##### 10294#       发表于 2018-4-25 23:49
@@ -16485,7 +16485,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 查看全部评分
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10295#       发表于 2018-4-25 23:49
@@ -16500,7 +16500,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 你的ID很危险，下一个开除党籍的可能就是你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  funo3355411  
 ##### 10296#       发表于 2018-4-25 23:49
@@ -16511,7 +16511,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  hl8243  
 ##### 10297#       发表于 2018-4-25 23:49
@@ -16527,7 +16527,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 10298#       发表于 2018-4-25 23:50
@@ -16538,7 +16538,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 红鸟的大miss。所以后续来说，216和13小队其实不会有更多的细腻情感互动了。无非就是13小队来救援鹤望兰，阿广突然意识到一直有人在他身后而已。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10299#       发表于 2018-4-25 23:50
@@ -16573,7 +16573,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 <img src="https://img.saraba1st.com/forum/201804/25/235027v8ciqzz3mcl2xlk2.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winoros  
 ##### 10300#       发表于 2018-4-25 23:51
@@ -16584,7 +16584,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  Code:703  
 ##### 10301#       发表于 2018-4-25 23:51
@@ -16596,7 +16596,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 危机关头顾大局，和平时期抢男人，不也挺好么？<img src="https://static.saraba1st.com/image/smiley/carton2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10302#       发表于 2018-4-25 23:51
@@ -16607,7 +16607,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 鹤望兰在武斗传里画风会十分惊悚吧。。。
 
 
------
+*****
 
 ####  iceskey  
 ##### 10303#       发表于 2018-4-25 23:51
@@ -16621,7 +16621,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 泥潭有毒<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10304#       发表于 2018-4-25 23:51
@@ -16630,7 +16630,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 所以说我说这片删了其他人只留216拍个12集销量还是有救的
 
 
------
+*****
 
 ####  Schorched  
 ##### 10305#       发表于 2018-4-25 23:51
@@ -16642,7 +16642,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 所以说直美说的“自我满足”真是太对了，另外阿广的确是这种心理状态，你分析的很到位（不愧于头像）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，如果不是阿广谈恋爱的话，真的很让人心疼，可惜剧组太sb，这种感觉被恋爱带来的违和感冲淡了，要不是这样，阿广这种别扭的性格表现的更明显一点的话（也别太明显，不然显得做作），绝对很讨女观众的喜欢（我是汉子）。
 
 
------
+*****
 
 ####  isummon  
 ##### 10306#       发表于 2018-4-25 23:51
@@ -16656,7 +16656,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为啥你在片里没有喷一下阿广，搞不好早就喷醒了，不会那么蛋疼
 
 
------
+*****
 
 ####  Mafise  
 ##### 10307#       发表于 2018-4-25 23:52
@@ -16673,7 +16673,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  elflie  
 ##### 10308#       发表于 2018-4-25 23:52
@@ -16684,7 +16684,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 2000次男了解一下<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 10309#       发表于 2018-4-25 23:53
@@ -16699,7 +16699,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 怎么同一天注册，我都水了200多楼了，看来你还是不够扭曲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 10310#       发表于 2018-4-25 23:53
@@ -16717,7 +16717,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 标准情头请参考国15的216 国9的1556 和国5的两对
 
 
------
+*****
 
 ####  love4aids  
 ##### 10311#       发表于 2018-4-25 23:54
@@ -16730,7 +16730,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 看了海报就学会强吻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10312#       发表于 2018-4-25 23:54
@@ -16745,7 +16745,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 你给的链接看，12集还有9a15呢
 
 
------
+*****
 
 ####  Schorched  
 ##### 10313#       发表于 2018-4-25 23:54
@@ -16757,7 +16757,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 看，天上的卡兹sama<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 10314#       发表于 2018-4-25 23:57
@@ -16769,7 +16769,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 现在才发现，这一帧阿广的胳膊是不是有点不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 10315#       发表于 2018-4-25 23:57
@@ -16785,7 +16785,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 前面的一堆先不管
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10316#       发表于 2018-4-25 23:57
@@ -16794,7 +16794,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 说来广主席那句kiss前的台词，“俺たちは二人で一人だ”，鬼佬那边英文翻译是“Together, we are one”，想了想怎么脑中浮现出了阿尔萨斯跟耐奥祖合体的画面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Code:703  
 ##### 10317#       发表于 2018-4-25 23:57
@@ -16809,7 +16809,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 多说多掉，少说少掉，不说不掉。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10318#       发表于 2018-4-25 23:57
@@ -16821,7 +16821,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 现在优质狗粮片也就5000左右水准，不会比现在高多少的
 
 
------
+*****
 
 ####  isummon  
 ##### 10319#       发表于 2018-4-25 23:57
@@ -16832,7 +16832,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 心疼阿莓，败犬就算了，在阿广心里连个妹妹的地位都搏不到，和其他小队成员地位一样的<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  louge19891020  
 ##### 10320#       发表于 2018-4-25 23:58
@@ -16841,7 +16841,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 怎么突然300多楼了，不是一群病人表示康复了出院了么，有啥新药了，官方的也行假药也行，来一粒呗
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10321#       发表于 2018-4-25 23:59
@@ -16856,7 +16856,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 所以直美酱是13小队全体成员里B格最高的咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10322#       发表于 2018-4-25 23:59
@@ -16870,7 +16870,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 也好再见到阿广可能就是包子脸哭哭了。。。。
 
 
------
+*****
 
 ####  Schorched  
 ##### 10323#       发表于 2018-4-26 00:00
@@ -16882,7 +16882,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 我想到的是合白球<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10324#       发表于 2018-4-26 00:00
@@ -16897,7 +16897,7 @@ Their loud roar tells us to grasp happiness!</blockquote>
 Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 10325#       发表于 2018-4-26 00:00
@@ -16914,7 +16914,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 不愧是我投的best girl 太慧了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10326#       发表于 2018-4-26 00:00
@@ -16929,7 +16929,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  winoros  
 ##### 10327#       发表于 2018-4-26 00:01
@@ -16942,7 +16942,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  isummon  
 ##### 10328#       发表于 2018-4-26 00:01
@@ -16953,7 +16953,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 196说得也不多。等个196的个人回结束，就是直美酱成为逼王之时。
 
 
------
+*****
 
 ####  Code:703  
 ##### 10329#       发表于 2018-4-26 00:01
@@ -16965,7 +16965,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 广主席被洗脑前地位还是很高的，和广主席一起看金枝，什么darling啊、舔舔啊估计也是和广主席一起学习的。
 
 
------
+*****
 
 ####  Schorched  
 ##### 10330#       发表于 2018-4-26 00:01
@@ -16977,7 +16977,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 病人都是很傲娇的，况且光是给五郎发便当就能水好几页<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10331#       发表于 2018-4-26 00:02
@@ -16986,7 +16986,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 照这样看应该是8的逼格最高，机器里面训练机逼格最高<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10332#       发表于 2018-4-26 00:03
@@ -17005,7 +17005,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 这个设定现在看来非常作茧自缚，如果这个双人驾驶姿势真是为了爽一爽才搞出来的而没有更多理由的话，设定可以先吊起来打。
 
 
------
+*****
 
 ####  绫魂h  
 ##### 10333#       发表于 2018-4-26 00:03
@@ -17017,7 +17017,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 之前专楼里人都说对广来说小队是家人，可是妹妹不也只是家人吗？
 
 
------
+*****
 
 ####  lanhao  
 ##### 10334#       发表于 2018-4-26 00:03
@@ -17028,7 +17028,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 7、8两个弱智解说员有什么逼格<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10335#       发表于 2018-4-26 00:03
@@ -17037,7 +17037,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 明天来个预告估计有可能450
 
 
------
+*****
 
 ####  ynam  
 ##### 10336#       发表于 2018-4-26 00:04
@@ -17049,7 +17049,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 广有女主相，包子脸哭人设也不崩。
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10337#       发表于 2018-4-26 00:04
@@ -17061,7 +17061,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 解说员我只服JOJO里的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 10338#       发表于 2018-4-26 00:05
@@ -17070,7 +17070,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 明天会有预告吗？
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10339#       发表于 2018-4-26 00:06
@@ -17128,7 +17128,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 2018-4-26 00:05 上传
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10340#       发表于 2018-4-26 00:06
@@ -17143,7 +17143,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 让败犬30秒认输  这不是最大的用处了
 
 
------
+*****
 
 ####  winoros  
 ##### 10341#       发表于 2018-4-26 00:06
@@ -17154,7 +17154,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10342#       发表于 2018-4-26 00:06
@@ -17163,7 +17163,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 不知道为什么，感觉，703戏服头像和红鸟头像莫名地有点像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10343#       发表于 2018-4-26 00:06
@@ -17174,7 +17174,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 现实中一天到晚跟着屁股后面跑的妹妹，比起天天找茬打你的远房表兄弟，关系还是要亲近很多的……不过阿广并不这么认为
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 10344#       发表于 2018-4-26 00:09
@@ -17183,7 +17183,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 淦哦，本来戒断反应已经没有了，看专楼这么一讨论我又要死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10345#       发表于 2018-4-26 00:09
@@ -17239,7 +17239,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 2018-4-26 00:08 上传
 
 
------
+*****
 
 ####  Schorched  
 ##### 10346#       发表于 2018-4-26 00:09
@@ -17251,7 +17251,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 砖楼里就我一个觉得阿广比小黄毛还骚想干的吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shylia  
 ##### 10347#       发表于 2018-4-26 00:10
@@ -17263,7 +17263,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  神不可逾越  
 ##### 10348#       发表于 2018-4-26 00:10
@@ -17274,7 +17274,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 10349#       发表于 2018-4-26 00:10
@@ -17285,7 +17285,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 抱歉，国8的时候已经一堆人掏吊排队了
 
 
------
+*****
 
 ####  novid  
 ##### 10350#       发表于 2018-4-26 00:11
@@ -17296,7 +17296,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 国8广主席的屁股 想r<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10351#       发表于 2018-4-26 00:11
@@ -17307,7 +17307,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 不知道当年红鸟的英姿如何？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希望有老人出来讲讲……
 
 
------
+*****
 
 ####  80proof  
 ##### 10352#       发表于 2018-4-26 00:12
@@ -17316,7 +17316,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 突然发现官方头像里没有出现的主角队机体只有吊兰
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10353#       发表于 2018-4-26 00:12
@@ -17331,7 +17331,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 双人驾驶，记忆传导，日升那边的BC也可以，人家好歹一人一台机……哦人家还能3P。
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10354#       发表于 2018-4-26 00:12
@@ -17343,7 +17343,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10355#       发表于 2018-4-26 00:12
@@ -17399,7 +17399,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 2018-4-26 00:11 上传
 
 
------
+*****
 
 ####  Schorched  
 ##### 10356#       发表于 2018-4-26 00:14
@@ -17411,7 +17411,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 吉姆雷诺和凯瑞根不是已经有了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zkn1968  
 ##### 10357#       发表于 2018-4-26 00:14
@@ -17426,7 +17426,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 叫龙核心能有什么逼格？
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10358#       发表于 2018-4-26 00:14
@@ -17438,7 +17438,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 前几话专楼有人来骂过红鸟，大概意思就是说这么多年过去了，红鸟你还是这个吊样，所以大概能想像到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10359#       发表于 2018-4-26 00:15
@@ -17449,7 +17449,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 第9话这选图好有CP感...
 
 
------
+*****
 
 ####  asuka02  
 ##### 10360#       发表于 2018-4-26 00:15
@@ -17462,7 +17462,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10361#       发表于 2018-4-26 00:15
@@ -17471,7 +17471,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 像这种依靠精神连接的机体出现记忆操作是很正常的事，老拿这个说事没必要。
 
 
------
+*****
 
 ####  Schorched  
 ##### 10362#       发表于 2018-4-26 00:15
@@ -17483,7 +17483,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 10363#       发表于 2018-4-26 00:16
@@ -17492,7 +17492,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 1234集各机体纷纷上线 唯有吊兰没有头像 福岛p你沟通一下不行吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shylia  
 ##### 10364#       发表于 2018-4-26 00:17
@@ -17503,7 +17503,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10365#       发表于 2018-4-26 00:17
@@ -17517,7 +17517,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  asuka02  
 ##### 10366#       发表于 2018-4-26 00:17
@@ -17529,7 +17529,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  ynam  
 ##### 10367#       发表于 2018-4-26 00:17
@@ -17543,7 +17543,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 我觉得他并不骚，但人设差不多是那种大眼睛三无系女主脸
 
 
------
+*****
 
 ####  Shylia  
 ##### 10368#       发表于 2018-4-26 00:20
@@ -17555,7 +17555,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 10369#       发表于 2018-4-26 00:21
@@ -17564,7 +17564,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 图标里面，同框过的只有216 看胸三兄弟 以及 草莓郁乃
 
 
------
+*****
 
 ####  Code:703  
 ##### 10370#       发表于 2018-4-26 00:21
@@ -17587,7 +17587,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 2018-4-26 00:20 上传
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10371#       发表于 2018-4-26 00:22
@@ -17599,7 +17599,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 也就是个头像了，每次一考虑到身高，就会不由自主的把56打成犯罪预备役了
 
 
------
+*****
 
 ####  Schorched  
 ##### 10372#       发表于 2018-4-26 00:23
@@ -17608,7 +17608,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 说起来，泥潭或者外面的大众对人外的定义是什么，我觉得躯体大致呈人形的，能被称作人外的下限是凯瑞根那种，半身人形的，魔兽里的骚蹄子是下限，硬核人外的话，娜迦女巫以上的才能算<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10373#       发表于 2018-4-26 00:24
@@ -17617,7 +17617,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 哦不过图标里国14的世界名画1516倒是同框了……
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10374#       发表于 2018-4-26 00:25
@@ -17631,7 +17631,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 10375#       发表于 2018-4-26 00:25
@@ -17642,7 +17642,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 哭颜也很赞
 
 
------
+*****
 
 ####  Code:703  
 ##### 10376#       发表于 2018-4-26 00:25
@@ -17654,7 +17654,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 硬核人外应该是“哇呕呕呕呕呕呕呕呕呕~~~~~”
 
 
------
+*****
 
 ####  isummon  
 ##### 10377#       发表于 2018-4-26 00:26
@@ -17666,7 +17666,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 看锦织够不够狠，敢不敢把海报上的阴影02拿出来用用了。不过看第一话片头还是萌系红皮，你想要的偏硬核估计是摸不到咯
 
 
------
+*****
 
 ####  Schorched  
 ##### 10378#       发表于 2018-4-26 00:30
@@ -17681,7 +17681,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 可以是阿广被ape抓走了，02一怒之下夺回力量变身成硬核人外形象，完美致敬《我的老婆是虫子》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 10379#       发表于 2018-4-26 00:32
@@ -17692,7 +17692,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 博士瓦里安王子说
 
 
------
+*****
 
 ####  Schorched  
 ##### 10380#       发表于 2018-4-26 00:33
@@ -17707,7 +17707,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 电影公司实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10381#       发表于 2018-4-26 00:33
@@ -17716,7 +17716,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 前期02的设定和沙耶更像吧。。。   最后来个开花结局也是不错的
 
 
------
+*****
 
 ####  Shylia  
 ##### 10382#       发表于 2018-4-26 00:36
@@ -17732,7 +17732,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10383#       发表于 2018-4-26 00:36
@@ -17741,7 +17741,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 这次的十个汁男到底有没有抑制龙化还两说呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 10384#       发表于 2018-4-26 00:36
@@ -17753,7 +17753,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 你好像回错人了
 
 
------
+*****
 
 ####  isummon  
 ##### 10385#       发表于 2018-4-26 00:39
@@ -17765,7 +17765,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 之前按照100人用两年来算，大概够两个多月吧。如果按照和广相识憋了半年来算，可就是五年了。这些时间够用来刷掉大boss了。
 
 
------
+*****
 
 ####  Schorched  
 ##### 10386#       发表于 2018-4-26 00:42
@@ -17775,7 +17775,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 02真是人外的耻辱啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，话说凯瑞根那种不能用这种标准吧，很明显不属于234中的任何一种
 
 
------
+*****
 
 ####  Prolun  
 ##### 10387#       发表于 2018-4-26 00:42
@@ -17784,7 +17784,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 想不到现在药劲这么足。明明觉得这集爆点不如14。结果还不到一周就破万楼了
 
 
------
+*****
 
 ####  80proof  
 ##### 10388#       发表于 2018-4-26 00:42
@@ -17804,7 +17804,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/179.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10389#       发表于 2018-4-26 00:43
@@ -17815,7 +17815,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 有一半是在喷和吐槽吧
 
 
------
+*****
 
 ####  Schorched  
 ##### 10390#       发表于 2018-4-26 00:44
@@ -17827,7 +17827,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 直美酱不要这么厌恶自己呀，虽然你已经是叫龙女王了，但泥潭大众还是爱着你的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10391#       发表于 2018-4-26 00:45
@@ -17839,7 +17839,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  isummon  
 ##### 10392#       发表于 2018-4-26 00:45
@@ -17850,7 +17850,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 喷点比较多，今天刚喷了一波音乐。药点少或者已经近乎没有了。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10393#       发表于 2018-4-26 00:47
@@ -17862,7 +17862,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Shylia  
 ##### 10394#       发表于 2018-4-26 00:47
@@ -17874,7 +17874,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Schorched  
 ##### 10395#       发表于 2018-4-26 00:47
@@ -17886,7 +17886,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 说真的哪怕长点鳞片，给个眼睛像龙眼的特写，再长点肌肉，再牙尖爪利我就很满足了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Schorched  
 ##### 10396#       发表于 2018-4-26 00:49
@@ -17898,7 +17898,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 成了，剧情地位完美契合，毫无违和感，锦织真这么拍我tm吹爆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10397#       发表于 2018-4-26 00:51
@@ -17910,7 +17910,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Schorched  
 ##### 10398#       发表于 2018-4-26 00:52
@@ -17925,7 +17925,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 703：“准备好了吗？牛仔。”016：“来吧，好戏开场啦”<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10399#       发表于 2018-4-26 00:53
@@ -17938,7 +17938,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 这不是给掰碎了嘛……并且这表情也是越来越像人了，灵活多变，不再司马脸了。说明状态回去了。
 
 
------
+*****
 
 ####  whn1103  
 ##### 10400#       发表于 2018-4-26 00:57
@@ -17952,7 +17952,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 —— 来自 OnePlus A0001, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10401#       发表于 2018-4-26 00:58
@@ -17961,7 +17961,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 02怎么变白皮肯定会讲，到时候杀叫龙变人到底是怎么回事也就知道了。叫龙又跟人类有关。说到底这一套设定全都是环环相扣的，不免要跟你留到最后。第一集开头的那个7叫龙的图我也搞不懂是过去还是未来了。太迷
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10402#       发表于 2018-4-26 00:59
@@ -17972,7 +17972,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Schorched  
 ##### 10403#       发表于 2018-4-26 01:02
@@ -17987,7 +17987,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 我想看广雷普真怪物02，可以好好研究叫龙的生理结构，博士：“斯巴拉西！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10404#       发表于 2018-4-26 01:05
@@ -18005,7 +18005,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 2018-4-26 01:05 上传
 
 
------
+*****
 
 ####  神剑烧鸡  
 ##### 10405#       发表于 2018-4-26 01:13
@@ -18014,7 +18014,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">离预审还有16小时
 
 
------
+*****
 
 ####  gbaing  
 ##### 10406#       发表于 2018-4-26 01:14
@@ -18023,7 +18023,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">几天没关注，所以这周是没药了只能看公审大会了吗
 
 
------
+*****
 
 ####  gbaing  
 ##### 10407#       发表于 2018-4-26 01:15
@@ -18033,7 +18033,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">色差吗，怎么感觉饱和度高了
 
 
------
+*****
 
 ####  elflie  
 ##### 10408#       发表于 2018-4-26 01:15
@@ -18042,7 +18042,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 下午还会有预告吗这是个问题。。
 
 
------
+*****
 
 ####  CCYYFF  
 ##### 10409#       发表于 2018-4-26 01:17
@@ -18052,7 +18052,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 为什么是大福草莓啊
 
 
------
+*****
 
 ####  novid  
 ##### 10410#       发表于 2018-4-26 01:18
@@ -18061,7 +18061,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 特番还出预告，闲的没事干吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 10411#       发表于 2018-4-26 01:18
@@ -18074,7 +18074,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 就等0216发现真相，一起龙化觉醒召雨技能。
 
 
------
+*****
 
 ####  isummon  
 ##### 10412#       发表于 2018-4-26 01:20
@@ -18083,7 +18083,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 什么鬼，为何阿莓放中间啊……
 
 
------
+*****
 
 ####  xyau  
 ##### 10413#       发表于 2018-4-26 01:25
@@ -18102,7 +18102,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 没毛病呀
 
 
------
+*****
 
 ####  xingenge  
 ##### 10414#       发表于 2018-4-26 01:30
@@ -18114,7 +18114,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1fqpf1a9pq6j216i0cq7hn.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  winoros  
 ##### 10415#       发表于 2018-4-26 01:33
@@ -18126,7 +18126,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
 
 
------
+*****
 
 ####  novid  
 ##### 10416#       发表于 2018-4-26 01:35
@@ -18139,7 +18139,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 表情包营业肯定是他们计划好的
 
 
------
+*****
 
 ####  gbaing  
 ##### 10417#       发表于 2018-4-26 01:36
@@ -18155,7 +18155,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">等一个原画，搞不好是02莓莓哭
 
 
------
+*****
 
 ####  isummon  
 ##### 10418#       发表于 2018-4-26 01:39
@@ -18168,7 +18168,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 我倒是觉得她被人藏起来后发现了，母亲/抚养者被残忍杀害更合理一点。戴着脚链不是虐待她，而是怕她不听话乱跑乱叫被人发现。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 10419#       发表于 2018-4-26 01:43
@@ -18179,7 +18179,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 应该说是迄今为止选图最有的了，四个两组对称都是1556情头……但是十四话结尾又这么发展真是意料不到啊
 
 
------
+*****
 
 ####  xyau  
 ##### 10420#       发表于 2018-4-26 02:30
@@ -18194,7 +18194,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 就很好奇除了生理上的换血换皮之外，02是如何成长为现在这样的。
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10421#       发表于 2018-4-26 03:34
@@ -18208,7 +18208,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  novid  
 ##### 10422#       发表于 2018-4-26 03:48
@@ -18219,7 +18219,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 深夜动画也不是无限尺度的啊喂
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10423#       发表于 2018-4-26 04:00
@@ -18230,7 +18230,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 16话放完是5月6号
 
 
------
+*****
 
 ####  deidara  
 ##### 10424#       发表于 2018-4-26 04:48
@@ -18243,7 +18243,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 说来听听。
 
 
------
+*****
 
 ####  deidara  
 ##### 10425#       发表于 2018-4-26 04:52
@@ -18253,7 +18253,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 红皮鹤望兰最后脸上几个x划过，开始我还奇怪不是链接不稳定才会有x么，现在才看出来这是模拟流眼泪。。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10426#       发表于 2018-4-26 05:00
@@ -18264,7 +18264,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 喷了，原来如此
 
 
------
+*****
 
 ####  deidara  
 ##### 10427#       发表于 2018-4-26 05:03
@@ -18275,7 +18275,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 所以不出意外的话，15话以后至少自称是改了。其他方面02会有什么变化，开始看完气话说的有点多，不过基本还缺乏证据，有待观望。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10428#       发表于 2018-4-26 05:06
@@ -18290,7 +18290,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 很早就有人提了
 
 
------
+*****
 
 ####  626704053  
 ##### 10429#       发表于 2018-4-26 05:06
@@ -18302,7 +18302,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  deidara  
 ##### 10430#       发表于 2018-4-26 05:07
@@ -18311,7 +18311,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 有点奇怪，boku这个自称应该是学笑hiro的吧，这不算什么丢人的事情，为什么要改口呢。制作组在这种细节上似乎一向挺讲究的，难道真的暗示02以后会变成专楼设想的（但其实还没有依据）的形象么。
 
 
------
+*****
 
 ####  deidara  
 ##### 10431#       发表于 2018-4-26 05:09
@@ -18322,7 +18322,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 这样啊，那我觉得这个称呼改口还是有点意义的，不知道专楼里什么意见。
 
 
------
+*****
 
 ####  626704053  
 ##### 10432#       发表于 2018-4-26 05:10
@@ -18334,7 +18334,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  deidara  
 ##### 10433#       发表于 2018-4-26 05:11
@@ -18347,7 +18347,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 翠雀那个x不明显，就看到有白色划过。鹤望兰刚看到x我还以为用力过猛脱力导致即将宕机，就跟战斗暴龙兽秒杀钢铁邪龙兽以后瞬间退化到滚球兽一样。
 
 
------
+*****
 
 ####  xyau  
 ##### 10434#       发表于 2018-4-26 05:12
@@ -18360,7 +18360,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 鹤望兰哭完的下一卡就是16笑着哭，感觉是很明显的呼应呀
 
 
------
+*****
 
 ####  deidara  
 ##### 10435#       发表于 2018-4-26 05:12
@@ -18373,7 +18373,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 ？？？
 
 
------
+*****
 
 ####  novid  
 ##### 10436#       发表于 2018-4-26 05:16
@@ -18382,7 +18382,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 萝卜流泪有这么难懂吗，惊了
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 10437#       发表于 2018-4-26 05:17
@@ -18395,7 +18395,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 …所以又是56爆上回？不过制作时应该没法考虑到这么细的放送时间吧……
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10438#       发表于 2018-4-26 05:20
@@ -18411,7 +18411,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 反正14话放完是15号，15话216专场我感觉还是很恶意的
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 10439#       发表于 2018-4-26 05:26
@@ -18425,7 +18425,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 16话15和56恩爱一下不是很棒
 
 
------
+*****
 
 ####  xyau  
 ##### 10440#       发表于 2018-4-26 05:34
@@ -18441,7 +18441,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 说起来，雄蕊可以开训练机练习，雌蕊要怎么练习？如果设定是各个都市都配好搭档的话，似乎用不上训练机吧？还是因为通常情况下都是雌蕊承担伤害并可能导致无法开机，所以只考虑这种情况下雄蕊的训练？
 
 
------
+*****
 
 ####  xiyue365  
 ##### 10441#       发表于 2018-4-26 06:00
@@ -18453,7 +18453,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 10442#       发表于 2018-4-26 06:05
@@ -18462,7 +18462,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 一觉醒来发现居然有人要草广，赶紧去排队了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  满月美夜子  
 ##### 10443#       发表于 2018-4-26 06:05
@@ -18474,7 +18474,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 这是飙车啊<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  满月美夜子  
 ##### 10444#       发表于 2018-4-26 06:09
@@ -18486,7 +18486,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 支持<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  六花自我中  
 ##### 10445#       发表于 2018-4-26 06:14
@@ -18497,7 +18497,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 阿莓武郎还是比其他人高点的
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10446#       发表于 2018-4-26 06:20
@@ -18511,7 +18511,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  pepase  
 ##### 10447#       发表于 2018-4-26 06:21
@@ -18523,7 +18523,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 第5集广公主标准内心坚强的病弱美少女啊
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10448#       发表于 2018-4-26 06:33
@@ -18534,7 +18534,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 喷了，简直就是拔作剧本
 
 
------
+*****
 
 ####  isummon  
 ##### 10449#       发表于 2018-4-26 06:58
@@ -18543,7 +18543,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 我还以为博士只酷爱表情包，造机器人时不务正业浑水摸鱼已经是共识了……
 
 
------
+*****
 
 ####  soulife7  
 ##### 10450#       发表于 2018-4-26 07:03
@@ -18555,7 +18555,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Shylia  
 ##### 10451#       发表于 2018-4-26 07:14
@@ -18567,7 +18567,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10452#       发表于 2018-4-26 07:18
@@ -18582,7 +18582,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 父亲节弑父，母亲节杀妈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Shylia  
 ##### 10453#       发表于 2018-4-26 07:22
@@ -18594,7 +18594,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 10454#       发表于 2018-4-26 07:22
@@ -18607,7 +18607,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 我一直脑补的是雌蕊们天天打架，上体能课，做复杂的体操/武术动作，接受抗击打的压力训练……不过这个世界已经有各种脑波装置和类似VR的玩意，可能先是进行类似黑客帝国的那种虚拟世界学习的方式，然后现实中再进行实际操作。
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 10455#       发表于 2018-4-26 07:25
@@ -18618,7 +18618,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 练俯卧撑吧……那个姿势...
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10456#       发表于 2018-4-26 07:33
@@ -18629,7 +18629,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 念诗的时候是这样的
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10457#       发表于 2018-4-26 07:34
@@ -18640,7 +18640,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 贵乱也是销量毒药<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10458#       发表于 2018-4-26 07:34
@@ -18652,7 +18652,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 考虑到机器各种翻滚的时候雄蕊也能稳如泰山地坐着，机器内部应该有什么力场辅助之类的东西，不需要做长时间的俯卧撑……
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10459#       发表于 2018-4-26 07:39
@@ -18665,7 +18665,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 说不定日升就是要把偶像大师搞臭啊，反正不是他们自己的偶像企划。
 
 
------
+*****
 
 ####  xyau  
 ##### 10460#       发表于 2018-4-26 07:39
@@ -18678,7 +18678,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 此外这也说明02从脚链房间转移到实验室的过程没有体验到外面的世界，也就是说两处不通过外面的世界连通。所以02本来就被藏在实验室/第三育幼所？
 
 
------
+*****
 
 ####  isummon  
 ##### 10461#       发表于 2018-4-26 07:44
@@ -18692,7 +18692,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 两发小水枪放倒，头上一个袋子捆起来塞车里带走，醒来就是博士那张臭脸
 
 
------
+*****
 
 ####  棒读  
 ##### 10462#       发表于 2018-4-26 07:47
@@ -18705,7 +18705,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 02在树下召唤了七条神龙，许下了变成人类外貌的愿望，也付出了失去“翅膀”的代价（无法与他人驾驶超过3次）
 
 
------
+*****
 
 ####  xyau  
 ##### 10463#       发表于 2018-4-26 07:47
@@ -18718,7 +18718,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 另外球形舱，没看设定书，应该是有多轴保持重心向下的设计
 
 
------
+*****
 
 ####  xyau  
 ##### 10464#       发表于 2018-4-26 07:49
@@ -18729,7 +18729,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 其实这是一个魔物分了一半翅膀给王子的故事吗
 
 
------
+*****
 
 ####  zkc1991  
 ##### 10465#       发表于 2018-4-26 07:52
@@ -18738,7 +18738,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 偶像大师属于南梦宫，跟日升是一家人吧
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10466#       发表于 2018-4-26 07:59
@@ -18749,7 +18749,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 忘了当年“消失的凶鸟”了吗
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10467#       发表于 2018-4-26 08:07
@@ -18760,7 +18760,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 连监督本人都觉得是垃圾的企划，不是恶意搞臭，难道是洗钱吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10468#       发表于 2018-4-26 08:18
@@ -18771,7 +18771,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 那APE还真是一器多用啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么节约的嘛
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10469#       发表于 2018-4-26 08:21
@@ -18784,7 +18784,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 只是从上车还要送去工厂做成燃料变成了上车直接做成燃料，主要是节省时间
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 10470#       发表于 2018-4-26 08:21
@@ -18798,7 +18798,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 你这样说会让我有一些奇怪的想象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10471#       发表于 2018-4-26 08:23
@@ -18812,7 +18812,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10472#       发表于 2018-4-26 08:24
@@ -18821,7 +18821,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 虐童实锤，又是一波举报<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10473#       发表于 2018-4-26 08:24
@@ -18833,7 +18833,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xingenge  
 ##### 10474#       发表于 2018-4-26 08:25
@@ -18844,7 +18844,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 看错了，好像在搞笑的
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10475#       发表于 2018-4-26 08:26
@@ -18859,7 +18859,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 这又太奢侈了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 10476#       发表于 2018-4-26 08:27
@@ -18872,7 +18872,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 这帮小孩又不是原子弹，有啥好爆的
 
 
------
+*****
 
 ####  soulife7  
 ##### 10477#       发表于 2018-4-26 08:28
@@ -18884,7 +18884,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10478#       发表于 2018-4-26 08:28
@@ -18893,7 +18893,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 国鱼已经不满足庵野秀明了，宫崎骏已在讨论名单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10479#       发表于 2018-4-26 08:29
@@ -18905,7 +18905,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 笑死
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10480#       发表于 2018-4-26 08:29
@@ -18914,7 +18914,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 宫崎骏原画，可以可以<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10481#       发表于 2018-4-26 08:31
@@ -18923,7 +18923,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 痞子是什么垃圾，我们要宫崎骏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10482#       发表于 2018-4-26 08:34
@@ -18932,7 +18932,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 忽然想问一下，11区有没有自带销量的staff，就是那种片子只要里有他名字销量就能翻个身的那种。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10483#       发表于 2018-4-26 08:37
@@ -18947,7 +18947,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 其他就不清楚了
 
 
------
+*****
 
 ####  soulife7  
 ##### 10484#       发表于 2018-4-26 08:39
@@ -18958,7 +18958,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  skives  
 ##### 10485#       发表于 2018-4-26 08:41
@@ -18967,7 +18967,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 怎么了？宫崎骏怎么了？
 
 
------
+*****
 
 ####  isummon  
 ##### 10486#       发表于 2018-4-26 08:41
@@ -18976,7 +18976,7 @@ Naomi goodjob<img src="https://static.saraba1st.com/image/smiley/face2017/065.pn
 能想象幽灵公主一边莓莓哭一边喊四声阿席达卡吗……
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10487#       发表于 2018-4-26 08:43
@@ -18991,7 +18991,7 @@ ditF24话
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10488#       发表于 2018-4-26 08:47
@@ -19008,7 +19008,7 @@ ditF24话
 国24: 国15extra pro
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10489#       发表于 2018-4-26 08:52
@@ -19027,7 +19027,7 @@ ditF24话
 总不能中山公园吧
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10490#       发表于 2018-4-26 08:53
@@ -19041,7 +19041,7 @@ ditF24话
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好吧从前面来看是有可能
 
 
------
+*****
 
 ####  windmillge  
 ##### 10491#       发表于 2018-4-26 08:54
@@ -19057,7 +19057,7 @@ ditF24话
 说起来山口山好像是（未来）王妃要出场了……回想起小时候站在暴风城里猴子一样的小国王，真是感慨光阴飞逝……以及安度因你最好别生孩子，不然恐怕很快要去陪老爹了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 10492#       发表于 2018-4-26 08:55
@@ -19070,7 +19070,7 @@ ditF24话
 红鸟君真是喜欢发这种瞬间让人消沉的东西呢…
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10493#       发表于 2018-4-26 08:57
@@ -19086,7 +19086,7 @@ ditF24话
 (啊，不要叫醒我)
 
 
------
+*****
 
 ####  棒读  
 ##### 10494#       发表于 2018-4-26 08:59
@@ -19101,7 +19101,7 @@ ditF24话
 宫崎骏：做不到就给我滚回去
 
 
------
+*****
 
 ####  isummon  
 ##### 10495#       发表于 2018-4-26 09:00
@@ -19110,7 +19110,7 @@ ditF24话
 等国24里弹幕齐刷“五对官方CP齐撒狗粮”，鄙视爱奇艺宣发的人在屏幕面前流下悔恨的热泪
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10496#       发表于 2018-4-26 09:06
@@ -19123,7 +19123,7 @@ ditF24话
 之前不是还有人猜国鱼搞风之谷发展吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10497#       发表于 2018-4-26 09:09
@@ -19135,7 +19135,7 @@ ditF24话
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  isummon  
 ##### 10498#       发表于 2018-4-26 09:16
@@ -19144,7 +19144,7 @@ ditF24话
 我觉得，莓的那首BGM（流星那一段），配合上一场惨烈而残酷的战斗，应该挺不错的……
 
 
------
+*****
 
 ####  80proof  
 ##### 10499#       发表于 2018-4-26 09:30
@@ -19156,7 +19156,7 @@ ditF24话
 都怪271 现在还有源源不断的人用机战番“定位鞭尸国鱼<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Code:703  
 ##### 10500#       发表于 2018-4-26 09:31
@@ -19179,7 +19179,7 @@ ditF24话
 <img src="https://static.saraba1st.com/image/smiley/carton2017/017.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10501#       发表于 2018-4-26 09:34
@@ -19193,7 +19193,7 @@ ditF24话
 所以如果有国11pro，国14应该会有暗示，国16就应该有明示了
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10502#       发表于 2018-4-26 09:35
@@ -19208,7 +19208,7 @@ ditF24话
 196呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10503#       发表于 2018-4-26 09:36
@@ -19223,7 +19223,7 @@ ditF24话
 703呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 10504#       发表于 2018-4-26 09:37
@@ -19232,7 +19232,7 @@ ditF24话
 196和703在一起了
 
 
------
+*****
 
 ####  Code:703  
 ##### 10505#       发表于 2018-4-26 09:40
@@ -19264,7 +19264,7 @@ ditf最终话，五对官方cp齐放狗粮：
 最后小草莓把五郎送的发夹握在胸口：“hiro，我一定会继承你的遗志。”
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10506#       发表于 2018-4-26 09:40
@@ -19273,7 +19273,7 @@ ditf最终话，五对官方cp齐放狗粮：
 其实既然都有过主动换搭档的操作了，被动换搭档应该也来一发吧……
 
 
------
+*****
 
 ####  isummon  
 ##### 10507#       发表于 2018-4-26 09:41
@@ -19286,7 +19286,7 @@ ditf最终话，五对官方cp齐放狗粮：
 如果有国11pro，那就只有九队和莓莓了啊……除非阿广反水02……
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10508#       发表于 2018-4-26 09:41
@@ -19295,7 +19295,7 @@ ditf最终话，五对官方cp齐放狗粮：
    Strelizia Awakening        [https://www.youtube.com/watch?v=EAUIDoMlOyY](https://www.youtube.com/watch?v=EAUIDoMlOyY)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10509#       发表于 2018-4-26 09:45
@@ -19309,7 +19309,7 @@ ditf最终话，五对官方cp齐放狗粮：</blockquote>
 0216和大boss同归于尽哪来的9黄-002？
 
 
------
+*****
 
 ####  Code:703  
 ##### 10510#       发表于 2018-4-26 09:47
@@ -19321,7 +19321,7 @@ ditf最终话，五对官方cp齐放狗粮：</blockquote>
 嗯，人不够用了，我去改一下。
 
 
------
+*****
 
 ####  isummon  
 ##### 10511#       发表于 2018-4-26 09:47
@@ -19332,7 +19332,7 @@ ditf最终话，五对官方cp齐放狗粮：</blockquote>
 想想703和196在一起也挺带感的……处于小队逼格、看穿能力和吐槽战斗力顶端的两人。每天组队戳别的队友的肺管子
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 10512#       发表于 2018-4-26 09:50
@@ -19344,7 +19344,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 这个和vanquish的调基本一样啊，是有无歌词的区别吗？
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10513#       发表于 2018-4-26 09:54
@@ -19356,7 +19356,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 全名叫Vanquish (Strelizia Awakening)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10514#       发表于 2018-4-26 09:59
@@ -19368,7 +19368,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 说好的666悔恨的泪水被小胖吐槽长高20公分呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  stannislas  
 ##### 10515#       发表于 2018-4-26 10:01
@@ -19380,7 +19380,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 你这已经是劣质假药了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer"> 换个商标从头再来吧
 
 
------
+*****
 
 ####  isummon  
 ##### 10516#       发表于 2018-4-26 10:03
@@ -19392,7 +19392,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 要说伏笔反而是胖子旧情难忘用了棒子，而心满几乎无交流……
 
 
------
+*****
 
 ####  步六孤  
 ##### 10517#       发表于 2018-4-26 10:04
@@ -19401,7 +19401,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 梦里都已经是宫崎骏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10518#       发表于 2018-4-26 10:04
@@ -19416,7 +19416,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 再来个国十五pro大结局。。。
 
 
------
+*****
 
 ####  步六孤  
 ##### 10519#       发表于 2018-4-26 10:05
@@ -19425,7 +19425,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 那我们能不能把橘麻美换成久石让再把音监祭天
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10520#       发表于 2018-4-26 10:07
@@ -19437,7 +19437,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 还有假药就鼓励下谅解下啊！
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10521#       发表于 2018-4-26 10:08
@@ -19446,7 +19446,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">已经要久石让上场了么
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10522#       发表于 2018-4-26 10:08
@@ -19457,7 +19457,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 音监祭天比较实际一点
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10523#       发表于 2018-4-26 10:09
@@ -19471,7 +19471,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 那国11pro应该就是196爆上回了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10524#       发表于 2018-4-26 10:10
@@ -19483,7 +19483,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 橘麻美：感谢扭曲论坛青天大老爷<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  五更伪境  
 ##### 10525#       发表于 2018-4-26 10:10
@@ -19498,7 +19498,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 真香
 
 
------
+*****
 
 ####  Mafise  
 ##### 10526#       发表于 2018-4-26 10:11
@@ -19510,7 +19510,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10527#       发表于 2018-4-26 10:12
@@ -19533,7 +19533,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 “呼吸！！”
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10528#       发表于 2018-4-26 10:12
@@ -19549,7 +19549,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 和肥仔有什么可比性么
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10529#       发表于 2018-4-26 10:14
@@ -19564,7 +19564,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 2.重点，9a的驾驶姿势，虽然这个姿势可能有种种理由比如我之前xjb猜测的暗示多元家庭，或者暗示9a其实是无性人，但结合之前02跟别的男人上机死活不放出驾驶室场面，可以猜到一个非常简单而功利的理由——想设计9a和莓上机（而且不是跟02和满、汁男上机一样一带而过不具体描写），但是又不想莓被他开，所以让莓去开他。
 
 
------
+*****
 
 ####  isummon  
 ##### 10530#       发表于 2018-4-26 10:15
@@ -19576,7 +19576,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 小黄毛有一堆姐姐粉的好不好，能大概打个五五开的，不会哀嚎……
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10531#       发表于 2018-4-26 10:16
@@ -19597,7 +19597,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 毕竟G社有大决战前让女主花心出轨一次的黑历史传统
 
 
------
+*****
 
 ####  Mafise  
 ##### 10532#       发表于 2018-4-26 10:18
@@ -19612,7 +19612,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10533#       发表于 2018-4-26 10:19
@@ -19626,7 +19626,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 那不应该是703出现吗？毕竟16才是真女主。
 
 
------
+*****
 
 ####  mumubear  
 ##### 10534#       发表于 2018-4-26 10:19
@@ -19644,7 +19644,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 不过也有可能，下次216穿着9nine制服出场，回收四格。。。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10535#       发表于 2018-4-26 10:20
@@ -19658,7 +19658,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 不存在粉丝撕逼关系
 
 
------
+*****
 
 ####  80proof  
 ##### 10536#       发表于 2018-4-26 10:21
@@ -19676,7 +19676,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 但最后来个loveの奇迹我就没话说了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10537#       发表于 2018-4-26 10:22
@@ -19690,7 +19690,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 双线三线牛头人同时操作
 
 
------
+*****
 
 ####  skives  
 ##### 10538#       发表于 2018-4-26 10:22
@@ -19699,7 +19699,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 先让五郎去死，再让9α来
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10539#       发表于 2018-4-26 10:22
@@ -19713,7 +19713,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 在第二集广莓不能开机，十五集直接打脸而且不说理由之后，你觉得坚持“xx和xx不能开机”还有意义么……说不定下集莓郁都能开了而且同样不需要理由。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10540#       发表于 2018-4-26 10:23
@@ -19725,7 +19725,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 虽然第九集就该这么干了
 
 
------
+*****
 
 ####  isummon  
 ##### 10541#       发表于 2018-4-26 10:24
@@ -19738,7 +19738,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 抱歉，阿莓阿广开机还能瞬间记忆回流，开机这种设定没必要研究了
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10542#       发表于 2018-4-26 10:24
@@ -19752,7 +19752,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 13小队的机体未必不能有秘密啊，到时候小黄毛上了翠雀，直接一句：模式反转，密码XXX<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 10543#       发表于 2018-4-26 10:24
@@ -19761,7 +19761,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 草莓为了给五郎报仇，决定借助9a的力量，但在血战中，觉醒了新的感情，最后草莓救回了濒死的9a，没有让悲剧再一次上演。齐发狗粮。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10544#       发表于 2018-4-26 10:25
@@ -19771,7 +19771,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 然后被心和郁联手挡在满身前给拦住啥的
 
 
------
+*****
 
 ####  mumubear  
 ##### 10545#       发表于 2018-4-26 10:25
@@ -19788,7 +19788,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 当然9nine这群人是男是女还不清楚。。。
 
 
------
+*****
 
 ####  棒读  
 ##### 10546#       发表于 2018-4-26 10:26
@@ -19801,7 +19801,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 啥时候有这传统的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10547#       发表于 2018-4-26 10:27
@@ -19815,7 +19815,7 @@ Strelizia Awakening        https://www.youtube.com/watch?v=EAUIDoMlOyY</bl
 xxy染色体。。。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10548#       发表于 2018-4-26 10:27
@@ -19826,7 +19826,7 @@ xxy染色体。。。
 蓝宝石...
 
 
------
+*****
 
 ####  skives  
 ##### 10549#       发表于 2018-4-26 10:28
@@ -19835,7 +19835,7 @@ xxy染色体。。。
 满爷脸的优势已经被小黄毛取代了，我已经不想再看什么国11了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10550#       发表于 2018-4-26 10:29
@@ -19846,7 +19846,7 @@ xxy染色体。。。
 蓝宝石那时候有2ch？
 
 
------
+*****
 
 ####  mumubear  
 ##### 10551#       发表于 2018-4-26 10:29
@@ -19866,7 +19866,7 @@ xxy染色体。。。
 给你个大奶妹，脏活累活都是你的。。。
 
 
------
+*****
 
 ####  80proof  
 ##### 10552#       发表于 2018-4-26 10:29
@@ -19884,7 +19884,7 @@ xxy染色体。。。
 而且第二集广莓能开机 还开得相当快 双百 是后面出了问题<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  80proof  
 ##### 10553#       发表于 2018-4-26 10:31
@@ -19896,7 +19896,7 @@ xxy染色体。。。
 官方说法男女不可对调的设定 是不需要 研究<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10554#       发表于 2018-4-26 10:31
@@ -19914,7 +19914,7 @@ xxy染色体。。。
 只是不确定跟“外人”搭配的效果而已，莓上去之后同样能开对这片来说属于不用解释的“合理”展开。
 
 
------
+*****
 
 ####  棒读  
 ##### 10555#       发表于 2018-4-26 10:32
@@ -19925,7 +19925,7 @@ xxy染色体。。。
 不要瞎说好吗，那根本不是g社传统，何况锦织哥哥这种纯爱监督怎么会让02出轨
 
 
------
+*****
 
 ####  skives  
 ##### 10556#       发表于 2018-4-26 10:32
@@ -19934,7 +19934,7 @@ xxy染色体。。。
 02这种女人还有出轨的价值吗
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10557#       发表于 2018-4-26 10:34
@@ -19945,7 +19945,7 @@ xxy染色体。。。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10558#       发表于 2018-4-26 10:34
@@ -19958,7 +19958,7 @@ xxy染色体。。。
 渚薰开EVA也不用同步率...
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10559#       发表于 2018-4-26 10:35
@@ -19972,7 +19972,7 @@ xxy染色体。。。
 干掉了茅场这不还有须乡嘛
 
 
------
+*****
 
 ####  80proof  
 ##### 10560#       发表于 2018-4-26 10:36
@@ -19994,7 +19994,7 @@ xxy染色体。。。
 nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10561#       发表于 2018-4-26 10:37
@@ -20003,7 +20003,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 我觉得除非翠雀大破没得修，  否则我莓不会换机器的。
 
 
------
+*****
 
 ####  haradatos  
 ##### 10562#       发表于 2018-4-26 10:38
@@ -20012,7 +20012,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9黄一个被骑的怎么绿五郎，草莓愿意去骑一个比自己还骚的雄蕊吗
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10563#       发表于 2018-4-26 10:38
@@ -20023,7 +20023,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9α开翠雀就好了，反正他喜欢翠雀，nines机体又是量产
 
 
------
+*****
 
 ####  mumubear  
 ##### 10564#       发表于 2018-4-26 10:39
@@ -20038,7 +20038,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 莓走肯定带机子一起走。。。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10565#       发表于 2018-4-26 10:39
@@ -20054,7 +20054,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 人造物也能觉醒情感啊。或者说，让不懂感情的人造物懂得感情是很王道的剧情啊
 
 
------
+*****
 
 ####  五更伪境  
 ##### 10566#       发表于 2018-4-26 10:39
@@ -20063,7 +20063,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 推上有好多9a的图，而且质量都还行，感觉真的有抢妻，毕竟脸好看大家应该也能原谅他吧
 
 
------
+*****
 
 ####  skives  
 ##### 10567#       发表于 2018-4-26 10:39
@@ -20072,7 +20072,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 从前看你们讨论五郎便当是我偶尔还会感到气愤<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，现在我对五郎的杀意却达到了巅峰…
 
 
------
+*****
 
 ####  mumubear  
 ##### 10568#       发表于 2018-4-26 10:40
@@ -20084,7 +20084,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 万能插头了解下。。。
 
 
------
+*****
 
 ####  80proof  
 ##### 10569#       发表于 2018-4-26 10:41
@@ -20099,7 +20099,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 这样9a莓就可以成了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hl8243  
 ##### 10570#       发表于 2018-4-26 10:42
@@ -20119,7 +20119,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  棒读  
 ##### 10571#       发表于 2018-4-26 10:42
@@ -20128,7 +20128,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9队：跟我合作就可以帮你赢了她哦<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10572#       发表于 2018-4-26 10:46
@@ -20141,7 +20141,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 想看703穿驾驶服上机的样子<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10573#       发表于 2018-4-26 10:46
@@ -20156,7 +20156,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 都舔过味道而已，不过我支持9S无性/双性说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 10574#       发表于 2018-4-26 10:47
@@ -20165,7 +20165,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 09甚至可能不是人类...
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10575#       发表于 2018-4-26 10:47
@@ -20188,7 +20188,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 很期待9黄骑翠雀能向我们演示一下
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 10576#       发表于 2018-4-26 10:48
@@ -20197,7 +20197,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 军大衣披谁身上都不行，除了703<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">顺便给703再来个招女婿，把56给顺走，这样56也可以不用死了，也对得起他的发色了。
 
 
------
+*****
 
 ####  curiousnoob  
 ##### 10577#       发表于 2018-4-26 10:49
@@ -20209,7 +20209,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 216怕是9队爹妈
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10578#       发表于 2018-4-26 10:49
@@ -20226,7 +20226,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 这样怎么搞的像莓被9a强取豪夺一样<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer"> 
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10579#       发表于 2018-4-26 10:50
@@ -20238,7 +20238,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 人家不是都很自觉地把自己排除出人类行列了么……
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10580#       发表于 2018-4-26 10:50
@@ -20247,7 +20247,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 五郎大概率活到最后，毕竟是看过剧本的人
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10581#       发表于 2018-4-26 10:51
@@ -20259,7 +20259,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 泪痣和单遮眼的造型最衬这种定位了
 
 
------
+*****
 
 ####  skives  
 ##### 10582#       发表于 2018-4-26 10:51
@@ -20270,7 +20270,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 五郎会对自己偷看剧本这一行为付出生命的代价
 
 
------
+*****
 
 ####  五更伪境  
 ##### 10583#       发表于 2018-4-26 10:52
@@ -20282,7 +20282,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是9a来抢人他还接着佛那是真的可以去死了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10584#       发表于 2018-4-26 10:52
@@ -20299,7 +20299,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 所以女粉多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 10585#       发表于 2018-4-26 10:53
@@ -20314,7 +20314,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 这种强迫桥段……怎么看怎么像是9a自己爽一波后，助攻了1556啊
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10586#       发表于 2018-4-26 10:53
@@ -20323,7 +20323,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 只说需要男女一起开，没说男女不可对调吧……
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 10587#       发表于 2018-4-26 10:53
@@ -20332,7 +20332,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9a来抢的话五郎应该是不会佛了，12集的时候还表示了不满
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10588#       发表于 2018-4-26 10:54
@@ -20346,7 +20346,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 所以多半9a就是这个契机了。
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10589#       发表于 2018-4-26 10:54
@@ -20379,7 +20379,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 “啊……嗯……嗯”
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10590#       发表于 2018-4-26 10:55
@@ -20390,7 +20390,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 可是仔细想想如果他反抗9α“只有阿广可以享用我的爱人，其他人不行”的心态不也很奇怪吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10591#       发表于 2018-4-26 10:55
@@ -20402,7 +20402,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 若林说了男女角色不可对调
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10592#       发表于 2018-4-26 10:56
@@ -20422,7 +20422,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9黄身下无力反抗的莓的哀鸣和听着02和莓的惨叫无力阻止的五郎哭泣一定会成为另一幕经典的
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 10593#       发表于 2018-4-26 10:57
@@ -20433,7 +20433,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 漫画里不满更明显
 
 
------
+*****
 
 ####  80proof  
 ##### 10594#       发表于 2018-4-26 10:57
@@ -20448,7 +20448,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 不过如果第三部分氛围突变还是有那么16.02%的可能的
 
 
------
+*****
 
 ####  haradatos  
 ##### 10595#       发表于 2018-4-26 10:57
@@ -20462,7 +20462,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 可是草莓她。。。很重，壮如五郎都拉不住她，9黄那个小身板，我看悬
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10596#       发表于 2018-4-26 10:58
@@ -20480,7 +20480,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 2018-4-26 10:57 上传
 
 
------
+*****
 
 ####  windmillge  
 ##### 10597#       发表于 2018-4-26 10:58
@@ -20492,7 +20492,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 被，被鱼人支配的恐惧<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10598#       发表于 2018-4-26 10:58
@@ -20504,7 +20504,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 还记得幼儿园吊打小朋友的莓吾嘛？。。。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10599#       发表于 2018-4-26 10:59
@@ -20519,7 +20519,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9黄肯定没那么牛逼不过有十分之一威能也够用了啊
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10600#       发表于 2018-4-26 10:59
@@ -20531,7 +20531,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9a不是人啊
 
 
------
+*****
 
 ####  棒读  
 ##### 10601#       发表于 2018-4-26 10:59
@@ -20543,7 +20543,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 “呵呵呵，不愧是我中意的人，来大干一场吧！”
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10602#       发表于 2018-4-26 10:59
@@ -20552,7 +20552,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 1556第九话那个傻逼的发卡不就定好调子了么，靠着9α或者196助攻在一起，确实是士大夫们会选择的low逼展开
 
 
------
+*****
 
 ####  hl8243  
 ##### 10603#       发表于 2018-4-26 11:00
@@ -20565,7 +20565,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10604#       发表于 2018-4-26 11:01
@@ -20581,7 +20581,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 02七擒七纵015？
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10605#       发表于 2018-4-26 11:02
@@ -20590,7 +20590,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 国14以前我还以为1556已经定了，结果国14一出现在再看1556怎么看怎么别扭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10606#       发表于 2018-4-26 11:03
@@ -20602,7 +20602,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 小黄毛和莓真搭，五郎看着就和那种怕女儿被猪拱了的老爹一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 10607#       发表于 2018-4-26 11:06
@@ -20611,7 +20611,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 还不如让56跟9队走呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就如同去月球的钻石
 
 
------
+*****
 
 ####  mumubear  
 ##### 10608#       发表于 2018-4-26 11:08
@@ -20635,7 +20635,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 也符合第九集五郎人设。。。
 
 
------
+*****
 
 ####  isummon  
 ##### 10609#       发表于 2018-4-26 11:08
@@ -20646,7 +20646,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 你……欢迎去莓楼转转<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10610#       发表于 2018-4-26 11:10
@@ -20655,7 +20655,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 比翼鸟和13小队不会有更多的感情线发展了，最多13小队再助攻一下。216的问题除了物理原因以及拯救世界以外，就是红鸟念念不忘的前任说了……
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10611#       发表于 2018-4-26 11:10
@@ -20669,7 +20669,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 至少女性向那边会有点关注度。
 
 
------
+*****
 
 ####  80proof  
 ##### 10612#       发表于 2018-4-26 11:10
@@ -20684,7 +20684,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 1556完结<img src="https://static.saraba1st.com/image/smiley/carton2017/051.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  熊猫roey  
 ##### 10613#       发表于 2018-4-26 11:11
@@ -20695,7 +20695,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10614#       发表于 2018-4-26 11:12
@@ -20710,7 +20710,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 呀咩咯！
 
 
------
+*****
 
 ####  isummon  
 ##### 10615#       发表于 2018-4-26 11:13
@@ -20719,7 +20719,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 其实我还挺想看到莓被骗去九队，然后发现真相被小黄毛嘲讽，瞬间发怒加大出力，一口气把他骑出内出血的段落<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10616#       发表于 2018-4-26 11:13
@@ -20732,7 +20732,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 这就是为什么鹤望兰有角的原因
 
 
------
+*****
 
 ####  mumubear  
 ##### 10617#       发表于 2018-4-26 11:14
@@ -20750,7 +20750,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 9a没骑成功，一直diss02。。。。
 
 
------
+*****
 
 ####  skives  
 ##### 10618#       发表于 2018-4-26 11:15
@@ -20763,7 +20763,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 那第一集阿广应该能发现吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10619#       发表于 2018-4-26 11:17
@@ -20776,7 +20776,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 找到了，[https://bbs.saraba1st.com/2b/thread-1589815-9-1.html](https://bbs.saraba1st.com/2b/thread-1589815-9-1.html)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10620#       发表于 2018-4-26 11:17
@@ -20787,7 +20787,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 没有性知识的孩子发现对方和自己一样有什么不对么？
 
 
------
+*****
 
 ####  80proof  
 ##### 10621#       发表于 2018-4-26 11:17
@@ -20799,7 +20799,7 @@ nines肯定不是生理上的人类了 为franxx而创造的人型武器吧<img 
 ikou，goro兽！<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10622#       发表于 2018-4-26 11:17
@@ -20817,7 +20817,7 @@ ikou，goro兽！<img src="https://static.saraba1st.com/image/smiley/face2017/04
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10623#       发表于 2018-4-26 11:18
@@ -20828,7 +20828,7 @@ ikou，goro兽！</blockquote>
 五郎看到自己的两个幼驯染各自找到自己的幸福他会开心的
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10624#       发表于 2018-4-26 11:19
@@ -20840,7 +20840,7 @@ ikou，goro兽！</blockquote>
 锦织：五郎你知道的太多了......<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 10625#       发表于 2018-4-26 11:20
@@ -20852,7 +20852,7 @@ ikou，goro兽！</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  棒读  
 ##### 10626#       发表于 2018-4-26 11:22
@@ -20865,7 +20865,7 @@ ikou，goro兽！</blockquote>
 不会，广已经看过好几次02全裸了，应该没有大雕
 
 
------
+*****
 
 ####  80proof  
 ##### 10627#       发表于 2018-4-26 11:22
@@ -20886,7 +20886,7 @@ ikou，goro兽！</blockquote>
 金毛卒 草莓继承神之力 成为nines队霸<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10628#       发表于 2018-4-26 11:23
@@ -20898,7 +20898,7 @@ ikou，goro兽！</blockquote>
 只是和自己长的一样正常啦
 
 
------
+*****
 
 ####  skives  
 ##### 10629#       发表于 2018-4-26 11:25
@@ -20907,7 +20907,7 @@ ikou，goro兽！</blockquote>
 别这样，你们又让我想起了第四集的02疑似勃起这件事
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10630#       发表于 2018-4-26 11:25
@@ -20918,7 +20918,7 @@ ikou，goro兽！</blockquote>
 突然发现，官方头像五郎每集都出现官方却只放他两次，9a打酱油的头像也出现过两次。。。结合访谈说9A立场在后期起到蛮大的作用，五郎会不会被官方用完丢<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Code:703  
 ##### 10631#       发表于 2018-4-26 11:26
@@ -20939,7 +20939,7 @@ ikou，goro兽！</blockquote>
 小草莓：哎？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 10632#       发表于 2018-4-26 11:26
@@ -20951,7 +20951,7 @@ ikou，goro兽！</blockquote>
 满：果然是比较大的才好吗？！
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10633#       发表于 2018-4-26 11:27
@@ -20962,7 +20962,7 @@ ikou，goro兽！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看漫画就知道了，对小草莓第二多对手戏互动的不是五郎而是α，而主席这条线已经彻底断了
 
 
------
+*****
 
 ####  skives  
 ##### 10634#       发表于 2018-4-26 11:27
@@ -20971,7 +20971,7 @@ ikou，goro兽！</blockquote>
 让9a把02曾经用过的骗术在草莓身上用一遍
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10635#       发表于 2018-4-26 11:27
@@ -20982,7 +20982,7 @@ ikou，goro兽！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">看鹤望兰就知道了，大的让人害羞
 
 
------
+*****
 
 ####  Code:703  
 ##### 10636#       发表于 2018-4-26 11:28
@@ -20997,7 +20997,7 @@ ikou，goro兽！</blockquote>
 9a和02是同位竞争啊，应该是队霸看ace不顺眼，所以和015瞬间就互相理解了。
 
 
------
+*****
 
 ####  soulife7  
 ##### 10637#       发表于 2018-4-26 11:28
@@ -21011,7 +21011,7 @@ ikou，goro兽！</blockquote>
 没有生理课是这样子的<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10638#       发表于 2018-4-26 11:29
@@ -21020,7 +21020,7 @@ ikou，goro兽！</blockquote>
 乾，不要串戏到七龙珠啊
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10639#       发表于 2018-4-26 11:29
@@ -21035,7 +21035,7 @@ ikou，goro兽！</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  love4aids  
 ##### 10640#       发表于 2018-4-26 11:30
@@ -21049,7 +21049,7 @@ ikou，goro兽！</blockquote>
 lowb到家的小黄毛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10641#       发表于 2018-4-26 11:32
@@ -21058,7 +21058,7 @@ lowb到家的小黄毛<img src="https://static.saraba1st.com/image/smiley/face20
 如果最后的boss就是这个叫龙巨人的话……额有哪些动画小个子打巨大人型的boss战做得比较出色的吗（进击的巨人就不说了）？
 
 
------
+*****
 
 ####  lanhao  
 ##### 10642#       发表于 2018-4-26 11:32
@@ -21069,7 +21069,7 @@ lowb到家的小黄毛<img src="https://static.saraba1st.com/image/smiley/face20
 在莓面前裸体嘴叼鱼嘛。怕是被莓一巴掌拍死
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10643#       发表于 2018-4-26 11:32
@@ -21080,7 +21080,7 @@ lowb到家的小黄毛</blockquote>
 都是被02打击过的败犬应该能相互理解吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10644#       发表于 2018-4-26 11:33
@@ -21101,7 +21101,7 @@ lowb到家的小黄毛</blockquote>
 9a再次被打脸。。。
 
 
------
+*****
 
 ####  soulife7  
 ##### 10645#       发表于 2018-4-26 11:36
@@ -21116,7 +21116,7 @@ lowb到家的小黄毛</blockquote>
 黄毛要是以为是头小马，骑上去被扇巴掌就好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10646#       发表于 2018-4-26 11:36
@@ -21127,7 +21127,7 @@ lowb到家的小黄毛</blockquote>
 02的骗术讲究的是一个返璞归真，用的都是真情实感，讲究的是不成功便成仁，失败了就把自己赔进去，翻车了就栽倒自己老公头上
 
 
------
+*****
 
 ####  love4aids  
 ##### 10647#       发表于 2018-4-26 11:36
@@ -21138,7 +21138,7 @@ lowb到家的小黄毛</blockquote>
 小黄毛这种角色，一般不就是装逼被主角打脸的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10648#       发表于 2018-4-26 11:38
@@ -21149,7 +21149,7 @@ lowb到家的小黄毛</blockquote>
 要骗别人先骗自己 02诚然是骗术大湿啊
 
 
------
+*****
 
 ####  80proof  
 ##### 10649#       发表于 2018-4-26 11:38
@@ -21165,7 +21165,7 @@ lowb到家的小黄毛</blockquote>
 所以谁都报复不来 只能<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10650#       发表于 2018-4-26 11:39
@@ -21183,7 +21183,7 @@ lowb到家的小黄毛</blockquote>
 9a:原来和Eto一样丑。。。
 
 
------
+*****
 
 ####  soulife7  
 ##### 10651#       发表于 2018-4-26 11:39
@@ -21197,7 +21197,7 @@ lowb到家的小黄毛</blockquote>
 变成搞笑役担当外面姐姐怕是要哭了吧<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10652#       发表于 2018-4-26 11:39
@@ -21208,7 +21208,7 @@ lowb到家的小黄毛</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后翻车翻到姥姥家了
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10653#       发表于 2018-4-26 11:40
@@ -21222,7 +21222,7 @@ lowb到家的小黄毛</blockquote>
       我x死你个小s...啊！
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10654#       发表于 2018-4-26 11:40
@@ -21234,7 +21234,7 @@ lowb到家的小黄毛</blockquote>
 然后这车翻的突出一个惨烈
 
 
------
+*****
 
 ####  lanhao  
 ##### 10655#       发表于 2018-4-26 11:40
@@ -21247,7 +21247,7 @@ lowb到家的小黄毛</blockquote>
 恰恰相反啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 外面那姐姐巴不得9a被轮
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10656#       发表于 2018-4-26 11:41
@@ -21258,7 +21258,7 @@ lowb到家的小黄毛</blockquote>
 五郎：<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 10657#       发表于 2018-4-26 11:41
@@ -21267,7 +21267,7 @@ lowb到家的小黄毛</blockquote>
 “你那个雌蕊位还挺紧的。”
 
 
------
+*****
 
 ####  吾乃啊噗  
 ##### 10658#       发表于 2018-4-26 11:41
@@ -21276,7 +21276,7 @@ lowb到家的小黄毛</blockquote>
 你们对外面的姐姐有什么误解吧，她们不就是想看9a哭唧唧
 
 
------
+*****
 
 ####  mumubear  
 ##### 10659#       发表于 2018-4-26 11:41
@@ -21296,7 +21296,7 @@ lowb到家的小黄毛</blockquote>
 可惜锦织不会。。。
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10660#       发表于 2018-4-26 11:42
@@ -21348,7 +21348,7 @@ lowb到家的小黄毛</blockquote>
 9a出场时间大大不如结果头像出场率却跟13小队的人持平啊……
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 10661#       发表于 2018-4-26 11:42
@@ -21357,7 +21357,7 @@ lowb到家的小黄毛</blockquote>
 外面的姐姐不是说很想看他吃瘪吗，而且这是斋藤配的，还期待什么呢。
 
 
------
+*****
 
 ####  skives  
 ##### 10662#       发表于 2018-4-26 11:43
@@ -21366,7 +21366,7 @@ lowb到家的小黄毛</blockquote>
 想看9α莓莓哭
 
 
------
+*****
 
 ####  haradatos  
 ##### 10663#       发表于 2018-4-26 11:43
@@ -21375,7 +21375,7 @@ lowb到家的小黄毛</blockquote>
 9黄最low的展开不就是强骑草莓被打脸，结尾草莓走出驾驶舱对五郎说“我的搭档果然只有你”，复刻国3<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10664#       发表于 2018-4-26 11:44
@@ -21386,7 +21386,7 @@ lowb到家的小黄毛</blockquote>
 我想看全剧组都学会莓莓哭
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10665#       发表于 2018-4-26 11:44
@@ -21397,7 +21397,7 @@ lowb到家的小黄毛</blockquote>
 诺瓦君在向你招手啊
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10666#       发表于 2018-4-26 11:45
@@ -21406,7 +21406,7 @@ lowb到家的小黄毛</blockquote>
 现在这片还没有人被提出过驾驶仓   小黄毛很看好成为第一个
 
 
------
+*****
 
 ####  skives  
 ##### 10667#       发表于 2018-4-26 11:45
@@ -21416,7 +21416,7 @@ lowb到家的小黄毛</blockquote>
 “没关系！我们也把你的机体打爆了。”抱住，呜咽，“所以，扯平了！”
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10668#       发表于 2018-4-26 11:46
@@ -21430,7 +21430,7 @@ lowb到家的小黄毛</blockquote>
 小黄毛技术比五郎好
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10669#       发表于 2018-4-26 11:46
@@ -21442,7 +21442,7 @@ lowb到家的小黄毛</blockquote>
 所以接下去就是草莓死鱼眼转圈圈狂笑了？....
 
 
------
+*****
 
 ####  lanhao  
 ##### 10670#       发表于 2018-4-26 11:47
@@ -21455,7 +21455,7 @@ lowb到家的小黄毛</blockquote>
 复刻216嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10671#       发表于 2018-4-26 11:47
@@ -21469,7 +21469,7 @@ lowb到家的小黄毛</blockquote>
 小黄毛技术比五郎好
 
 
------
+*****
 
 ####  isummon  
 ##### 10672#       发表于 2018-4-26 11:49
@@ -21482,7 +21482,7 @@ lowb到家的小黄毛</blockquote>
 要不复刻一下小草莓小时候送给小金毛一个兔子玩偶……从此他只喜欢可爱的东西
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10673#       发表于 2018-4-26 11:49
@@ -21495,7 +21495,7 @@ lowb到家的小黄毛</blockquote>
 求个α回忆杀，当然五郎gg也一样
 
 
------
+*****
 
 ####  hl8243  
 ##### 10674#       发表于 2018-4-26 11:50
@@ -21513,7 +21513,7 @@ lowb到家的小黄毛</blockquote>
 应为在那一集放吊兰机甲的头像是最合适的
 
 
------
+*****
 
 ####  lanhao  
 ##### 10675#       发表于 2018-4-26 11:51
@@ -21524,7 +21524,7 @@ lowb到家的小黄毛</blockquote>
 其实草莓也失去了一部分记忆 这种展开吗
 
 
------
+*****
 
 ####  isummon  
 ##### 10676#       发表于 2018-4-26 11:52
@@ -21535,7 +21535,7 @@ lowb到家的小黄毛</blockquote>
 阿黄到处装骚骗女色，结果骗到自己老婆头上翻车了
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10677#       发表于 2018-4-26 11:52
@@ -21544,7 +21544,7 @@ lowb到家的小黄毛</blockquote>
 想看小黄毛喊216爸爸妈妈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10678#       发表于 2018-4-26 11:53
@@ -21555,7 +21555,7 @@ lowb到家的小黄毛</blockquote>
 从此以后9A就很讨厌丑陋的东西，只喜欢可爱的平胸物种
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10679#       发表于 2018-4-26 11:53
@@ -21564,7 +21564,7 @@ lowb到家的小黄毛</blockquote>
 小黄毛这种不就是自以为都在掌握之中，最后被ape来个兔死狗烹，暴露lowb本质无能狂怒，扑向爸爸的旗舰被一巴掌扇到地上狗啃屎<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10680#       发表于 2018-4-26 11:54
@@ -21575,7 +21575,7 @@ lowb到家的小黄毛</blockquote>
 这个可以有！（赞赏）
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10681#       发表于 2018-4-26 11:57
@@ -21586,7 +21586,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10682#       发表于 2018-4-26 11:58
@@ -21597,7 +21597,7 @@ lowb到家的小黄毛</blockquote>
 9s全是02产下来的工蜂这种？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10683#       发表于 2018-4-26 11:58
@@ -21609,7 +21609,7 @@ lowb到家的小黄毛</blockquote>
 02：daring，你看！虽然我以前不认他，但现在一看就是我们的孩子！
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10684#       发表于 2018-4-26 11:58
@@ -21621,7 +21621,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  skives  
 ##### 10685#       发表于 2018-4-26 11:59
@@ -21630,7 +21630,7 @@ lowb到家的小黄毛</blockquote>
 天降男二阿尔法
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10686#       发表于 2018-4-26 11:59
@@ -21643,7 +21643,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10687#       发表于 2018-4-26 12:00
@@ -21655,7 +21655,7 @@ lowb到家的小黄毛</blockquote>
 基因学上的父母
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10688#       发表于 2018-4-26 12:00
@@ -21669,7 +21669,7 @@ lowb到家的小黄毛</blockquote>
 工蜂也是没有性别的。。。。。。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10689#       发表于 2018-4-26 12:01
@@ -21682,7 +21682,7 @@ lowb到家的小黄毛</blockquote>
 为什么会暗示出轨五郎？？
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10690#       发表于 2018-4-26 12:01
@@ -21705,7 +21705,7 @@ lowb到家的小黄毛</blockquote>
 2018-4-26 12:01 上传
 
 
------
+*****
 
 ####  love4aids  
 ##### 10691#       发表于 2018-4-26 12:02
@@ -21716,7 +21716,7 @@ lowb到家的小黄毛</blockquote>
 小黄毛不是被驾驶么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10692#       发表于 2018-4-26 12:04
@@ -21728,7 +21728,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10693#       发表于 2018-4-26 12:05
@@ -21742,7 +21742,7 @@ lowb到家的小黄毛</blockquote>
 五郎都被开出黄毛籍了
 
 
------
+*****
 
 ####  isummon  
 ##### 10694#       发表于 2018-4-26 12:05
@@ -21753,7 +21753,7 @@ lowb到家的小黄毛</blockquote>
 底下那张可以换换。前面集数有很多队霸非常阴沉凶恶的图。
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10695#       发表于 2018-4-26 12:07
@@ -21764,7 +21764,7 @@ lowb到家的小黄毛</blockquote>
 感染霉菌<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Alkarlindil  
 ##### 10696#       发表于 2018-4-26 12:09
@@ -21773,7 +21773,7 @@ lowb到家的小黄毛</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">一个问题，小草莓能看到阿广记忆，阿广能看到02记忆，为啥之前02不看看阿广的呢？
 
 
------
+*****
 
 ####  skives  
 ##### 10697#       发表于 2018-4-26 12:10
@@ -21784,7 +21784,7 @@ lowb到家的小黄毛</blockquote>
 阿广不是失忆了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10698#       发表于 2018-4-26 12:14
@@ -21800,7 +21800,7 @@ lowb到家的小黄毛</blockquote>
 否则02和幼广那点事不早人尽皆知了……她还怎么高冷。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10699#       发表于 2018-4-26 12:14
@@ -21812,7 +21812,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10700#       发表于 2018-4-26 12:20
@@ -21826,7 +21826,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10701#       发表于 2018-4-26 12:22
@@ -21841,7 +21841,7 @@ lowb到家的小黄毛</blockquote>
 只是一直不说
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10702#       发表于 2018-4-26 12:25
@@ -21855,7 +21855,7 @@ lowb到家的小黄毛</blockquote>
 莓只会无语凝噎一阵然后：真是太好了，这两个人
 
 
------
+*****
 
 ####  Code:703  
 ##### 10703#       发表于 2018-4-26 12:26
@@ -21870,7 +21870,7 @@ lowb到家的小黄毛</blockquote>
 根据15话设定，9a也是一屁小烈马啊.....
 
 
------
+*****
 
 ####  Code:703  
 ##### 10704#       发表于 2018-4-26 12:26
@@ -21885,7 +21885,7 @@ lowb到家的小黄毛</blockquote>
 根据15话设定，9a也是一屁小烈马啊.....
 
 
------
+*****
 
 ####  soulife7  
 ##### 10705#       发表于 2018-4-26 12:27
@@ -21897,7 +21897,7 @@ lowb到家的小黄毛</blockquote>
 直美酱这个屁字太精髓了<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10706#       发表于 2018-4-26 12:28
@@ -21909,7 +21909,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Code:703  
 ##### 10707#       发表于 2018-4-26 12:28
@@ -21921,7 +21921,7 @@ lowb到家的小黄毛</blockquote>
 9黄勾引五郎骑他还差不多。
 
 
------
+*****
 
 ####  qscrgn3659  
 ##### 10708#       发表于 2018-4-26 12:29
@@ -21940,7 +21940,7 @@ lowb到家的小黄毛</blockquote>
 2018-4-26 12:28 上传
 
 
------
+*****
 
 ####  isummon  
 ##### 10709#       发表于 2018-4-26 12:29
@@ -21949,7 +21949,7 @@ lowb到家的小黄毛</blockquote>
 之前爬楼可能漏掉了，小黄毛那个角是什么构成的，有结论吗？灵体还是投影？
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10710#       发表于 2018-4-26 12:30
@@ -21960,7 +21960,7 @@ lowb到家的小黄毛</blockquote>
 13集有啥不能让莓看的东西？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10711#       发表于 2018-4-26 12:30
@@ -21971,7 +21971,7 @@ lowb到家的小黄毛</blockquote>
 参考雌蕊头罩上的，应该是一样
 
 
------
+*****
 
 ####  Code:703  
 ##### 10712#       发表于 2018-4-26 12:31
@@ -21983,7 +21983,7 @@ lowb到家的小黄毛</blockquote>
 然而广君失忆了，02要看他记忆只会看到各种703。
 
 
------
+*****
 
 ####  skives  
 ##### 10713#       发表于 2018-4-26 12:32
@@ -21996,7 +21996,7 @@ lowb到家的小黄毛</blockquote>
 阿广印象最深刻的东西是 现在 的泽拉图
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 10714#       发表于 2018-4-26 12:33
@@ -22011,7 +22011,7 @@ lowb到家的小黄毛</blockquote>
 我的可怜幼广啊，你死的好惨啊
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10715#       发表于 2018-4-26 12:33
@@ -22024,7 +22024,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10716#       发表于 2018-4-26 12:34
@@ -22038,7 +22038,7 @@ lowb到家的小黄毛</blockquote>
 这样就根本赢不了啊。。。。
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10717#       发表于 2018-4-26 12:36
@@ -22052,7 +22052,7 @@ lowb到家的小黄毛</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  lanhao  
 ##### 10718#       发表于 2018-4-26 12:38
@@ -22061,7 +22061,7 @@ lowb到家的小黄毛</blockquote>
 naomi：完 全 胜 利
 
 
------
+*****
 
 ####  Code:703  
 ##### 10719#       发表于 2018-4-26 12:38
@@ -22077,7 +22077,7 @@ naomi：完 全 胜 利
 3. 掰盘，寄刀片
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10720#       发表于 2018-4-26 12:39
@@ -22100,7 +22100,7 @@ naomi：完 全 胜 利
 2.保留红皮怪物这个梗，以后莓说不定有直面红皮怪物02（大）的机会。
 
 
------
+*****
 
 ####  lanhao  
 ##### 10721#       发表于 2018-4-26 12:41
@@ -22113,7 +22113,7 @@ naomi：完 全 胜 利
 那我直言 玩这种弱智把戏一点意思都没有 这已经算强行制造信息不对称了
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10722#       发表于 2018-4-26 12:41
@@ -22124,7 +22124,7 @@ naomi：完 全 胜 利
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  mumubear  
 ##### 10723#       发表于 2018-4-26 12:44
@@ -22136,7 +22136,7 @@ naomi：完 全 胜 利
 起了名字大家都精神起来了啊。。。
 
 
------
+*****
 
 ####  yy19  
 ##### 10724#       发表于 2018-4-26 12:44
@@ -22148,7 +22148,7 @@ naomi：完 全 胜 利
 牛头人部落的大贤者，看着这模板就不由……<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10725#       发表于 2018-4-26 12:45
@@ -22160,7 +22160,7 @@ naomi：完 全 胜 利
 所以收了镜子的02心里肯定一开始觉得吃屎一样……
 
 
------
+*****
 
 ####  skives  
 ##### 10726#       发表于 2018-4-26 12:46
@@ -22169,7 +22169,7 @@ naomi：完 全 胜 利
 十六集的看点确实很多
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10727#       发表于 2018-4-26 12:47
@@ -22181,7 +22181,7 @@ naomi：完 全 胜 利
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10728#       发表于 2018-4-26 12:48
@@ -22190,7 +22190,7 @@ naomi：完 全 胜 利
 郁乃这么聪明说不定 名字是她自己取的。。。
 
 
------
+*****
 
 ####  isummon  
 ##### 10729#       发表于 2018-4-26 12:48
@@ -22202,7 +22202,7 @@ naomi：完 全 胜 利
 是专楼的看点很多……结果播完是个大号国九……
 
 
------
+*****
 
 ####  lanhao  
 ##### 10730#       发表于 2018-4-26 12:48
@@ -22213,7 +22213,7 @@ naomi：完 全 胜 利
 大概率是莓取的 有样学样
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10731#       发表于 2018-4-26 12:49
@@ -22227,7 +22227,7 @@ naomi：完 全 胜 利
 那广是怎么从02的记忆里看到幼广跟满的约定的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10732#       发表于 2018-4-26 12:50
@@ -22243,7 +22243,7 @@ naomi：完 全 胜 利
 15集他和02相认了，可以有余地想点别的了，也立了“去看看外面的世界”的flag了，结果又马上跟13小队分开，可见依然没啥说的机会。
 
 
------
+*****
 
 ####  skives  
 ##### 10733#       发表于 2018-4-26 12:50
@@ -22254,7 +22254,7 @@ naomi：完 全 胜 利
 02和广的新相处模式，nines的戏份，世界观进展……如果又是一集五郎的主场，我还是自杀好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10734#       发表于 2018-4-26 12:52
@@ -22263,7 +22263,7 @@ naomi：完 全 胜 利
 16话播完泥潭只会指着五郎“都是因为他，都是他的错，如果他不存在了，锦织就不会搞这种LOWB展开，只要他不在了...大家..大家就都能幸福了啊”<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10735#       发表于 2018-4-26 12:53
@@ -22276,7 +22276,7 @@ naomi：完 全 胜 利
 这点还好 毕竟观众想看的就是216  如果后面再玩国14 那普通观众都要喷爆了
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 10736#       发表于 2018-4-26 12:54
@@ -22287,7 +22287,7 @@ naomi：完 全 胜 利
 下一集是露营回啦
 
 
------
+*****
 
 ####  lanhao  
 ##### 10737#       发表于 2018-4-26 12:55
@@ -22298,7 +22298,7 @@ naomi：完 全 胜 利
 五郎主场有什么不好的 我还想看还有多少神操作呢
 
 
------
+*****
 
 ####  comet1224  
 ##### 10738#       发表于 2018-4-26 12:58
@@ -22310,7 +22310,7 @@ naomi：完 全 胜 利
 這個假藥我社保
 
 
------
+*****
 
 ####  comet1224  
 ##### 10739#       发表于 2018-4-26 12:59
@@ -22322,7 +22322,7 @@ naomi：完 全 胜 利
 沒有五郎國家隊這世界是無法構築起來的By泛式
 
 
------
+*****
 
 ####  winoros  
 ##### 10740#       发表于 2018-4-26 12:59
@@ -22334,7 +22334,7 @@ naomi：完 全 胜 利
 访谈说会有666和老奶奶的戏份，五郎主场可能性不大
 
 
------
+*****
 
 ####  davidcch12  
 ##### 10741#       发表于 2018-4-26 13:00
@@ -22346,7 +22346,7 @@ naomi：完 全 胜 利
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  winoros  
 ##### 10742#       发表于 2018-4-26 13:00
@@ -22358,7 +22358,7 @@ naomi：完 全 胜 利
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">泛式啥时候说的
 
 
------
+*****
 
 ####  yy19  
 ##### 10743#       发表于 2018-4-26 13:01
@@ -22370,7 +22370,7 @@ naomi：完 全 胜 利
 被队霸霸凌？<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10744#       发表于 2018-4-26 13:01
@@ -22379,7 +22379,7 @@ naomi：完 全 胜 利
 但是16集1556的关系会有转变，光是这点泥潭心理就已经很微妙了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10745#       发表于 2018-4-26 13:01
@@ -22402,7 +22402,7 @@ naomi：完 全 胜 利
 大致上就是說五郎聖母沒有偉大的日本聖母情懷國家隊這群破麻活不下去的
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 10746#       发表于 2018-4-26 13:02
@@ -22415,7 +22415,7 @@ naomi：完 全 胜 利
 幼广已死论，这个好
 
 
------
+*****
 
 ####  asuka02  
 ##### 10747#       发表于 2018-4-26 13:03
@@ -22426,7 +22426,7 @@ naomi：完 全 胜 利
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 10748#       发表于 2018-4-26 13:04
@@ -22437,7 +22437,7 @@ naomi：完 全 胜 利
 赞同，估计196是后来来的（因为各种原因），16不取名15照葫芦画瓢
 
 
------
+*****
 
 ####  winoros  
 ##### 10749#       发表于 2018-4-26 13:04
@@ -22453,7 +22453,7 @@ naomi：完 全 胜 利
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦 我还以为是泛式在剧情还没开始发展的那期视频就预见这个情况了
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 10750#       发表于 2018-4-26 13:04
@@ -22464,7 +22464,7 @@ naomi：完 全 胜 利
 不仅翻车，莓还吸人体质<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hanshanwulu  
 ##### 10751#       发表于 2018-4-26 13:05
@@ -22473,7 +22473,7 @@ naomi：完 全 胜 利
 神了，詹姆斯、威少上演绝地反击一转攻势！奇迹是有的，锦织后面几集大翻盘不是没可能！（梦里）
 
 
------
+*****
 
 ####  lanhao  
 ##### 10752#       发表于 2018-4-26 13:05
@@ -22482,7 +22482,7 @@ naomi：完 全 胜 利
 没有五郎 ape这群傻逼根本没能力完成自己宏伟的计划 所以说没有五郎 这世界根本构筑不下去是对的
 
 
------
+*****
 
 ####  skives  
 ##### 10753#       发表于 2018-4-26 13:06
@@ -22491,7 +22491,7 @@ naomi：完 全 胜 利
 15 56将在这几集得出结论？也有可能是彻底决裂吧………
 
 
------
+*****
 
 ####  comet1224  
 ##### 10754#       发表于 2018-4-26 13:06
@@ -22509,7 +22509,7 @@ naomi：完 全 胜 利
 泛式從來沒製過假藥 所以我喜歡他^////^
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10755#       发表于 2018-4-26 13:06
@@ -22518,7 +22518,7 @@ naomi：完 全 胜 利
 如果16集1556关系转变，那可不是就是五郎个人回，发卡梗，0216在缝隙里发发糖
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10756#       发表于 2018-4-26 13:06
@@ -22530,7 +22530,7 @@ naomi：完 全 胜 利
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  comet1224  
 ##### 10757#       发表于 2018-4-26 13:07
@@ -22545,7 +22545,7 @@ naomi：完 全 胜 利
 不過日本聖母病畢竟是一種病 得吃藥得看醫生阿
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 10758#       发表于 2018-4-26 13:07
@@ -22556,7 +22556,7 @@ naomi：完 全 胜 利
 那国9到底为何存在……
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 10759#       发表于 2018-4-26 13:08
@@ -22565,7 +22565,7 @@ naomi：完 全 胜 利
 五郎便当了，以前的罪可以既往不咎<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 10760#       发表于 2018-4-26 13:08
@@ -22576,7 +22576,7 @@ naomi：完 全 胜 利
 因为五郎也是主角之一，他需要一个个人回
 
 
------
+*****
 
 ####  Asukalangley33  
 ##### 10761#       发表于 2018-4-26 13:09
@@ -22585,7 +22585,7 @@ naomi：完 全 胜 利
 所以现在小黄毛就叫韭黄了嘛
 
 
------
+*****
 
 ####  winoros  
 ##### 10762#       发表于 2018-4-26 13:10
@@ -22597,7 +22597,7 @@ naomi：完 全 胜 利
 为了给小草莓扔发卡做铺垫的
 
 
------
+*****
 
 ####  lanhao  
 ##### 10763#       发表于 2018-4-26 13:11
@@ -22606,7 +22606,7 @@ naomi：完 全 胜 利
 到时候16集表示其实五郎很有心机 专楼众纷纷流下道歉的眼泪
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10764#       发表于 2018-4-26 13:12
@@ -22615,7 +22615,7 @@ naomi：完 全 胜 利
 五郎的心机只表现在CV的一句话：这是个见人说人话，见鬼说鬼话的人<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  windmillge  
 ##### 10765#       发表于 2018-4-26 13:13
@@ -22629,7 +22629,7 @@ naomi：完 全 胜 利
 住手啊hhhhhhhhh<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10766#       发表于 2018-4-26 13:16
@@ -22640,7 +22640,7 @@ naomi：完 全 胜 利
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 10767#       发表于 2018-4-26 13:18
@@ -22653,7 +22653,7 @@ naomi：完 全 胜 利
 14话其实不算 控制失忆程度 控制回忆程度 还不给出解释 那就真的很low了
 
 
------
+*****
 
 ####  病欠  
 ##### 10768#       发表于 2018-4-26 13:18
@@ -22668,7 +22668,7 @@ naomi：完 全 胜 利
 然后回去复习一下，哭瞎了。证明现在对国家队没感觉不是我感性有问题。
 
 
------
+*****
 
 ####  isummon  
 ##### 10769#       发表于 2018-4-26 13:20
@@ -22677,7 +22677,7 @@ naomi：完 全 胜 利
 我希望他们荒野求生能够找到个什么旧时代的服装店，换身私服玩玩，现在这一套实在是看腻了
 
 
------
+*****
 
 ####  棒读  
 ##### 10770#       发表于 2018-4-26 13:21
@@ -22690,7 +22690,7 @@ naomi：完 全 胜 利
 百合熊岚要比国家队硬核多了，跟这个一比国家队简直是过家家
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 10771#       发表于 2018-4-26 13:21
@@ -22699,7 +22699,7 @@ naomi：完 全 胜 利
 在想像056会死的各位,我觉得真出现了,主角方几乎不可能只死一个056,剩下毫发无损的局面
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10772#       发表于 2018-4-26 13:21
@@ -22711,7 +22711,7 @@ naomi：完 全 胜 利
 为了满足STAFF的换装癖才有了ED吧，正片应该很难看见了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10773#       发表于 2018-4-26 13:22
@@ -22722,7 +22722,7 @@ naomi：完 全 胜 利
 衣服都氧化了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 10774#       发表于 2018-4-26 13:23
@@ -22734,7 +22734,7 @@ naomi：完 全 胜 利
 海边区域书都没有受潮烂掉，衣服应该也是可以找到的
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10775#       发表于 2018-4-26 13:24
@@ -22748,7 +22748,7 @@ naomi：完 全 胜 利
 ……弹射除外<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10776#       发表于 2018-4-26 13:24
@@ -22760,7 +22760,7 @@ naomi：完 全 胜 利
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10777#       发表于 2018-4-26 13:24
@@ -22769,7 +22769,7 @@ naomi：完 全 胜 利
 换装感觉很难了，改变发型更新人设什么的也可以啊，胖子抽脂啦，390把头发放下来之类的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 10778#       发表于 2018-4-26 13:24
@@ -22783,7 +22783,7 @@ naomi：完 全 胜 利
 56“去那边柜台看看吧”（童装柜台）
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10779#       发表于 2018-4-26 13:25
@@ -22798,7 +22798,7 @@ naomi：完 全 胜 利
 正义的伙伴---卫宫五郎？
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10780#       发表于 2018-4-26 13:27
@@ -22810,7 +22810,7 @@ naomi：完 全 胜 利
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  skives  
 ##### 10781#       发表于 2018-4-26 13:27
@@ -22819,7 +22819,7 @@ naomi：完 全 胜 利
 小草莓和9a的关系越来越好，五郎就会黑化了。我甚至阴湿的想过五郎这集的操作是不是和小黄毛在战场的搭讪有点微妙的关系。
 
 
------
+*****
 
 ####  lanhao  
 ##### 10782#       发表于 2018-4-26 13:28
@@ -22830,7 +22830,7 @@ naomi：完 全 胜 利
 不可能死的 staff都说了后面还有1556 没有一出“好想大声说爱你”我是不信的
 
 
------
+*****
 
 ####  棒读  
 ##### 10783#       发表于 2018-4-26 13:28
@@ -22841,7 +22841,7 @@ naomi：完 全 胜 利
 说起来9队每次都当着五郎面撩草莓哎
 
 
------
+*****
 
 ####  病欠  
 ##### 10784#       发表于 2018-4-26 13:29
@@ -22853,7 +22853,7 @@ naomi：完 全 胜 利
 如果16最后选择变成怪物和02殉道，我就给个+1精神鼓励吧。
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10785#       发表于 2018-4-26 13:30
@@ -22868,7 +22868,7 @@ naomi：完 全 胜 利
 有他在，剧情只会往最LOW的方向发展。
 
 
------
+*****
 
 ####  comet1224  
 ##### 10786#       发表于 2018-4-26 13:30
@@ -22886,7 +22886,7 @@ naomi：完 全 胜 利
 病人們互相陪護的場所
 
 
------
+*****
 
 ####  Code:703  
 ##### 10787#       发表于 2018-4-26 13:30
@@ -22904,7 +22904,7 @@ naomi：完 全 胜 利
 这次被大手一网打尽后，过几天广来到13小队。
 
 
------
+*****
 
 ####  comet1224  
 ##### 10788#       发表于 2018-4-26 13:31
@@ -22919,7 +22919,7 @@ naomi：完 全 胜 利
 056要是黑化我立刻吹爆國家隊
 
 
------
+*****
 
 ####  Code:703  
 ##### 10789#       发表于 2018-4-26 13:32
@@ -22931,7 +22931,7 @@ naomi：完 全 胜 利
 其实ape就是要找个理由都市自暴所有人装罐。
 
 
------
+*****
 
 ####  comet1224  
 ##### 10790#       发表于 2018-4-26 13:32
@@ -22949,7 +22949,7 @@ naomi：完 全 胜 利
 056某方面來說也是廣的工具人啊
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10791#       发表于 2018-4-26 13:32
@@ -22964,7 +22964,7 @@ naomi：完 全 胜 利
 56“protocol32，执行”（无言地自爆）倒在地上的56“广，莓，你们看到了吗，多么澄澈的天空啊，然而我啊，讨厌这样的天空呢”
 
 
------
+*****
 
 ####  comet1224  
 ##### 10792#       发表于 2018-4-26 13:33
@@ -22993,7 +22993,7 @@ naomi：完 全 胜 利
 五選一呢
 
 
------
+*****
 
 ####  Code:703  
 ##### 10793#       发表于 2018-4-26 13:33
@@ -23005,7 +23005,7 @@ naomi：完 全 胜 利
 父债子偿，小黄毛过来，这口锅背好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  棒读  
 ##### 10794#       发表于 2018-4-26 13:33
@@ -23015,7 +23015,7 @@ naomi：完 全 胜 利
 56：我也不是喜欢才做黄毛的啊，我想做个好人！
 
 
------
+*****
 
 ####  skives  
 ##### 10795#       发表于 2018-4-26 13:33
@@ -23030,7 +23030,7 @@ naomi：完 全 胜 利
 等一下 五郎和谁一起自爆啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10796#       发表于 2018-4-26 13:34
@@ -23041,7 +23041,7 @@ naomi：完 全 胜 利
 56厨:"别再胡说八道了，像你们这种人，从来没有喜欢过一个角色吧"
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10797#       发表于 2018-4-26 13:34
@@ -23056,7 +23056,7 @@ naomi：完 全 胜 利
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面只要再来一次国9操作届到我莓，你看LOW不LOW  
 
 
------
+*****
 
 ####  Code:703  
 ##### 10798#       发表于 2018-4-26 13:35
@@ -23071,7 +23071,7 @@ naomi：完 全 胜 利
 666
 
 
------
+*****
 
 ####  comet1224  
 ##### 10799#       发表于 2018-4-26 13:36
@@ -23095,7 +23095,7 @@ naomi：完 全 胜 利
 泥潭是否會立刻對056轉粉
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10800#       发表于 2018-4-26 13:36
@@ -23106,7 +23106,7 @@ naomi：完 全 胜 利
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Code:703  
 ##### 10801#       发表于 2018-4-26 13:36
@@ -23118,7 +23118,7 @@ naomi：完 全 胜 利
 “要上了，泽拉图，汁男的储备还够吗？”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10802#       发表于 2018-4-26 13:38
@@ -23132,7 +23132,7 @@ naomi：完 全 胜 利
 监督敢这么玩 我也打+2 可惜
 
 
------
+*****
 
 ####  Code:703  
 ##### 10803#       发表于 2018-4-26 13:38
@@ -23147,7 +23147,7 @@ naomi：完 全 胜 利
 只是形状一样而已，红鸟不是002么？
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10804#       发表于 2018-4-26 13:40
@@ -23159,7 +23159,7 @@ naomi：完 全 胜 利
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10805#       发表于 2018-4-26 13:40
@@ -23179,7 +23179,7 @@ naomi：完 全 胜 利
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  comet1224  
 ##### 10806#       发表于 2018-4-26 13:41
@@ -23215,7 +23215,7 @@ naomi：完 全 胜 利
 特番解釋下啊錦織&gt;&lt;
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10807#       发表于 2018-4-26 13:41
@@ -23230,7 +23230,7 @@ naomi：完 全 胜 利
 只要黑化我就转中立，粉 说实话做不到  我是莓厨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 10808#       发表于 2018-4-26 13:41
@@ -23239,7 +23239,7 @@ naomi：完 全 胜 利
 看你们聊得这么开心。。泥潭国楼未解之谜还有哪些啊？我想到的有：直美的死，五郎的黑，02的皮，心酱的崽。还有别的么？
 
 
------
+*****
 
 ####  Code:703  
 ##### 10809#       发表于 2018-4-26 13:42
@@ -23255,7 +23255,7 @@ naomi：完 全 胜 利
 帮你补充两个：666恋母，390恋父
 
 
------
+*****
 
 ####  lanhao  
 ##### 10810#       发表于 2018-4-26 13:42
@@ -23266,7 +23266,7 @@ naomi：完 全 胜 利
 广的龙化 
 
 
------
+*****
 
 ####  comet1224  
 ##### 10811#       发表于 2018-4-26 13:42
@@ -23286,7 +23286,7 @@ naomi：完 全 胜 利
 期待
 
 
------
+*****
 
 ####  comet1224  
 ##### 10812#       发表于 2018-4-26 13:43
@@ -23313,7 +23313,7 @@ naomi：完 全 胜 利
 就是因為莓黨總是容忍所以錦織才一直亂來
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 10813#       发表于 2018-4-26 13:44
@@ -23325,7 +23325,7 @@ naomi：完 全 胜 利
 是指后面会不会完全龙化么？好像也算。。
 
 
------
+*****
 
 ####  comet1224  
 ##### 10814#       发表于 2018-4-26 13:44
@@ -23343,7 +23343,7 @@ naomi：完 全 胜 利
 0216會不會再拆一次
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10815#       发表于 2018-4-26 13:44
@@ -23355,7 +23355,7 @@ naomi：完 全 胜 利
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10816#       发表于 2018-4-26 13:45
@@ -23371,7 +23371,7 @@ naomi：完 全 胜 利
 青春期，看起来个个有病，说到底就是作业留得太少，一天净是胡思乱想<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10817#       发表于 2018-4-26 13:46
@@ -23386,7 +23386,7 @@ naomi：完 全 胜 利
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我莓并不期望这些，就算被广拒绝，依然还是希望他过的好的
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10818#       发表于 2018-4-26 13:47
@@ -23395,7 +23395,7 @@ naomi：完 全 胜 利
 今天下午会有国16的预告吗？还是说换成特番的预告
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10819#       发表于 2018-4-26 13:47
@@ -23406,7 +23406,7 @@ naomi：完 全 胜 利
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  comet1224  
 ##### 10820#       发表于 2018-4-26 13:47
@@ -23421,7 +23421,7 @@ naomi：完 全 胜 利
 聖父聖母一起創造國家隊的和平
 
 
------
+*****
 
 ####  comet1224  
 ##### 10821#       发表于 2018-4-26 13:48
@@ -23439,7 +23439,7 @@ naomi：完 全 胜 利
 養家活口的人才不在乎這些有的沒的
 
 
------
+*****
 
 ####  comet1224  
 ##### 10822#       发表于 2018-4-26 13:49
@@ -23460,7 +23460,7 @@ naomi：完 全 胜 利
 看國家隊保智商......
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10823#       发表于 2018-4-26 13:49
@@ -23469,7 +23469,7 @@ naomi：完 全 胜 利
 五郎，实在看不出黑化的伏笔，就是从他小时候挖，也只能猜测，他可能是个极端不合群的人，所以平时喜欢一个人钓鱼什么的
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10824#       发表于 2018-4-26 13:49
@@ -23487,7 +23487,7 @@ naomi：完 全 胜 利
 但是后面士大夫要强行凑我们也没啥办法
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 10825#       发表于 2018-4-26 13:50
@@ -23502,7 +23502,7 @@ naomi：完 全 胜 利
 感觉你的第一个第二个都算在五郎黑里了。。我只是想回忆下哪些梗用来盖楼的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 10826#       发表于 2018-4-26 13:50
@@ -23517,7 +23517,7 @@ naomi：完 全 胜 利
 人家才开了一次天眼,就能算low了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？，怎么不说他前面多次调节气氛，给出合理建议的功劳，当然如果要想激化矛盾056是最合适的死亡人选（和配对无关）
 
 
------
+*****
 
 ####  江风改二  
 ##### 10827#       发表于 2018-4-26 13:51
@@ -23531,7 +23531,7 @@ naomi：完 全 胜 利
 390喜欢成熟的男人
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10828#       发表于 2018-4-26 13:51
@@ -23542,7 +23542,7 @@ naomi：完 全 胜 利
 讲道理国家队有男2吗？我认为没有，五郎出现次数多但是人设不够和武力值低出彩程度更是太一般，，满设定倒是可以，但是戏份太少太少，9a个性人设都挺吸引眼球，但是出场太晚。这番半年番集数也够多了，看别的机战片男2甚至男3，都没有国家队“男2”时髦值那么低的，真的找不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女2小草莓倒是立起来了，一度还能和02强行党争一番
 
 
------
+*****
 
 ####  步六孤  
 ##### 10829#       发表于 2018-4-26 13:52
@@ -23551,7 +23551,7 @@ naomi：完 全 胜 利
 漫区真的白天疲软吗，这楼刷的贼快<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10830#       发表于 2018-4-26 13:52
@@ -23575,7 +23575,7 @@ naomi：完 全 胜 利
 我感覺阿爾法X莓會紅喔
 
 
------
+*****
 
 ####  lanhao  
 ##### 10831#       发表于 2018-4-26 13:52
@@ -23586,7 +23586,7 @@ naomi：完 全 胜 利
 100前任说
 
 
------
+*****
 
 ####  comet1224  
 ##### 10832#       发表于 2018-4-26 13:53
@@ -23618,7 +23618,7 @@ staff不做啊
 不知道實際去做好不好
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10833#       发表于 2018-4-26 13:54
@@ -23637,7 +23637,7 @@ staff不做啊
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10834#       发表于 2018-4-26 13:54
@@ -23653,7 +23653,7 @@ staff不做啊
 390和666则是“感觉对方没了我，完全不能好好地活下去啊”，给了我这种感觉
 
 
------
+*****
 
 ####  五更伪境  
 ##### 10835#       发表于 2018-4-26 13:54
@@ -23665,7 +23665,7 @@ staff不做啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是放特番预告吧，现在放16预告可能会把人憋死
 
 
------
+*****
 
 ####  comet1224  
 ##### 10836#       发表于 2018-4-26 13:54
@@ -23691,7 +23691,7 @@ staff不做啊
 不知道怎麼讓056活起來
 
 
------
+*****
 
 ####  lanhao  
 ##### 10837#       发表于 2018-4-26 13:55
@@ -23706,7 +23706,7 @@ staff不做啊
 ？？？这叫共同点吗
 
 
------
+*****
 
 ####  步六孤  
 ##### 10838#       发表于 2018-4-26 13:55
@@ -23715,7 +23715,7 @@ staff不做啊
 戏份和出场时间不决定是否男二啊，你看渚薰现在不是坐稳eva男二
 
 
------
+*****
 
 ####  elflie  
 ##### 10839#       发表于 2018-4-26 13:55
@@ -23725,7 +23725,7 @@ staff不做啊
 转了半天还是转回五郎身上来了，果不其然周四死五郎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10840#       发表于 2018-4-26 13:56
@@ -23737,7 +23737,7 @@ staff不做啊
 你拆你妈呢 锦织 他要真做出这种剧情 我第一个替216观众骂他
 
 
------
+*****
 
 ####  natmk  
 ##### 10841#       发表于 2018-4-26 13:56
@@ -23746,7 +23746,7 @@ staff不做啊
 猜想一下 196的名字是小草莓取的
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10842#       发表于 2018-4-26 13:56
@@ -23758,7 +23758,7 @@ staff不做啊
 我好想被憋死啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10843#       发表于 2018-4-26 13:57
@@ -23770,7 +23770,7 @@ staff不做啊
 相似点吧，单相思的苦恼<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10844#       发表于 2018-4-26 13:58
@@ -23791,7 +23791,7 @@ staff不做啊
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10845#       发表于 2018-4-26 13:59
@@ -23809,7 +23809,7 @@ staff不做啊
 于公于私 都不可能作为对立的主力  缺偏偏是   
 
 
------
+*****
 
 ####  comet1224  
 ##### 10846#       发表于 2018-4-26 13:59
@@ -23839,7 +23839,7 @@ staff不做啊
 莓藥醫了
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10847#       发表于 2018-4-26 13:59
@@ -23856,7 +23856,7 @@ staff不做啊
 第七集的五郎还不知道"喜欢"这种情感，才会开心又痛苦来形容，草莓那句根本没什么深意，你要说两人对男女间感情都抱消极情绪我是不认同的。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10848#       发表于 2018-4-26 14:00
@@ -23865,7 +23865,7 @@ staff不做啊
 我还想过14话过后，做了一番思考后的广霸道总裁归来，结果还是软软的，黑化，在这片感觉不存在的，最多就是腹黑<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10849#       发表于 2018-4-26 14:00
@@ -23883,7 +23883,7 @@ staff不做啊
 九除以二還能拆四次?
 
 
------
+*****
 
 ####  mumubear  
 ##### 10850#       发表于 2018-4-26 14:01
@@ -23898,7 +23898,7 @@ staff不做啊
 国十五才算洗白。
 
 
------
+*****
 
 ####  lanhao  
 ##### 10851#       发表于 2018-4-26 14:03
@@ -23912,7 +23912,7 @@ staff不做啊
 拆没事 再玩一遍 是要表示什么 我比之前还更爱你吗？ 然后更爱之力一枪穿爆 ape老家
 
 
------
+*****
 
 ####  comet1224  
 ##### 10852#       发表于 2018-4-26 14:04
@@ -23936,7 +23936,7 @@ staff不做啊
 畢竟老頭子們至今還沒發揮作用
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10853#       发表于 2018-4-26 14:05
@@ -23951,7 +23951,7 @@ staff不做啊
 第六集开头把草莓推给广，怎么解释，更深层次的腹黑？
 
 
------
+*****
 
 ####  comet1224  
 ##### 10854#       发表于 2018-4-26 14:05
@@ -23972,7 +23972,7 @@ staff不做啊
 就是拿來拖時間......有這時間拖不如交代一下伏筆
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10855#       发表于 2018-4-26 14:06
@@ -23981,7 +23981,7 @@ staff不做啊
 除非用死亡，千万不要再拆0216了   我已经不想看见我莓再做一次垫脚石
 
 
------
+*****
 
 ####  icebearQAQ  
 ##### 10856#       发表于 2018-4-26 14:06
@@ -23993,7 +23993,7 @@ staff不做啊
 这个不是已经被若林公开处刑了嘛
 
 
------
+*****
 
 ####  Ketestrait  
 ##### 10857#       发表于 2018-4-26 14:06
@@ -24005,7 +24005,7 @@ staff不做啊
 因为五郎一路操作都让泥潭想看的人渣本愿式贵乱没办法上演，以泥潭为标准，五郎就low了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10858#       发表于 2018-4-26 14:06
@@ -24018,7 +24018,7 @@ staff不做啊
 莓“是吗，我也能够，像这样子，对02吗...”
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10859#       发表于 2018-4-26 14:07
@@ -24034,7 +24034,7 @@ staff不做啊
 假如13队队内冲突更激烈一些，这样的角色可能会在一次次调节冲突时被逼出变化（或者在某次战斗中被送掉），看16集之后吧。
 
 
------
+*****
 
 ####  mumubear  
 ##### 10860#       发表于 2018-4-26 14:08
@@ -24047,7 +24047,7 @@ staff不做啊
 吾郎在圣人幼广前从没那么优越。
 
 
------
+*****
 
 ####  lanhao  
 ##### 10861#       发表于 2018-4-26 14:08
@@ -24056,7 +24056,7 @@ staff不做啊
 12-15分开至少是有意义的 两个人认清自我 认识自身都离不开对方 再来一出 02自责自己会让广变龙 自己独自牺牲 分开。观众都会疯的
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10862#       发表于 2018-4-26 14:10
@@ -24071,7 +24071,7 @@ staff不做啊
 士大夫怎么可能敢这么玩
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 10863#       发表于 2018-4-26 14:10
@@ -24086,7 +24086,7 @@ staff不做啊
 因为第8话根本就是闹剧而不是矛盾,你看02完全是过来玩的心态参加闹剧,,你看满总理一副同样招牌的"你们好无聊"的表情围观,能真正称呼矛盾的只有太对心满搭档不满以及从回到童年之地后02和小队之间的大量铺垫
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 10864#       发表于 2018-4-26 14:11
@@ -24095,7 +24095,7 @@ staff不做啊
 五郎如果要有变化，伏笔明显给的不够，比如当他一次次帮忙圆场的时候，其他人欢声笑语和解时，切给他一个面无表情，若有所思的镜头
 
 
------
+*****
 
 ####  弃疗废宅  
 ##### 10865#       发表于 2018-4-26 14:11
@@ -24121,7 +24121,7 @@ staff不做啊
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 10866#       发表于 2018-4-26 14:13
@@ -24135,7 +24135,7 @@ staff不做啊
 所以我觉得这种既得罪观众又得罪圆盘的方式 锦织还是不会做的
 
 
------
+*****
 
 ####  soulife7  
 ##### 10867#       发表于 2018-4-26 14:13
@@ -24147,7 +24147,7 @@ staff不做啊
 所以我说分是不可能的，要么两人离队去寻找世界，要么被ape或者叫龙等级压制一起受苦<img src="https://static.saraba1st.com/image/smiley/face2017/157.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10868#       发表于 2018-4-26 14:13
@@ -24162,7 +24162,7 @@ staff不做啊
 当时国8出来我就隐隐觉得不对    国9就直接给我当头一棒
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 10869#       发表于 2018-4-26 14:14
@@ -24174,7 +24174,7 @@ staff不做啊
 056如果是那种心机深沉一石三鸟的那种类型,那一定符合泥谭胃口<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10870#       发表于 2018-4-26 14:15
@@ -24185,7 +24185,7 @@ staff不做啊
 不行，这不比翼鸟
 
 
------
+*****
 
 ####  comet1224  
 ##### 10871#       发表于 2018-4-26 14:15
@@ -24209,7 +24209,7 @@ staff不做啊
 不要浪費人設阿阿
 
 
------
+*****
 
 ####  西岚不是花  
 ##### 10872#       发表于 2018-4-26 14:16
@@ -24224,7 +24224,7 @@ staff不做啊
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10873#       发表于 2018-4-26 14:17
@@ -24250,7 +24250,7 @@ staff不做啊
 查看全部评分
 
 
------
+*****
 
 ####  lanhao  
 ##### 10874#       发表于 2018-4-26 14:18
@@ -24263,7 +24263,7 @@ staff不做啊
 其实他说的任性是画了ed2 为了ed2做出第七集出来
 
 
------
+*****
 
 ####  Code:703  
 ##### 10875#       发表于 2018-4-26 14:21
@@ -24278,7 +24278,7 @@ staff不做啊
 390喜欢温柔的有大人味的大哥哥。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10876#       发表于 2018-4-26 14:25
@@ -24287,7 +24287,7 @@ staff不做啊
 五郎要是化身腹黑变态眼眼镜立刻+2
 
 
------
+*****
 
 ####  80proof  
 ##### 10877#       发表于 2018-4-26 14:25
@@ -24300,7 +24300,7 @@ staff不做啊
 私藏的偶像不算偶像<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  pepase  
 ##### 10878#       发表于 2018-4-26 14:26
@@ -24311,7 +24311,7 @@ staff不做啊
 后面翻盘也改不了15集的屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10879#       发表于 2018-4-26 14:32
@@ -24331,7 +24331,7 @@ staff不做啊
 2018-4-26 14:32 上传
 
 
------
+*****
 
 ####  lanhao  
 ##### 10880#       发表于 2018-4-26 14:33
@@ -24342,7 +24342,7 @@ ll腐制服还行</blockquote>
 [@comet1224](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=491215)
 
 
------
+*****
 
 ####  comet1224  
 ##### 10881#       发表于 2018-4-26 14:35
@@ -24360,7 +24360,7 @@ ll腐制服还行</blockquote>
 該不是智商機的
 
 
------
+*****
 
 ####  pepase  
 ##### 10882#       发表于 2018-4-26 14:35
@@ -24374,7 +24374,7 @@ ll腐制服还行</blockquote>
 她好像本来设定就是半人半龙（鬼）啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10883#       发表于 2018-4-26 14:35
@@ -24393,7 +24393,7 @@ ll腐制服还行</blockquote>
 我很好奇，第一话死掉的那个直美官方设定是有什么病
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10884#       发表于 2018-4-26 14:36
@@ -24411,7 +24411,7 @@ ll腐制服还行</blockquote>
 交换制服
 
 
------
+*****
 
 ####  comet1224  
 ##### 10885#       发表于 2018-4-26 14:37
@@ -24429,7 +24429,7 @@ ll腐制服还行</blockquote>
 右邊那隻我看了好多本子!
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10886#       发表于 2018-4-26 14:37
@@ -24438,7 +24438,7 @@ ll腐制服还行</blockquote>
 接下来请9a换斯雷因制服
 
 
------
+*****
 
 ####  comet1224  
 ##### 10887#       发表于 2018-4-26 14:38
@@ -24462,7 +24462,7 @@ AZ智商機那兩隻的共通點是都是勞動模範
 智商機的制服居然沒有國家隊好看?!
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10888#       发表于 2018-4-26 14:39
@@ -24471,7 +24471,7 @@ AZ智商機那兩隻的共通點是都是勞動模範
 国15病栋现在怕是泥潭第一批判型高楼了吧
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10889#       发表于 2018-4-26 14:39
@@ -24483,7 +24483,7 @@ AZ智商機那兩隻的共通點是都是勞動模範
 只是活跃的人不满比较多而已，看投票 +2的还是碾压
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10890#       发表于 2018-4-26 14:39
@@ -24496,7 +24496,7 @@ AZ智商機那兩隻的共通點是都是勞動模範
 你国没有这个男配担当
 
 
------
+*****
 
 ####  mumubear  
 ##### 10891#       发表于 2018-4-26 14:40
@@ -24509,7 +24509,7 @@ AZ智商機那兩隻的共通點是都是勞動模範
 你国卖得是女角色
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10892#       发表于 2018-4-26 14:42
@@ -24523,7 +24523,7 @@ AZ智商機那兩隻的共通點是都是勞動模範
 AZ也有公主（虽然最后很SHI就是了）
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10893#       发表于 2018-4-26 14:43
@@ -24552,7 +24552,7 @@ AZ也有公主（虽然最后很SHI就是了）
 2018-4-26 14:41 上传
 
 
------
+*****
 
 ####  lanhao  
 ##### 10894#       发表于 2018-4-26 14:43
@@ -24565,7 +24565,7 @@ AZ也有公主（虽然最后很SHI就是了）</blockquote>
 az是姐姐
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10895#       发表于 2018-4-26 14:43
@@ -24578,7 +24578,7 @@ az是姐姐
 我满不服....
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10896#       发表于 2018-4-26 14:43
@@ -24593,7 +24593,7 @@ az是姐姐
 日本那边广腐好像蛮有市场的…
 
 
------
+*****
 
 ####  comet1224  
 ##### 10897#       发表于 2018-4-26 14:44
@@ -24608,7 +24608,7 @@ az是姐姐
 她就算物種直接叫龍女王我也喜歡的
 
 
------
+*****
 
 ####  80proof  
 ##### 10898#       发表于 2018-4-26 14:45
@@ -24617,7 +24617,7 @@ az是姐姐
 革命机我都看下去了 我还有什么是看不下去的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10899#       发表于 2018-4-26 14:45
@@ -24633,7 +24633,7 @@ az是姐姐
 戏份太少了
 
 
------
+*****
 
 ####  comet1224  
 ##### 10900#       发表于 2018-4-26 14:45
@@ -24659,7 +24659,7 @@ az是姐姐
 你要國家隊的人誰出來被吸脖子SM
 
 
------
+*****
 
 ####  80proof  
 ##### 10901#       发表于 2018-4-26 14:45
@@ -24671,7 +24671,7 @@ az是姐姐
 难道不是国9劝退了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10902#       发表于 2018-4-26 14:46
@@ -24689,7 +24689,7 @@ az是姐姐
 我被泥潭感化<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10903#       发表于 2018-4-26 14:47
@@ -24704,7 +24704,7 @@ az是姐姐
 下面那綠茶婊我沒看到
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10904#       发表于 2018-4-26 14:47
@@ -24716,7 +24716,7 @@ az是姐姐
 可能因为这对有点乙女游戏风
 
 
------
+*****
 
 ####  comet1224  
 ##### 10905#       发表于 2018-4-26 14:48
@@ -24735,7 +24735,7 @@ az是姐姐
 <img src="https://wx3.sinaimg.cn/mw690/77cfe7a1gy1fqpyt9iglij20go0nldn3.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10906#       发表于 2018-4-26 14:49
@@ -24750,7 +24750,7 @@ az是姐姐
 看到9α感到浑身不适。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10907#       发表于 2018-4-26 14:49
@@ -24768,7 +24768,7 @@ az是姐姐
 我他媽看不過啊胖子明明是個好人
 
 
------
+*****
 
 ####  haradatos  
 ##### 10908#       发表于 2018-4-26 14:49
@@ -24782,7 +24782,7 @@ az是姐姐
 你们都低估了五郎的魅力，像1556就有不少小姐姐喜欢
 
 
------
+*****
 
 ####  lanhao  
 ##### 10909#       发表于 2018-4-26 14:50
@@ -24791,7 +24791,7 @@ az是姐姐
 看楼内怪象群生 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 锦织哥哥做的的确是群像剧 不过不仅配角要脑补 主角也要脑补
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10910#       发表于 2018-4-26 14:51
@@ -24806,7 +24806,7 @@ az是姐姐
 肥猪没有人权啊，减个肥再说，我支持心寻找更好的
 
 
------
+*****
 
 ####  80proof  
 ##### 10911#       发表于 2018-4-26 14:51
@@ -24821,7 +24821,7 @@ az是姐姐
 国鱼bd挺不住了<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 10912#       发表于 2018-4-26 14:52
@@ -24833,7 +24833,7 @@ az是姐姐
 15不就是节奏差了，非要说屎，我是搞不懂。看看你们，只能嘴上爽爽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10913#       发表于 2018-4-26 14:52
@@ -24845,7 +24845,7 @@ az是姐姐
 傳教大失敗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10914#       发表于 2018-4-26 14:52
@@ -24860,7 +24860,7 @@ az是姐姐
 一句话“肥是原罪”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10915#       发表于 2018-4-26 14:52
@@ -24885,7 +24885,7 @@ az是姐姐
 我立刻感嘆業界藥丸
 
 
------
+*****
 
 ####  comet1224  
 ##### 10916#       发表于 2018-4-26 14:53
@@ -24909,7 +24909,7 @@ az是姐姐
 道德上有虧的 唉
 
 
------
+*****
 
 ####  lanhao  
 ##### 10917#       发表于 2018-4-26 14:53
@@ -24923,7 +24923,7 @@ az是姐姐
 老姐 这还想破壁呐  破壁要卖多少知道吗
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10918#       发表于 2018-4-26 14:54
@@ -24941,7 +24941,7 @@ az是姐姐
 国家队两巨头都是女主配置....
 
 
------
+*****
 
 ####  comet1224  
 ##### 10919#       发表于 2018-4-26 14:54
@@ -24953,7 +24953,7 @@ az是姐姐
 不是三萬多嗎?
 
 
------
+*****
 
 ####  comet1224  
 ##### 10920#       发表于 2018-4-26 14:55
@@ -24975,7 +24975,7 @@ az是姐姐
 那就是因為真的太傻逼了
 
 
------
+*****
 
 ####  love4aids  
 ##### 10921#       发表于 2018-4-26 14:55
@@ -24989,7 +24989,7 @@ az是姐姐
 喜欢小奶狗的男人我是想象不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 10922#       发表于 2018-4-26 14:55
@@ -25007,7 +25007,7 @@ az是姐姐
 看最近的行情，今年年霸大概都难破壁了，更别说最近几年沾上萝卜的连破万的都没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10923#       发表于 2018-4-26 14:56
@@ -25018,7 +25018,7 @@ az是姐姐
 那你知道国现在销量的情形吗
 
 
------
+*****
 
 ####  comet1224  
 ##### 10924#       发表于 2018-4-26 14:56
@@ -25042,7 +25042,7 @@ az是姐姐
 說不定是深櫃
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10925#       发表于 2018-4-26 14:56
@@ -25062,7 +25062,7 @@ az是姐姐
 粉556到上脑的表现
 
 
------
+*****
 
 ####  Code:703  
 ##### 10926#       发表于 2018-4-26 14:57
@@ -25077,7 +25077,7 @@ az是姐姐
 326早就出柜了，和广主席约定一起上机你忘了？
 
 
------
+*****
 
 ####  comet1224  
 ##### 10927#       发表于 2018-4-26 14:57
@@ -25092,7 +25092,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 所以是泥潭喜歡綠茶婊還是肥宅喜歡綠茶婊還是所有人都喜歡綠茶婊還是只有我不喜歡綠茶婊
 
 
------
+*****
 
 ####  love4aids  
 ##### 10928#       发表于 2018-4-26 14:57
@@ -25101,7 +25101,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 所以我默认满厨是女性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  haradatos  
 ##### 10929#       发表于 2018-4-26 14:57
@@ -25119,7 +25119,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 而国家队，宣传图就主打的02了。。。
 
 
------
+*****
 
 ####  80proof  
 ##### 10930#       发表于 2018-4-26 14:57
@@ -25140,7 +25140,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 你是不是误会了国鱼什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 10931#       发表于 2018-4-26 14:58
@@ -25152,7 +25152,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 这几年萝卜的记录大概是马三角一卷初动9999<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10932#       发表于 2018-4-26 14:58
@@ -25163,7 +25163,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 广姥爷可是被lof女性钦定的小奶狗啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10933#       发表于 2018-4-26 14:58
@@ -25175,7 +25175,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 不到我们CG一半好像....
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10934#       发表于 2018-4-26 14:59
@@ -25190,7 +25190,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html
 喷了
 
 
------
+*****
 
 ####  mumubear  
 ##### 10935#       发表于 2018-4-26 14:59
@@ -25206,7 +25206,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 556做事不上路千万别忘了
 
 
------
+*****
 
 ####  haradatos  
 ##### 10936#       发表于 2018-4-26 15:00
@@ -25218,7 +25218,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 可是女人就是普遍喜欢小奶狗，像腐女大多就是喜欢受的一方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 10937#       发表于 2018-4-26 15:01
@@ -25249,7 +25249,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 除了莓莓哭还能说什么好……
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10938#       发表于 2018-4-26 15:01
@@ -25261,7 +25261,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 至少是个b
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10939#       发表于 2018-4-26 15:01
@@ -25280,7 +25280,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 你一定可以理解的吧
 
 
------
+*****
 
 ####  love4aids  
 ##### 10940#       发表于 2018-4-26 15:01
@@ -25291,7 +25291,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 所以我就默认满厨女性啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10941#       发表于 2018-4-26 15:02
@@ -25309,7 +25309,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 还特别上路
 
 
------
+*****
 
 ####  hl8243  
 ##### 10942#       发表于 2018-4-26 15:03
@@ -25327,7 +25327,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  comet1224  
 ##### 10943#       发表于 2018-4-26 15:03
@@ -25346,7 +25346,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 我被你們搞得好怕<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 10944#       发表于 2018-4-26 15:03
@@ -25355,7 +25355,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 喜欢心的妹子多了去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10945#       发表于 2018-4-26 15:03
@@ -25373,7 +25373,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  lanhao  
 ##### 10946#       发表于 2018-4-26 15:04
@@ -25388,7 +25388,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 1556其实很多 都是在15标签上吧
 
 
------
+*****
 
 ####  comet1224  
 ##### 10947#       发表于 2018-4-26 15:04
@@ -25410,7 +25410,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 比016打斷施法還lowB
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10948#       发表于 2018-4-26 15:04
@@ -25429,7 +25429,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 11话之前556对谁都是这个态度
 
 
------
+*****
 
 ####  hl8243  
 ##### 10949#       发表于 2018-4-26 15:04
@@ -25448,7 +25448,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  comet1224  
 ##### 10950#       发表于 2018-4-26 15:05
@@ -25470,7 +25470,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 這數據好慫
 
 
------
+*****
 
 ####  novid  
 ##### 10951#       发表于 2018-4-26 15:05
@@ -25479,7 +25479,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 连破壁都没有喷了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 10952#       发表于 2018-4-26 15:05
@@ -25494,7 +25494,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 “大家不要吵架了，对数值有影响”
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10953#       发表于 2018-4-26 15:05
@@ -25514,7 +25514,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 也不妨碍您喜欢是不是..
 
 
------
+*****
 
 ####  comet1224  
 ##### 10954#       发表于 2018-4-26 15:06
@@ -25529,7 +25529,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 士大夫到底為什麼敢給觀眾餵屎啊
 
 
------
+*****
 
 ####  comet1224  
 ##### 10955#       发表于 2018-4-26 15:07
@@ -25544,7 +25544,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 所以說還在櫃子裡莓出來<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10956#       发表于 2018-4-26 15:07
@@ -25558,7 +25558,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 爆死不存在的 卖版权就能保本了 只是销量配不上野心罢了
 
 
------
+*****
 
 ####  comet1224  
 ##### 10957#       发表于 2018-4-26 15:07
@@ -25581,7 +25581,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 有種危機感
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10958#       发表于 2018-4-26 15:09
@@ -25596,7 +25596,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 昨天我还说了“国鲲国鲲的叫我还以为销量能和我们CG比一比”....被群嘲
 
 
------
+*****
 
 ####  comet1224  
 ##### 10959#       发表于 2018-4-26 15:09
@@ -25617,7 +25617,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 也不怕被人噴......這一部很明顯對不起觀眾來著
 
 
------
+*****
 
 ####  haradatos  
 ##### 10960#       发表于 2018-4-26 15:09
@@ -25632,7 +25632,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 不是女人爱绿茶婊，是胖子恰好踩中的女性的雷点，要是把胖子换成五郎，心肯定被小姐姐喷死
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 10961#       发表于 2018-4-26 15:09
@@ -25647,7 +25647,7 @@ https://bbs.saraba1st.com/2b/thread-1635850-1-1.html</blockquote>
 那你也要知道投入有多少吧。
 
 
------
+*****
 
 ####  comet1224  
 ##### 10962#       发表于 2018-4-26 15:10
@@ -25673,7 +25673,7 @@ P站大手開始上班了
 我要去試乘滿座騎<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10963#       发表于 2018-4-26 15:11
@@ -25688,7 +25688,7 @@ P站大手開始上班了
 這個沒有實證
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10964#       发表于 2018-4-26 15:11
@@ -25703,7 +25703,7 @@ P站大手開始上班了
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">哪有对不起啊 。。各处投票都表明  我们专楼的才是小众
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10965#       发表于 2018-4-26 15:11
@@ -25721,7 +25721,7 @@ P站大手開始上班了
 事实上也的确如此不是嘛...
 
 
------
+*****
 
 ####  lanhao  
 ##### 10966#       发表于 2018-4-26 15:12
@@ -25730,7 +25730,7 @@ P站大手開始上班了
 感觉破556真的不是梦啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 10967#       发表于 2018-4-26 15:12
@@ -25751,7 +25751,7 @@ P站大手開始上班了
 以前看出包的時候古手川的本子男主角也都是梨斗啊
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10968#       发表于 2018-4-26 15:13
@@ -25769,7 +25769,7 @@ P站大手開始上班了
 代 入 主 角
 
 
------
+*****
 
 ####  comet1224  
 ##### 10969#       发表于 2018-4-26 15:13
@@ -25787,7 +25787,7 @@ P站大手開始上班了
 要相信自己啊 泥潭是扭曲了點 閱片不成問題
 
 
------
+*****
 
 ####  80proof  
 ##### 10970#       发表于 2018-4-26 15:13
@@ -25806,7 +25806,7 @@ P站大手開始上班了
 所以，戏剧化也是必要的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 10971#       发表于 2018-4-26 15:14
@@ -25815,7 +25815,7 @@ P站大手開始上班了
 今天390楼保底 Best girl miku！
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 10972#       发表于 2018-4-26 15:14
@@ -25826,7 +25826,7 @@ P站大手開始上班了
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10973#       发表于 2018-4-26 15:15
@@ -25840,7 +25840,7 @@ P站大手開始上班了
 小草莓不也被0216党喷么？参见鬼佬们
 
 
------
+*****
 
 ####  comet1224  
 ##### 10974#       发表于 2018-4-26 15:16
@@ -25861,7 +25861,7 @@ P站大手開始上班了
 會到很花錢嗎
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10975#       发表于 2018-4-26 15:16
@@ -25879,7 +25879,7 @@ P站大手開始上班了
 之前是在下带的头...然而最近一周发觉自己的恶意居然输了，自己居然扭曲不过楼里的群众们了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白叹夜  
 ##### 10976#       发表于 2018-4-26 15:16
@@ -25894,7 +25894,7 @@ P站大手開始上班了
 是啦，喷草莓的都是茶壶状的大妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 10977#       发表于 2018-4-26 15:17
@@ -25908,7 +25908,7 @@ P站大手開始上班了
 ？？？
 
 
------
+*****
 
 ####  isummon  
 ##### 10978#       发表于 2018-4-26 15:17
@@ -25923,7 +25923,7 @@ P站大手開始上班了
 泥潭从国7就开始跟这个人了，存在感当然要强上不少……
 
 
------
+*****
 
 ####  comet1224  
 ##### 10979#       发表于 2018-4-26 15:17
@@ -25944,7 +25944,7 @@ P站大手開始上班了
 後來想想居然同情了
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 10980#       发表于 2018-4-26 15:18
@@ -25962,7 +25962,7 @@ P站大手開始上班了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  comet1224  
 ##### 10981#       发表于 2018-4-26 15:18
@@ -25983,7 +25983,7 @@ P站大手開始上班了
 不過這樣也比較合乎原作發展吧
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10982#       发表于 2018-4-26 15:18
@@ -25997,7 +25997,7 @@ P站大手開始上班了
 应该比某紫还是贵点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新年才醒  
 ##### 10983#       发表于 2018-4-26 15:19
@@ -26012,7 +26012,7 @@ P站大手開始上班了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大家都被士大夫打脸疼啊。自然就放下矜持发泄恶意了
 
 
------
+*****
 
 ####  comet1224  
 ##### 10984#       发表于 2018-4-26 15:19
@@ -26030,7 +26030,7 @@ P站大手開始上班了
 草莓因為綠了五郎而被噴這情景我基本沒見過
 
 
------
+*****
 
 ####  lanhao  
 ##### 10985#       发表于 2018-4-26 15:20
@@ -26044,7 +26044,7 @@ P站大手開始上班了
 ？？？14集怎么就人设崩坏了
 
 
------
+*****
 
 ####  comet1224  
 ##### 10986#       发表于 2018-4-26 15:20
@@ -26062,7 +26062,7 @@ P站大手開始上班了
 演出還被作畫要求給帶壞了
 
 
------
+*****
 
 ####  haradatos  
 ##### 10987#       发表于 2018-4-26 15:21
@@ -26077,7 +26077,7 @@ P站大手開始上班了
 上两周的小草莓不是被喷爆了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  iceskey  
 ##### 10988#       发表于 2018-4-26 15:21
@@ -26099,7 +26099,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 这个战斗如果叫用脚做，多少家小作坊该切腹啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 10989#       发表于 2018-4-26 15:22
@@ -26110,7 +26110,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 说到成本有人能来个详解吗？我就知道宣发是个大头，制作成本主要浮动在原画这块。然后原画是按卡结算，动画是按张数。但具体还不是很清楚<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10990#       发表于 2018-4-26 15:22
@@ -26121,7 +26121,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 草莓十四集不上，再也没机会上了，彻底崩坏。
 
 
------
+*****
 
 ####  comet1224  
 ##### 10991#       发表于 2018-4-26 15:22
@@ -26148,7 +26148,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 想想胃疼
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 10992#       发表于 2018-4-26 15:22
@@ -26165,7 +26165,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 泥潭每次说绿五郎都是调侃性质
 
 
------
+*****
 
 ####  skives  
 ##### 10993#       发表于 2018-4-26 15:22
@@ -26174,7 +26174,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 小草莓把两次“真是太好了”删了就行了，这两句台词太傻逼了。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 10994#       发表于 2018-4-26 15:23
@@ -26199,7 +26199,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 2018-4-26 15:23 上传
 
 
------
+*****
 
 ####  comet1224  
 ##### 10995#       发表于 2018-4-26 15:23
@@ -26217,7 +26217,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 但我覺得隊長歸隊長公器私用還說要整隊不出擊真的是
 
 
------
+*****
 
 ####  lanhao  
 ##### 10996#       发表于 2018-4-26 15:24
@@ -26228,7 +26228,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 ？？？14话专楼谈得够多了 怀疑我们看得不是同一个14话
 
 
------
+*****
 
 ####  Mafise  
 ##### 10997#       发表于 2018-4-26 15:24
@@ -26242,7 +26242,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 — from OnePlus ONEPLUS A3010, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  novid  
 ##### 10998#       发表于 2018-4-26 15:24
@@ -26254,7 +26254,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 哟嘎哒正体现了小草莓对广不为占有的真爱属性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  mumubear  
 ##### 10999#       发表于 2018-4-26 15:24
@@ -26269,7 +26269,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 现在只能加1
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11000#       发表于 2018-4-26 15:25
@@ -26283,7 +26283,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 官方说明里，龙和叫龙不是一回事儿
 
 
------
+*****
 
 ####  鑢七实  
 ##### 11001#       发表于 2018-4-26 15:25
@@ -26294,7 +26294,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 15和56什么关系？没有关系啊。
 
 
------
+*****
 
 ####  novid  
 ##### 11002#       发表于 2018-4-26 15:25
@@ -26308,7 +26308,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 所以说前半净挖坑后半才解密就是这样...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白叹夜  
 ##### 11003#       发表于 2018-4-26 15:25
@@ -26325,7 +26325,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 顺带一提这边黑心的理由集中在两次答应了肥宅这件事上
 
 
------
+*****
 
 ####  comet1224  
 ##### 11004#       发表于 2018-4-26 15:25
@@ -26343,7 +26343,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 但如果連02粉都扭曲的話只能說明是官逼民反
 
 
------
+*****
 
 ####  iceskey  
 ##### 11005#       发表于 2018-4-26 15:25
@@ -26364,7 +26364,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 成本参考，原画被压榨的非常惨，实际制作成本中，原画的工资占比相当低，一卡layout+原画也就4000
 
 
------
+*****
 
 ####  lanhao  
 ##### 11006#       发表于 2018-4-26 15:26
@@ -26376,7 +26376,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 所以furry厨才会对那种长了个尾巴长了个耳朵的人外character讨厌啊
 
 
------
+*****
 
 ####  新年才醒  
 ##### 11007#       发表于 2018-4-26 15:26
@@ -26388,7 +26388,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 +1   士大夫的就是用这么直白傻逼的用词，宣布我莓彻底败了呀
 
 
------
+*****
 
 ####  novid  
 ##### 11008#       发表于 2018-4-26 15:26
@@ -26400,7 +26400,7 @@ ditf至少作画上有很多惊艳的卡，整体水平比绝大多数片高
 ditf里有龙这种东西？
 
 
------
+*****
 
 ####  comet1224  
 ##### 11009#       发表于 2018-4-26 15:26
@@ -26421,7 +26421,7 @@ ditf里有龙这种东西？
 我不能接受的還是只有556那種前面還跟你笑著約定後面就翻臉的作風
 
 
------
+*****
 
 ####  comet1224  
 ##### 11010#       发表于 2018-4-26 15:27
@@ -26447,7 +26447,7 @@ ditf里有龙这种东西？
 但不是每一集都很好
 
 
------
+*****
 
 ####  comet1224  
 ##### 11011#       发表于 2018-4-26 15:29
@@ -26463,7 +26463,7 @@ ditf里有龙这种东西？
 可以的
 
 
------
+*****
 
 ####  novid  
 ##### 11012#       发表于 2018-4-26 15:29
@@ -26477,7 +26477,7 @@ ditf里有龙这种东西？
 考虑到请的许多原画已经是作监的级别，并且ditf一话似乎也不止300卡，这个成本应该有比较大的上升吧
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 11013#       发表于 2018-4-26 15:29
@@ -26494,7 +26494,7 @@ ditf里有龙这种东西？
 不过泥潭表示只会吃的肥肥的男孩子没有人权<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11014#       发表于 2018-4-26 15:29
@@ -26522,7 +26522,7 @@ ditf里有龙这种东西？
 2018-4-26 15:29 上传
 
 
------
+*****
 
 ####  comet1224  
 ##### 11015#       发表于 2018-4-26 15:30
@@ -26543,7 +26543,7 @@ ditf里有龙这种东西？
 我更感覺你真愛
 
 
------
+*****
 
 ####  80proof  
 ##### 11016#       发表于 2018-4-26 15:31
@@ -26552,7 +26552,7 @@ ditf里有龙这种东西？
 2ch还好吧 夸556的我也看见不少<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  comet1224  
 ##### 11017#       发表于 2018-4-26 15:31
@@ -26575,7 +26575,7 @@ ditf里有龙这种东西？
 還是說該吃藥的是我?
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11018#       发表于 2018-4-26 15:32
@@ -26593,7 +26593,7 @@ ditf里有龙这种东西？
 主线不要都可以。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 11019#       发表于 2018-4-26 15:32
@@ -26608,7 +26608,7 @@ ditf里有龙这种东西？
 lofter上有5616的同人，看过……
 
 
------
+*****
 
 ####  iceskey  
 ##### 11020#       发表于 2018-4-26 15:33
@@ -26627,7 +26627,7 @@ lofter上有5616的同人，看过……
 ditf成本比这个例子高是应该的，但是高的应该不会太多，原画就算再贵也难超过三分之一吧
 
 
------
+*****
 
 ####  lanhao  
 ##### 11021#       发表于 2018-4-26 15:33
@@ -26641,7 +26641,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 我求求你 给国家队销量一个面子吧
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 11022#       发表于 2018-4-26 15:34
@@ -26657,7 +26657,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 连过两个发卡弯还能不出车道的都是牛人，濑古浩司显然不成。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11023#       发表于 2018-4-26 15:34
@@ -26678,7 +26678,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 这一话莓是被半逼半洗脑的。
 
 
------
+*****
 
 ####  lanhao  
 ##### 11024#       发表于 2018-4-26 15:35
@@ -26691,7 +26691,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 1我是觉得一点问题都没的 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11025#       发表于 2018-4-26 15:35
@@ -26705,7 +26705,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 1没问题啊.....
 
 
------
+*****
 
 ####  熊猫roey  
 ##### 11026#       发表于 2018-4-26 15:35
@@ -26717,7 +26717,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11027#       发表于 2018-4-26 15:36
@@ -26729,7 +26729,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 剧情绝壁不是他来定的
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 11028#       发表于 2018-4-26 15:37
@@ -26743,7 +26743,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  lanhao  
 ##### 11029#       发表于 2018-4-26 15:38
@@ -26752,7 +26752,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 从头到14集 莓就没有放弃过广 也没有意识到广对02有着特殊的感情 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  山贼先生  
 ##### 11030#       发表于 2018-4-26 15:39
@@ -26774,7 +26774,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11031#       发表于 2018-4-26 15:40
@@ -26792,7 +26792,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 不花力气写男主女主光烧钱打打打剧情能比银河美少年好多少？
 
 
------
+*****
 
 ####  白叹夜  
 ##### 11032#       发表于 2018-4-26 15:40
@@ -26806,7 +26806,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 第一条完全可以接受而且使得第二条完全无法让我接受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 11033#       发表于 2018-4-26 15:41
@@ -26822,7 +26822,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 2的话，就是过两连发角弯直接飞出去了……
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 11034#       发表于 2018-4-26 15:42
@@ -26838,7 +26838,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 像早年的机器人动画那样，问题发生→机器人登场→打打打→咣当一声爆炸→问题解决，做做这种简单明快的东西也是很好玩的嘛，花钱花得也不多(这不是国鱼第九集吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  白叹夜  
 ##### 11035#       发表于 2018-4-26 15:42
@@ -26853,7 +26853,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 那你是芋艿还是未来啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 11036#       发表于 2018-4-26 15:42
@@ -26862,7 +26862,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 橘麻美跟林友树关系那么好来点给力的啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gcxday  
 ##### 11037#       发表于 2018-4-26 15:43
@@ -26875,7 +26875,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  熊猫roey  
 ##### 11038#       发表于 2018-4-26 15:44
@@ -26893,7 +26893,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  lanhao  
 ##### 11039#       发表于 2018-4-26 15:44
@@ -26902,7 +26902,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 我其实想知道国的宣传要花多少钱 
 
 
------
+*****
 
 ####  Code:703  
 ##### 11040#       发表于 2018-4-26 15:46
@@ -26917,7 +26917,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 吸雄蕊吸饱了处于倦怠状态。
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11041#       发表于 2018-4-26 15:48
@@ -26947,7 +26947,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 根据1~14莓的韧性按照在下的预测，即使广记忆里全是女主，莓也不会认输放弃的....
 
 
------
+*****
 
 ####  gcxday  
 ##### 11042#       发表于 2018-4-26 15:48
@@ -26956,7 +26956,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 话说15话出来前我还是比较关注216的,然后15话出来后216这对太套路了,反而15那边还比较有趣,各种159a 1556都出来了,而且暴打02那段实在太爽了. ..不知有没有216党和我一样
 
 
------
+*****
 
 ####  seele-nerv  
 ##### 11043#       发表于 2018-4-26 15:49
@@ -26965,7 +26965,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 话说ditf被爱奇艺买了大陆版权是不是就已经基本回本了？
 
 
------
+*****
 
 ####  lanhao  
 ##### 11044#       发表于 2018-4-26 15:50
@@ -26978,7 +26978,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 求求你别异想天开了 好好想想1556怎么搞吧 216“他们两真是太好了”
 
 
------
+*****
 
 ####  Code:703  
 ##### 11045#       发表于 2018-4-26 15:50
@@ -26998,7 +26998,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 要不是13都市被拍毁了，大家回去02照样睡阁楼。
 
 
------
+*****
 
 ####  熊猫roey  
 ##### 11046#       发表于 2018-4-26 15:51
@@ -27010,7 +27010,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 11047#       发表于 2018-4-26 15:51
@@ -27022,7 +27022,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 等下一话盖章15的CP.1556驾驶室内高喊表白，你就不会觉得有趣了，话别说太早<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11048#       发表于 2018-4-26 15:52
@@ -27037,7 +27037,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 按照14的惯性来看，这一话我无论如何都想不到“他们俩真是太好了”的...
 
 
------
+*****
 
 ####  mumubear  
 ##### 11049#       发表于 2018-4-26 15:53
@@ -27048,7 +27048,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 下一话很可能是196回。。。
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 11050#       发表于 2018-4-26 15:53
@@ -27063,7 +27063,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 败犬宣传一集高喊两三次了，这还不代表放弃广了？？之后0216之间肯定是插入不进任何人的，王道的展开·
 
 
------
+*****
 
 ####  skives  
 ##### 11051#       发表于 2018-4-26 15:53
@@ -27073,7 +27073,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 214 good！
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 11052#       发表于 2018-4-26 15:54
@@ -27089,7 +27089,7 @@ ditf成本比这个例子高是应该的，但是高的应该不会太多，原�
 PS：<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">看来是我低估莓了，至少看1-13我对莓to广的感情评估还没到这级别。
 
 
------
+*****
 
 ####  gcxday  
 ##### 11053#       发表于 2018-4-26 15:54
@@ -27101,7 +27101,7 @@ PS：<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" refer
 我是乐观派,而且经过az的喂屎之后无所畏惧<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 11054#       发表于 2018-4-26 15:56
@@ -27110,7 +27110,7 @@ PS：<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" refer
 “广龙不龙化都没关系了 只要他们两个在一起就行了” 迫真216厨小草莓
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 11055#       发表于 2018-4-26 15:56
@@ -27126,7 +27126,7 @@ PS：<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" refer
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11056#       发表于 2018-4-26 15:56
@@ -27141,7 +27141,7 @@ AZ喂屎度。。还好吧
 还没龙之塔屎味浓呢
 
 
------
+*****
 
 ####  白叹夜  
 ##### 11057#       发表于 2018-4-26 15:56
@@ -27150,7 +27150,7 @@ AZ喂屎度。。还好吧
 对头，莓厨们也要发扬我莓这种即使被喂了一口屎也要对新人发出衷心祝愿的精神，所以1556在一起“真是太好了"<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  isummon  
 ##### 11058#       发表于 2018-4-26 15:56
@@ -27164,7 +27164,7 @@ AZ喂屎度。。还好吧
 哥们我觉得你已经处在崩溃的边缘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 11059#       发表于 2018-4-26 15:57
@@ -27178,7 +27178,7 @@ AZ喂屎度。。还好吧
 梦回队霸肥仔说？ <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 11060#       发表于 2018-4-26 15:57
@@ -27190,7 +27190,7 @@ AZ喂屎度。。还好吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  gcxday  
 ##### 11061#       发表于 2018-4-26 15:57
@@ -27205,7 +27205,7 @@ AZ喂屎度。。还好吧
 你看我id注册时间就知道了,我当时刚入宅啊,而且还是个斯雷因无脑厨
 
 
------
+*****
 
 ####  Code:703  
 ##### 11062#       发表于 2018-4-26 15:58
@@ -27217,7 +27217,7 @@ AZ喂屎度。。还好吧
 织锦哥哥：秘技！repetition side step!
 
 
------
+*****
 
 ####  新年才醒  
 ##### 11063#       发表于 2018-4-26 15:58
@@ -27235,7 +27235,7 @@ AZ喂屎度。。还好吧
 连个广的正面拒绝都没有   我莓就在片尾给个败犬祝福  连满主席都没发话呢！
 
 
------
+*****
 
 ####  枢木スザク  
 ##### 11064#       发表于 2018-4-26 15:58
@@ -27253,7 +27253,7 @@ AZ喂屎度。。还好吧
 15集这种拍法应该是第20集再搬出来的
 
 
------
+*****
 
 ####  新闻工作者  
 ##### 11065#       发表于 2018-4-26 15:58
@@ -27271,7 +27271,7 @@ AZ喂屎度。。还好吧
 简单地说“气氛”到底是个什么的话。比如说现在我们俩人在咖啡店里这个聊天的场景，这个场景如果想拿到动画里去拍，实际上是非常难拍的。首先我们两个基本不动，聊天的内容也不存在激烈的言辞交锋。所以把我们两个人这个普通的聊天场景如果要灌输到观众脑内，要让观众沉浸到作品中来的话，实际上需要非常高的演出技巧。这综合的演出技巧或许是体现在背景之中，或许是体现在表情的作画，这些才是最终塑造气氛的要素。首先得找高水平的人来画，而台词和画面的搭配同样需要在最初的脚本环节就要有所考虑，这些都是很高的要求。
 
 
------
+*****
 
 ####  舍己为人大师兄  
 ##### 11066#       发表于 2018-4-26 16:00
@@ -27283,7 +27283,7 @@ AZ喂屎度。。还好吧
 厨斯雷因，难怪会对9a发展感兴趣<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 11067#       发表于 2018-4-26 16:01
@@ -27297,7 +27297,7 @@ AZ喂屎度。。还好吧
 不是学了吗扇巴掌
 
 
------
+*****
 
 ####  戏谑二次元  
 ##### 11068#       发表于 2018-4-26 16:01
@@ -27308,7 +27308,7 @@ AZ喂屎度。。还好吧
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  skives  
 ##### 11069#       发表于 2018-4-26 16:01
@@ -27319,7 +27319,7 @@ AZ喂屎度。。还好吧
 嚎啕大哭呢
 
 
------
+*****
 
 ####  isummon  
 ##### 11070#       发表于 2018-4-26 16:02

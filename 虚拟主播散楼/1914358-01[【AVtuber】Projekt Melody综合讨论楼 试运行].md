@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2020-02-28 00:13** 
 
 
------
+*****
 
 ####  waterbaby  
 ##### 1#       楼主       发表于 2020-2-17 19:12
@@ -18,7 +18,7 @@ A Woman of Culture
 [1] VTB版规：用户发布不当内容将做禁言处理：1.违反法律法规的话题
 
 
------
+*****
 
 ####  北山玖公  
 ##### 2#       发表于 2020-2-17 19:15
@@ -29,7 +29,7 @@ A Woman of Culture
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  惜别  
 ##### 3#       发表于 2020-2-17 19:48
@@ -38,7 +38,7 @@ A Woman of Culture
 我来见证历史了
 
 
------
+*****
 
 ####  攻心为上木之本  
 ##### 4#       发表于 2020-2-17 19:50
@@ -49,7 +49,7 @@ A Woman of Culture
 —— 来自 HUAWEI ALP-AL00, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  waterbaby  
 ##### 5#         楼主| 发表于 2020-2-17 19:58
@@ -64,7 +64,7 @@ A Woman of Culture
 好的，那先20权限好了
 
 
------
+*****
 
 ####  wangchaofire  
 ##### 6#       发表于 2020-2-17 20:00
@@ -73,7 +73,7 @@ A Woman of Culture
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">有录播么
 
 
------
+*****
 
 ####  m63785757  
 ##### 7#       发表于 2020-2-17 20:01
@@ -84,7 +84,7 @@ A Woman of Culture
 上面不是有吗，pornhub录播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  waterbaby  
 ##### 8#         楼主| 发表于 2020-2-17 20:02
@@ -96,7 +96,7 @@ A Woman of Culture
 录播在pornhub，有官方账号ProjektMelody
 
 
------
+*****
 
 ####  gundamf91  
 ##### 9#       发表于 2020-2-17 20:09
@@ -105,7 +105,7 @@ A Woman of Culture
 人设有种强烈的海王星既视感<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whzfjk  
 ##### 10#       发表于 2020-2-17 20:18
@@ -116,7 +116,7 @@ A Woman of Culture
 乍一看还以为什么黄油搞了海王星MOD
 
 
------
+*****
 
 ####  NBXX  
 ##### 11#       发表于 2020-2-17 21:11
@@ -128,7 +128,7 @@ A Woman of Culture
 做这个模型的Digitrevx同时也是Mirai Akari和ruka的模型师，在他的[个人网站](https://www.digitrevx.com/)里可以看到他另外的两个女儿。
 
 
------
+*****
 
 ####  方块木偶  
 ##### 12#       发表于 2020-2-17 21:12
@@ -137,7 +137,7 @@ A Woman of Culture
 听说模型和动捕都不是很精良，看来avtuber还是大有前途
 
 
------
+*****
 
 ####  PleiadeSubaru  
 ##### 13#       发表于 2020-2-17 21:16
@@ -147,7 +147,7 @@ A Woman of Culture
 但是很有上升空间<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  无糖茶  
 ##### 14#       发表于 2020-2-17 21:24
@@ -156,7 +156,7 @@ A Woman of Culture
 模型修一修大有可为的一个avtuber，秒杀柚木姐妹好吧
 
 
------
+*****
 
 ####  JWJking  
 ##### 15#       发表于 2020-2-17 21:29
@@ -165,7 +165,7 @@ A Woman of Culture
 好时代
 
 
------
+*****
 
 ####  tama_chan  
 ##### 16#       发表于 2020-2-17 21:32
@@ -174,7 +174,7 @@ A Woman of Culture
 This is the right future
 
 
------
+*****
 
 ####  嵐ステリ  
 ##### 17#       发表于 2020-2-17 21:36
@@ -183,7 +183,7 @@ This is the right future
 我这边p站下载慢如龟毛，有没有别的归档啊，我在nyaa看到一个67g的巨魔文件<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  雪地白狼  
 ##### 18#       发表于 2020-2-17 21:37
@@ -192,7 +192,7 @@ This is the right future
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">the future is here
 
 
------
+*****
 
 ####  tama_chan  
 ##### 19#       发表于 2020-2-18 16:50
@@ -210,7 +210,7 @@ syl
 中之人好像被特到了，有兴趣可以去4chan爬
 
 
------
+*****
 
 ####  普通人止戈  
 ##### 20#       发表于 2020-2-18 17:22
@@ -219,7 +219,7 @@ syl
 这个妹子英语口音很可爱
 
 
------
+*****
 
 ####  itsmyrailgun  
 ##### 21#       发表于 2020-2-18 17:59
@@ -231,7 +231,7 @@ syl
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过Porn直播就是这个样子吧，皮套不过是放大了这种不和谐感
 
 
------
+*****
 
 ####  tama_chan  
 ##### 22#       发表于 2020-2-18 19:46
@@ -245,7 +245,7 @@ syl
 确实比较虚无。不过情人节那场评价还是挺高的，没看的话可以看一下
 
 
------
+*****
 
 ####  Oshino57  
 ##### 23#       发表于 2020-2-18 20:57
@@ -254,7 +254,7 @@ syl
 补了几场，这姑娘直播也太草台了。 一个钟头都在复读 “3q ahh 3q 3q ahhahh'
 
 
------
+*****
 
 ####  幸福滴小刺猬  
 ##### 24#       发表于 2020-2-18 21:09
@@ -266,7 +266,7 @@ welcome to the future
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  temp255  
 ##### 25#       发表于 2020-2-18 23:39
@@ -277,7 +277,7 @@ welcome to the future
 其他的和"那种"直播没什么区别
 
 
------
+*****
 
 ####  十月鼠  
 ##### 26#       发表于 2020-2-19 00:33
@@ -290,7 +290,7 @@ welcome to the future
 不过双开一个柚木凛的舔耳就又好了
 
 
------
+*****
 
 ####  tama_chan  
 ##### 27#       发表于 2020-2-19 08:24
@@ -301,7 +301,7 @@ dirty talk还是挺好用的。另外说大概10天之后会上twitch播，不�
 —— 来自 OnePlus GM1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  liuliu66  
 ##### 28#       发表于 2020-2-19 14:26
@@ -310,7 +310,7 @@ dirty talk还是挺好用的。另外说大概10天之后会上twitch播，不�
 最近才知道这个黄色主播没想到泥潭已经有贴了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  zzy516232108  
 ##### 29#       发表于 2020-2-19 16:36
@@ -321,7 +321,7 @@ dirty talk还是挺好用的。另外说大概10天之后会上twitch播，不�
 但是推特上面图还行，人设也挺吸引我的
 
 
------
+*****
 
 ####  watermelon_man  
 ##### 30#       发表于 2020-2-19 21:33
@@ -330,7 +330,7 @@ dirty talk还是挺好用的。另外说大概10天之后会上twitch播，不�
 一个设想，会不会以后有黄油找melody推广？melody试玩r18的一小章节，并且边玩边和观众互动什么的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  waterbaby  
 ##### 31#         楼主| 发表于 2020-2-19 22:00
@@ -341,7 +341,7 @@ dirty talk还是挺好用的。另外说大概10天之后会上twitch播，不�
 Is Hentai Art? b站熟肉，写的还不错，闲得无聊可以看下。
 
 
------
+*****
 
 ####  plazum  
 ##### 32#       发表于 2020-2-21 02:21
@@ -357,7 +357,7 @@ https://www.bilibili.com/video/av90165641 ...</blockquote>
 SYL，想给主楼加鹅的时候发现已经来不及了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Golubaya  
 ##### 33#       发表于 2020-2-21 16:16
@@ -368,7 +368,7 @@ SYL，想给主楼加鹅的时候发现已经来不及了<img src="https://stati
 —— 来自 Xiaomi Redmi 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  tama_chan  
 ##### 34#       发表于 2020-2-21 21:33
@@ -378,7 +378,7 @@ SYL，想给主楼加鹅的时候发现已经来不及了<img src="https://stati
 [https://open.spo<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  plazum  
 ##### 35#       发表于 2020-2-21 23:41
@@ -393,7 +393,7 @@ SYL，想给主楼加鹅的时候发现已经来不及了<img src="https://stati
 嗯，本质上是一个camgirl（正如PH录播标签所说），所以西方网友看着比较开心
 
 
------
+*****
 
 ####  嵐ステリ  
 ##### 36#       发表于 2020-2-22 01:21
@@ -402,7 +402,7 @@ SYL，想给主楼加鹅的时候发现已经来不及了<img src="https://stati
 话说柚木凛那边的初次录像流出了……这就是个mmd配上同人声音啊……这不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NBXX  
 ##### 37#       发表于 2020-2-26 19:17

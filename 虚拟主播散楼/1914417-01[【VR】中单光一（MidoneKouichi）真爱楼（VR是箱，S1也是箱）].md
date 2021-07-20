@@ -1,7 +1,7 @@
 > ## **本文件最后更新于2020-02-28 00:13** 
 
 
------
+*****
 
 ####  wingsword  
 ##### 1#       楼主       发表于 2020-2-17 22:45
@@ -136,7 +136,7 @@ QQ二群：984740744（待升级） 三群：423784860
 声明：本楼禁止一切冲塔行为以及中之人讨论（还有讨论的必要吗？）
 
 
------
+*****
 
 ####  wingsword  
 ##### 2#         楼主| 发表于 2020-2-17 22:46
@@ -195,7 +195,7 @@ QQ二群：984740744（待升级） 三群：423784860
 虽然命名是星沙杯，但是VR办deadgame比赛抬的是谁不言而喻~
 
 
------
+*****
 
 ####  鵇柒不是年鸟七  
 ##### 3#       发表于 2020-2-17 22:50
@@ -204,7 +204,7 @@ QQ二群：984740744（待升级） 三群：423784860
 刚在隔壁看问有光一真爱楼没，出来刷新一下就有了，你好强大
 
 
------
+*****
 
 ####  掉落的肥皂  
 ##### 4#       发表于 2020-2-17 22:52
@@ -213,7 +213,7 @@ QQ二群：984740744（待升级） 三群：423784860
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">光一哥哥你肥皂掉了
 
 
------
+*****
 
 ####  OldGlory  
 ##### 5#       发表于 2020-2-17 22:53
@@ -222,7 +222,7 @@ QQ二群：984740744（待升级） 三群：423784860
 建议移到dota区，sg也可以
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 6#       发表于 2020-2-17 22:58
@@ -231,7 +231,7 @@ QQ二群：984740744（待升级） 三群：423784860
 竟然还有打DOTA2的VUP?建议你发到隔壁刀区，那里的老哥喜欢这个
 
 
------
+*****
 
 ####  wingsword  
 ##### 7#         楼主| 发表于 2020-2-17 22:58
@@ -243,7 +243,7 @@ QQ二群：984740744（待升级） 三群：423784860
 说的好！我这就去傻狗发帖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingsword  
 ##### 8#         楼主| 发表于 2020-2-17 22:59
@@ -255,7 +255,7 @@ QQ二群：984740744（待升级） 三群：423784860
 老板你来啦，是本人还是戏服啊
 
 
------
+*****
 
 ####  克罗夏  
 ##### 9#       发表于 2020-2-17 23:06
@@ -264,7 +264,7 @@ QQ二群：984740744（待升级） 三群：423784860
 《中单光一似乎穿越到了异世界》有人看吗？
 
 
------
+*****
 
 ####  lutla1422  
 ##### 10#       发表于 2020-2-17 23:06
@@ -273,7 +273,7 @@ QQ二群：984740744（待升级） 三群：423784860
 小心版主权限了你（
 
 
------
+*****
 
 ####  古战场亡魂  
 ##### 11#       发表于 2020-2-17 23:12
@@ -284,7 +284,7 @@ QQ二群：984740744（待升级） 三群：423784860
 178上面还是有点击量的。
 
 
------
+*****
 
 ####  水浅王八多  
 ##### 12#       发表于 2020-2-17 23:42
@@ -295,7 +295,7 @@ QQ二群：984740744（待升级） 三群：423784860
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  l778899  
 ##### 13#       发表于 2020-2-17 23:58
@@ -304,7 +304,7 @@ QQ二群：984740744（待升级） 三群：423784860
 真就版主真爱楼展示直钩技术嘛，过分了啊胖友
 
 
------
+*****
 
 ####  Acerola  
 ##### 14#       发表于 2020-2-18 09:57
@@ -313,7 +313,7 @@ QQ二群：984740744（待升级） 三群：423784860
 才发现名字里有个midone<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  空派白  
 ##### 15#       发表于 2020-2-18 10:01
@@ -322,7 +322,7 @@ QQ二群：984740744（待升级） 三群：423784860
 yysy这个星沙杯一股子神推Vup成顶级流量我死而无憾的味道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Nanachi  
 ##### 16#       发表于 2020-2-18 10:04
@@ -331,7 +331,7 @@ yysy这个星沙杯一股子神推Vup成顶级流量我死而无憾的味道<img
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草草，没想到是MidOne
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 17#       发表于 2020-2-18 10:38
@@ -340,7 +340,7 @@ yysy这个星沙杯一股子神推Vup成顶级流量我死而无憾的味道<img
 这楼是泉水钩？
 
 
------
+*****
 
 ####  wingsword  
 ##### 18#         楼主| 发表于 2020-2-19 00:33
@@ -354,7 +354,7 @@ yysy这个星沙杯一股子神推Vup成顶级流量我死而无憾的味道<img
 gaychi哭泣
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 19#       发表于 2020-2-19 17:18
@@ -365,7 +365,7 @@ gaychi哭泣
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  wingsword  
 ##### 20#         楼主| 发表于 2020-2-19 17:36
@@ -384,7 +384,7 @@ gaychi哭泣
 ===================冠绝融入超凡鱼塘的方式就是发很多系统局吗。。。
 
 
------
+*****
 
 ####  wingsword  
 ##### 21#         楼主| 发表于 2020-2-20 21:09
@@ -397,7 +397,7 @@ gaychi哭泣
 第二把开中等AI线上四个小朋友没打崩对面小鱼人滚起雪球就没法挽回了
 
 
------
+*****
 
 ####  suncaojie001  
 ##### 22#       发表于 2020-2-20 21:28
@@ -406,7 +406,7 @@ gaychi哭泣
 居然还有打dota2的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 23#       发表于 2020-2-20 22:54
@@ -417,7 +417,7 @@ gaychi哭泣
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  wingsword  
 ##### 24#         楼主| 发表于 2020-2-20 23:17
@@ -434,7 +434,7 @@ gaychi哭泣
 确实是刀塔马车
 
 
------
+*****
 
 ####  wingsword  
 ##### 25#         楼主| 发表于 2020-2-22 14:22
@@ -443,7 +443,7 @@ gaychi哭泣
 和单位发的女朋友打LOL甜蜜吵架也太青春了呜呜呜
 
 
------
+*****
 
 ####  巫师鹅  
 ##### 26#       发表于 2020-2-25 16:52
@@ -457,7 +457,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  wingsword  
 ##### 27#         楼主| 发表于 2020-2-26 19:43
@@ -470,7 +470,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 打得不够好，或者说不够菜确实没法播啊
 
 
------
+*****
 
 ####  可防可控  
 ##### 28#       发表于 2020-2-26 22:29
@@ -481,7 +481,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 严重支持
 
 
------
+*****
 
 ####  方块木偶  
 ##### 29#       发表于 2020-2-27 09:48
@@ -490,7 +490,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 隔壁s1娘的试音会嘉宾剪影，一看就有中单光一呀<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这波是强势引流吗 
 
 
------
+*****
 
 ####  巫师鹅  
 ##### 30#       发表于 2020-2-27 10:02
@@ -503,7 +503,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 —— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  fs001  
 ##### 31#       发表于 2020-2-27 10:20
@@ -512,7 +512,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">都是自家人，互相引流。
 
 
------
+*****
 
 ####  灵魂收割机  
 ##### 32#       发表于 2020-2-27 11:08
@@ -521,7 +521,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 你VR是箱，我S1就不是箱吗（错乱）
 
 
------
+*****
 
 ####  黑糖花园  
 ##### 33#       发表于 2020-2-27 11:43
@@ -532,7 +532,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 —— 来自 Sony J9110, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
 
 
------
+*****
 
 ####  胡桃丶  
 ##### 34#       发表于 2020-2-27 15:14
@@ -541,7 +541,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 我看s1箱内引流比vr给力多了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wingsword  
 ##### 35#         楼主| 发表于 2020-2-27 16:22
@@ -550,7 +550,7 @@ XXZDGY<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" refe
 流量冠军这已经是和第几个箱联动了？(错乱)
 
 
------
+*****
 
 ####  OldGlory  
 ##### 36#       发表于 2020-2-27 19:23

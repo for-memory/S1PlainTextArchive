@@ -1,6 +1,6 @@
 
 
------
+*****
 
 ####  Meteors  
 ##### 9001#       发表于 2018-7-7 00:24
@@ -11,7 +11,7 @@
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9002#       发表于 2018-7-7 00:26
@@ -20,7 +20,7 @@
 然而辣个蓝人一开始指的是OMG的上单Gogoing....<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9003#       发表于 2018-7-7 00:28
@@ -29,7 +29,7 @@
 求辣个蓝人把孕莓的设定给废了
 
 
------
+*****
 
 ####  9α  
 ##### 9004#       发表于 2018-7-7 00:28
@@ -42,7 +42,7 @@
 人蓝个辣
 
 
------
+*****
 
 ####  反正我改名  
 ##### 9005#       发表于 2018-7-7 00:29
@@ -57,7 +57,7 @@
 我一直好奇你是真的搞相关工作还是把看比赛说成出差<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  timepro  
 ##### 9006#       发表于 2018-7-7 00:32
@@ -68,7 +68,7 @@
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9007#       发表于 2018-7-7 00:36
@@ -87,7 +87,7 @@
 看看标题，还挺感慨的
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9008#       发表于 2018-7-7 00:39
@@ -106,7 +106,7 @@
   "可恶，我还没向你们报仇呢，你们竟然就这样自爆了。不能原谅！“02心中燃起无法遏止的怒火，血液在沸腾，毛孔在倒竖，一股强大的气随着血管游走，瞬间全身充满了力量，一下子就忘记了疼痛。“岂可修！居然杀死了我重要的伙伴！你们连无辜的人都不放过，真的惹怒我了，V星人！”02大吼着，浑身青筋绽出，伴随着一阵如同超新星爆炸般的强光和波动，02头发倒竖，变成皮卡皮卡的金色，以及放出哪怕在真空中也能幻听的哔哩哔哩声。V星人见状面色惨白，但仍假装镇定“你们叫龙不也杀死很多人类吗，难道就无罪了吗？”“所以叫龙人灭绝了”02面如表情的回复道，见V星人不死心，一拳挥出，引发的冲击在瞬间将数千个星球化为齑粉。“我只给你们5分钟，赶紧离开银河系，永远不要回来了！”巨大化的超级叫龙人02发出正义的怒吼，震得V星人肝胆俱裂，魂飞魄散，纷纷屁滚尿流，四处鸟散。
 
 
------
+*****
 
 ####  反正我改名  
 ##### 9009#       发表于 2018-7-7 00:41
@@ -115,7 +115,7 @@
 在23的神奇展开之后如果216死别，某位消失了一周的平稳展开兄不知道情绪还稳定吗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 9010#       发表于 2018-7-7 00:42
@@ -124,7 +124,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">那群家伙真想得起我们存在过吗。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9011#       发表于 2018-7-7 00:42
@@ -133,7 +133,7 @@
 乐观就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  luyifuif  
 ##### 9012#       发表于 2018-7-7 00:42
@@ -142,7 +142,7 @@
 目测最后一集冲300还是没问题滴
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9013#       发表于 2018-7-7 00:43
@@ -154,7 +154,7 @@
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9014#       发表于 2018-7-7 00:44
@@ -167,7 +167,7 @@
 <img src="https://i.loli.net/2018/07/07/5b3f9d1391261.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9015#       发表于 2018-7-7 00:44
@@ -176,7 +176,7 @@
 最后一集会出现“北京公安”吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9016#       发表于 2018-7-7 00:45
@@ -188,7 +188,7 @@
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Meteors  
 ##### 9017#       发表于 2018-7-7 00:45
@@ -200,7 +200,7 @@
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Meteors  
 ##### 9018#       发表于 2018-7-7 00:47
@@ -212,7 +212,7 @@
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9019#       发表于 2018-7-7 00:47
@@ -223,7 +223,7 @@
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 9020#       发表于 2018-7-7 00:57
@@ -235,7 +235,7 @@
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 9021#       发表于 2018-7-7 00:59
@@ -246,7 +246,7 @@
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  poonhk  
 ##### 9022#       发表于 2018-7-7 01:00
@@ -258,7 +258,7 @@
 大02引爆炸弹却没能成功炸死V星人反而被打成重伤,这可不能忍,当场来个02DARLING六连发,LOVELOVEPOWER发动变成银河一样大的02
 
 
------
+*****
 
 ####  Meteors  
 ##### 9023#       发表于 2018-7-7 01:01
@@ -273,7 +273,7 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">就是个不知名搬砖的
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9024#       发表于 2018-7-7 01:01
@@ -285,7 +285,7 @@
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  gbaing  
 ##### 9025#       发表于 2018-7-7 01:03
@@ -294,7 +294,7 @@
 泥潭終於可以換頭像了，可喜可賀
 
 
------
+*****
 
 ####  Meteors  
 ##### 9026#       发表于 2018-7-7 01:03
@@ -303,7 +303,7 @@
 我终于在电脑端看新头像了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9027#       发表于 2018-7-7 01:03
@@ -315,7 +315,7 @@
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  dxxtiger  
 ##### 9028#       发表于 2018-7-7 01:05
@@ -331,7 +331,7 @@
 Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里，算是致敬最少的。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9029#       发表于 2018-7-7 01:06
@@ -346,7 +346,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 时间过得真快，都是三年前的事了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9030#       发表于 2018-7-7 01:08
@@ -358,7 +358,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 当年垮 下输出的人现在都圆了三圈在解说台上了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Arccueid  
 ##### 9031#       发表于 2018-7-7 01:08
@@ -367,7 +367,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 最后一次300了吗
 
 
------
+*****
 
 ####  magicz2  
 ##### 9032#       发表于 2018-7-7 01:11
@@ -376,7 +376,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 为什么我还换不了头像？
 
 
------
+*****
 
 ####  soulife7  
 ##### 9033#       发表于 2018-7-7 01:11
@@ -388,7 +388,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9034#       发表于 2018-7-7 01:12
@@ -404,7 +404,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Meteors  
 ##### 9035#       发表于 2018-7-7 01:13
@@ -413,7 +413,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 其实如果用力一点说不定都还能摸到326的新发型，现在是来不及了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9036#       发表于 2018-7-7 01:13
@@ -425,7 +425,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 今天我们的休息室也来了一位重量级的ADC，第一届LPL前三水平，给大家一个提示“大”<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 9037#       发表于 2018-7-7 01:14
@@ -436,7 +436,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 我的电脑端头像变化不完全。
 
 
------
+*****
 
 ####  Meteors  
 ##### 9038#       发表于 2018-7-7 01:14
@@ -453,7 +453,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 等等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9039#       发表于 2018-7-7 01:15
@@ -465,7 +465,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 这是啥？今天解说时候说的？？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9040#       发表于 2018-7-7 01:16
@@ -476,7 +476,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 我咋记得今天上半场是海尔兄弟和谁，下半场氧气瓶和管泽元和谁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9041#       发表于 2018-7-7 01:17
@@ -494,7 +494,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9042#       发表于 2018-7-7 01:18
@@ -506,7 +506,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 记得是海尔兄弟和远古第一ADC<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9043#       发表于 2018-7-7 01:18
@@ -522,7 +522,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 还不行的话换个没登陆过的浏览器试试
 
 
------
+*****
 
 ####  Meteors  
 ##### 9044#       发表于 2018-7-7 01:21
@@ -534,7 +534,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 是微笑吗？？今天看到微笑好几次来着。。。。。还是伞和微笑都来了
 
 
------
+*****
 
 ####  ud_terry  
 ##### 9045#       发表于 2018-7-7 01:22
@@ -543,7 +543,7 @@ Tommy有点被洗脑后的广的感觉，就是死活开不了机自闭了那里
 JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9046#       发表于 2018-7-7 01:23
@@ -555,7 +555,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 恩，高学成<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9047#       发表于 2018-7-7 01:24
@@ -568,7 +568,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 两个人都来了，只不过伞好像是今天评论席<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9048#       发表于 2018-7-7 01:30
@@ -582,7 +582,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 应该说是昨天<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9049#       发表于 2018-7-7 01:33
@@ -594,7 +594,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 主要伞是官方解说了，来一下没啥感觉了。。不像客串的这位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9050#       发表于 2018-7-7 01:39
@@ -608,7 +608,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 还有，你这样称呼泽园，不怕被人家微信好友圈安排一波？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9051#       发表于 2018-7-7 01:39
@@ -623,7 +623,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 他要是安排我我能看到的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  小红飞翼  
 ##### 9052#       发表于 2018-7-7 03:00
@@ -632,7 +632,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 渣广死了没？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9053#       发表于 2018-7-7 03:59
@@ -644,7 +644,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 都安排上了
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9054#       发表于 2018-7-7 04:11
@@ -657,7 +657,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 然后醒了肚子咕咕的叫，<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不说了我去煮鸡蛋
 
 
------
+*****
 
 ####  xyau  
 ##### 9055#       发表于 2018-7-7 05:19
@@ -679,7 +679,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 如果有15那样的恢复力的话，就算断腿也会很快恢复
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9056#       发表于 2018-7-7 05:46
@@ -688,7 +688,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 真想不到你国专楼还能到300……真是回光返照了
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9057#       发表于 2018-7-7 05:53
@@ -704,7 +704,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 尤其缺锌
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9058#       发表于 2018-7-7 06:09
@@ -716,7 +716,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xyau  
 ##### 9059#       发表于 2018-7-7 06:19
@@ -737,7 +737,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 要是有APE对博士、01和博士对人类那样的存在的话，可能缺啥都先备好了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  黑色蘑菇  
 ##### 9060#       发表于 2018-7-7 06:22
@@ -752,7 +752,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 阿毛这么可爱 想打断腿养起来的 一定能排起队来
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9061#       发表于 2018-7-7 06:32
@@ -766,7 +766,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 这太惊悚了
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9062#       发表于 2018-7-7 06:47
@@ -777,7 +777,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 拜托，又不是在拍危情十日
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9063#       发表于 2018-7-7 07:00
@@ -786,7 +786,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 辣个蓝人来了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9064#       发表于 2018-7-7 07:04
@@ -795,7 +795,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 留给辣个蓝人的时间不多了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9065#       发表于 2018-7-7 07:21
@@ -809,7 +809,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 所以总是能准备好东西APE，博士和01是工具人呀
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9066#       发表于 2018-7-7 07:23
@@ -818,7 +818,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 想好今晚怎么处决锦织了没？
 
 
------
+*****
 
 ####  hl8243  
 ##### 9067#       发表于 2018-7-7 07:30
@@ -831,7 +831,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9068#       发表于 2018-7-7 07:32
@@ -843,7 +843,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 得罪了216厨，莓厨和心满厨，剧本早已完蛋，这要能翻不可能
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9069#       发表于 2018-7-7 07:46
@@ -853,7 +853,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 让你们流下最后一次悔恨的泪水！
 
 
------
+*****
 
 ####  hl8243  
 ##### 9070#       发表于 2018-7-7 08:01
@@ -871,7 +871,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 只得罪了莓厨啊
 
 
------
+*****
 
 ####  短名字的狸  
 ##### 9071#       发表于 2018-7-7 08:03
@@ -880,7 +880,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 能在结局翻盘的怎么着都是前面做的还可以的片子，不符合要求
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 9072#       发表于 2018-7-7 08:05
@@ -896,7 +896,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 其实jzgg完全不在意莓厨呀。毕竟在日本也只有0216和心满人气火爆。莓厨？不存在的。
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9073#       发表于 2018-7-7 08:09
@@ -911,7 +911,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 可喜可贺 记得替莓厨们把碟子买了
 
 
------
+*****
 
 ####  hl8243  
 ##### 9074#       发表于 2018-7-7 08:16
@@ -925,7 +925,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 诚信肥宅
 
 
------
+*****
 
 ####  02016  
 ##### 9075#       发表于 2018-7-7 08:18
@@ -944,7 +944,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 <img src="http://ww1.sinaimg.cn/large/87c01ec7gy1ft0zhyt89sj21531kwdun.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9076#       发表于 2018-7-7 08:20
@@ -958,7 +958,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 这张图人物的位置……嗯……很有灵性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  02016  
 ##### 9077#       发表于 2018-7-7 08:23
@@ -970,7 +970,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我也感受到了
 
 
------
+*****
 
 ####  zjylyy  
 ##### 9078#       发表于 2018-7-7 08:23
@@ -985,7 +985,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 郁乃好气啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  hl8243  
 ##### 9079#       发表于 2018-7-7 08:24
@@ -1002,7 +1002,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 56→15→16→02。还有196→15
 
 
------
+*****
 
 ####  猪的报恩  
 ##### 9080#       发表于 2018-7-7 08:24
@@ -1017,7 +1017,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 这位置，这拉手，这视线方向，简直恶心死了。
 
 
------
+*****
 
 ####  magicz2  
 ##### 9081#       发表于 2018-7-7 08:25
@@ -1032,7 +1032,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 这手拉了好微妙。。。
 
 
------
+*****
 
 ####  南风森琉璃  
 ##### 9082#       发表于 2018-7-7 08:25
@@ -1041,7 +1041,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 胖子和芋艿成了我黑锦织一辈子，mmp
 
 
------
+*****
 
 ####  hl8243  
 ##### 9083#       发表于 2018-7-7 08:26
@@ -1058,7 +1058,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 花语是什么？？
 
 
------
+*****
 
 ####  02016  
 ##### 9084#       发表于 2018-7-7 08:32
@@ -1072,7 +1072,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可能只有作者本人知道
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9085#       发表于 2018-7-7 08:33
@@ -1081,7 +1081,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 希望之花吧，你看他们之间的羁绊不是紧紧连接起来了吗？
 
 
------
+*****
 
 ####  magicz2  
 ##### 9086#       发表于 2018-7-7 08:33
@@ -1094,7 +1094,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 小的鹤望兰啦
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9087#       发表于 2018-7-7 08:35
@@ -1103,7 +1103,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 今天播放前应该就能看到nt偷跑
 
 
------
+*****
 
 ####  五更伪境  
 ##### 9088#       发表于 2018-7-7 08:38
@@ -1112,7 +1112,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 放心，舔狗只配当舔狗
 
 
------
+*****
 
 ####  Meteors  
 ##### 9089#       发表于 2018-7-7 08:47
@@ -1133,7 +1133,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9090#       发表于 2018-7-7 08:53
@@ -1152,7 +1152,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 好奇后面盘销量
 
 
------
+*****
 
 ####  绫魂h  
 ##### 9091#       发表于 2018-7-7 08:55
@@ -1161,7 +1161,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 就现在的剧情，郁太能成简直比那张草莓怀孕图还TM扯淡
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9092#       发表于 2018-7-7 08:56
@@ -1170,7 +1170,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 我觉得吧，不能以泥潭的情况为标准<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">要是以泥潭为标准，剩下几卷怕是出不了数据
 
 
------
+*****
 
 ####  9α  
 ##### 9093#       发表于 2018-7-7 08:56
@@ -1185,7 +1185,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 还真是。
 
 
------
+*****
 
 ####  9α  
 ##### 9094#       发表于 2018-7-7 08:58
@@ -1195,7 +1195,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 销量数据谁丢一个<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  五更伪境  
 ##### 9095#       发表于 2018-7-7 08:58
@@ -1204,7 +1204,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 田中将贺又在喊累了，心疼
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9096#       发表于 2018-7-7 08:59
@@ -1218,7 +1218,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 要是216没有好结局我就可以开黑锦织了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  NaughtyFish  
 ##### 9097#       发表于 2018-7-7 09:01
@@ -1229,7 +1229,7 @@ JZGG最后的生存机会<img src="https://static.saraba1st.com/image/smiley/car
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9098#       发表于 2018-7-7 09:01
@@ -1245,7 +1245,7 @@ v星人也要给boomboom了
 不要忘了他们唉
 
 
------
+*****
 
 ####  skives  
 ##### 9099#       发表于 2018-7-7 09:04
@@ -1255,7 +1255,7 @@ v星人也要给boomboom了
 最顺眼的就是56151602……
 
 
------
+*****
 
 ####  soulife7  
 ##### 9100#       发表于 2018-7-7 09:04
@@ -1267,7 +1267,7 @@ v星人也要给boomboom了
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9101#       发表于 2018-7-7 09:04
@@ -1281,7 +1281,7 @@ v星人和叫龙真可怜，就是因为不能生就被锦织如此残忍的对�
 大人太丢人了，不如我v星人和叫龙族伟大
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9102#       发表于 2018-7-7 09:05
@@ -1290,7 +1290,7 @@ v星人和叫龙真可怜，就是因为不能生就被锦织如此残忍的对�
 最终话是刚刚做完吗？这么累
 
 
------
+*****
 
 ####  9α  
 ##### 9103#       发表于 2018-7-7 09:05
@@ -1312,7 +1312,7 @@ iota16结局
 一起死——不能生所以死了。
 
 
------
+*****
 
 ####  xingenge  
 ##### 9104#       发表于 2018-7-7 09:10
@@ -1321,7 +1321,7 @@ iota16结局
 “Director just called and told me he just finished the final episode...(of Darling in the FRANXX)”
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9105#       发表于 2018-7-7 09:11
@@ -1333,7 +1333,7 @@ iota16结局
 消息源是？
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9106#       发表于 2018-7-7 09:11
@@ -1344,7 +1344,7 @@ iota16结局
 该讲清楚的时候不说人话
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9107#       发表于 2018-7-7 09:11
@@ -1355,7 +1355,7 @@ iota16结局
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  猫白羽毛  
 ##### 9108#       发表于 2018-7-7 09:12
@@ -1364,7 +1364,7 @@ iota16结局
 惊了刚完成……难怪没预告
 
 
------
+*****
 
 ####  xingenge  
 ##### 9109#       发表于 2018-7-7 09:13
@@ -1373,7 +1373,7 @@ iota16结局
 <img src="http://wx4.sinaimg.cn/large/740ca5e5gy1ft112lqhwlj20i31gv11m.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  圈量子  
 ##### 9110#       发表于 2018-7-7 09:13
@@ -1382,7 +1382,7 @@ iota16结局
 那么是哪几位制作进行要飙车跑步送片源呢<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 9111#       发表于 2018-7-7 09:14
@@ -1396,7 +1396,7 @@ iota16结局
 AX2018 TRIGGER PANEL
 
 
------
+*****
 
 ####  xingenge  
 ##### 9112#       发表于 2018-7-7 09:15
@@ -1412,7 +1412,7 @@ AX2018 TRIGGER PANEL
 <img src="http://wx3.sinaimg.cn/large/740ca5e5gy1ft114p44t0j20pj0xcgzk.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9113#       发表于 2018-7-7 09:16
@@ -1424,7 +1424,7 @@ AX2018 TRIGGER PANEL
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9114#       发表于 2018-7-7 09:16
@@ -1433,7 +1433,7 @@ AX2018 TRIGGER PANEL
 什么意思？0215的争端是两个studio的合作不畅导致的？没理解啊……
 
 
------
+*****
 
 ####  skives  
 ##### 9115#       发表于 2018-7-7 09:16
@@ -1442,7 +1442,7 @@ AX2018 TRIGGER PANEL
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">叫龙男你早点变身多好
 
 
------
+*****
 
 ####  lanhao  
 ##### 9116#       发表于 2018-7-7 09:20
@@ -1451,7 +1451,7 @@ AX2018 TRIGGER PANEL
 那个男人来了吗
 
 
------
+*****
 
 ####  magicz2  
 ##### 9117#       发表于 2018-7-7 09:20
@@ -1462,7 +1462,7 @@ AX2018 TRIGGER PANEL
 提到死亡威胁时说了下两个公司有很大的不同，合作很难而已。
 
 
------
+*****
 
 ####  Meteors  
 ##### 9118#       发表于 2018-7-7 09:23
@@ -1475,7 +1475,7 @@ AX2018 TRIGGER PANEL
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 9119#       发表于 2018-7-7 09:25
@@ -1486,7 +1486,7 @@ AX2018 TRIGGER PANEL
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 9120#       发表于 2018-7-7 09:27
@@ -1495,7 +1495,7 @@ AX2018 TRIGGER PANEL
 所以国14的锅谁背
 
 
------
+*****
 
 ####  Meteors  
 ##### 9121#       发表于 2018-7-7 09:28
@@ -1507,7 +1507,7 @@ AX2018 TRIGGER PANEL
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Meteors  
 ##### 9122#       发表于 2018-7-7 09:30
@@ -1519,7 +1519,7 @@ AX2018 TRIGGER PANEL
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9123#       发表于 2018-7-7 09:30
@@ -1537,7 +1537,7 @@ AX2018 TRIGGER PANEL
 但变成生殖片了……
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9124#       发表于 2018-7-7 09:30
@@ -1551,7 +1551,7 @@ AX2018 TRIGGER PANEL
 喷了，这全员箭头都标出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9125#       发表于 2018-7-7 09:32
@@ -1571,7 +1571,7 @@ AX2018 TRIGGER PANEL
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  soulife7  
 ##### 9126#       发表于 2018-7-7 09:33
@@ -1582,7 +1582,7 @@ AX2018 TRIGGER PANEL
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9127#       发表于 2018-7-7 09:37
@@ -1591,7 +1591,7 @@ AX2018 TRIGGER PANEL
 Sushio says “I can’t work to my full potential unless Imaishi is working on a project.”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 9128#       发表于 2018-7-7 09:37
@@ -1604,7 +1604,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 生殖癌，真恶心<img src="https://i.loli.net/2018/07/07/5b40193cc1690.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  步六孤  
 ##### 9129#       发表于 2018-7-7 09:38
@@ -1613,7 +1613,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 火车上，靠专楼文字生放了
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9130#       发表于 2018-7-7 09:39
@@ -1622,7 +1622,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 喷了，早起机设的脸都是对应雌蕊的脸啊
 
 
------
+*****
 
 ####  xingenge  
 ##### 9131#       发表于 2018-7-7 09:39
@@ -1633,7 +1633,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft11tpmfdnj20j90gkjth.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 9132#       发表于 2018-7-7 09:40
@@ -1645,7 +1645,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 这是在说PROMARE吧
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9133#       发表于 2018-7-7 09:42
@@ -1657,7 +1657,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 对的，之前无锡那边透露的工期正常就是这么来的
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9134#       发表于 2018-7-7 09:43
@@ -1668,7 +1668,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 大02那种？早有预谋啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9135#       发表于 2018-7-7 09:49
@@ -1679,7 +1679,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 肥仔只能当偶像厨全程倒贴<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9136#       发表于 2018-7-7 09:50
@@ -1696,7 +1696,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 没看出来作画早就完成的说法
 
 
------
+*****
 
 ####  Meteors  
 ##### 9137#       发表于 2018-7-7 09:50
@@ -1709,7 +1709,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xingenge  
 ##### 9138#       发表于 2018-7-7 09:55
@@ -1726,7 +1726,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 今天他有别的事吧
 
 
------
+*****
 
 ####  soulife7  
 ##### 9139#       发表于 2018-7-7 09:56
@@ -1738,7 +1738,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9140#       发表于 2018-7-7 09:56
@@ -1754,7 +1754,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 然后狂睡15小时
 
 
------
+*****
 
 ####  xingenge  
 ##### 9141#       发表于 2018-7-7 09:58
@@ -1771,7 +1771,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 锦织V编那儿估计也工作了7 8小时以上
 
 
------
+*****
 
 ####  pissca  
 ##### 9142#       发表于 2018-7-7 10:02
@@ -1784,7 +1784,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
------
+*****
 
 ####  xyau  
 ##### 9143#       发表于 2018-7-7 10:08
@@ -1793,7 +1793,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 居然放送当日早上才完成吗
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9144#       发表于 2018-7-7 10:10
@@ -1804,7 +1804,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 虽然现实估计要残酷个十倍吧……
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 9145#       发表于 2018-7-7 10:11
@@ -1815,7 +1815,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 阿毛那么可爱，直接关笼子里养吧
 
 
------
+*****
 
 ####  步六孤  
 ##### 9146#       发表于 2018-7-7 10:12
@@ -1829,7 +1829,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 到贵州，火车上过夜了
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9147#       发表于 2018-7-7 10:12
@@ -1838,7 +1838,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 最真实的还是妄想代理人的动画送稿那一篇……
 
 
------
+*****
 
 ####  曾经的小书  
 ##### 9148#       发表于 2018-7-7 10:13
@@ -1849,7 +1849,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 56还是届不到啊
 
 
------
+*****
 
 ####  9α  
 ##### 9149#       发表于 2018-7-7 10:15
@@ -1860,7 +1860,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 白猫毛就尽情挣扎加油活下去吧～
 
 
------
+*****
 
 ####  mumubear  
 ##### 9150#       发表于 2018-7-7 10:16
@@ -1872,7 +1872,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 确定不是锦织自讨苦吃？。。。
 
 
------
+*****
 
 ####  xyau  
 ##### 9151#       发表于 2018-7-7 10:18
@@ -1888,7 +1888,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 所以说今晚会有这对半叫龙人长角的裸漂吗
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9152#       发表于 2018-7-7 10:18
@@ -1903,7 +1903,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9153#       发表于 2018-7-7 10:19
@@ -1919,7 +1919,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 最后的镜头吧
 
 
------
+*****
 
 ####  mumubear  
 ##### 9154#       发表于 2018-7-7 10:19
@@ -1928,7 +1928,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 神交的镜头吧。。。
 
 
------
+*****
 
 ####  soulife7  
 ##### 9155#       发表于 2018-7-7 10:20
@@ -1940,7 +1940,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9156#       发表于 2018-7-7 10:21
@@ -1951,7 +1951,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 这不就是灼眼的夏娜吗.....<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  五更伪境  
 ##### 9157#       发表于 2018-7-7 10:22
@@ -1960,7 +1960,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 用流量看啊
 
 
------
+*****
 
 ####  xyau  
 ##### 9158#       发表于 2018-7-7 10:23
@@ -1974,7 +1974,7 @@ Sushio says “I can’t work to my full potential unless Imaishi is working on 
 如果是结尾的话，16难道是要神气地离开02吗（所以才有标题
 
 
------
+*****
 
 ####  Meteors  
 ##### 9159#       发表于 2018-7-7 10:24
@@ -1986,7 +1986,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9160#       发表于 2018-7-7 10:25
@@ -1995,7 +1995,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 那个男人也累坏了吗
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9161#       发表于 2018-7-7 10:28
@@ -2007,7 +2007,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 毕竟刚完成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 9162#       发表于 2018-7-7 10:28
@@ -2018,7 +2018,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 创造奇迹吧
 
 
------
+*****
 
 ####  步六孤  
 ##### 9163#       发表于 2018-7-7 10:28
@@ -2027,7 +2027,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 火车信号不行，图都不出来
 
 
------
+*****
 
 ####  626704053  
 ##### 9164#       发表于 2018-7-7 10:29
@@ -2048,7 +2048,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  soulife7  
 ##### 9165#       发表于 2018-7-7 10:34
@@ -2063,7 +2063,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9166#       发表于 2018-7-7 10:34
@@ -2072,7 +2072,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 我感觉先行图要看到孕莓了……
 
 
------
+*****
 
 ####  IWS2000  
 ##### 9167#       发表于 2018-7-7 10:36
@@ -2083,7 +2083,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 郁莓
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9168#       发表于 2018-7-7 10:36
@@ -2095,7 +2095,7 @@ sihuzb站看到177了<img src="https://static.saraba1st.com/image/smiley/face201
 不会，先行图一般不会放爆点。
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9169#       发表于 2018-7-7 10:37
@@ -2109,7 +2109,7 @@ sihuzb站看到177了
 <img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">什么玩意
 
 
------
+*****
 
 ####  CCYYFF  
 ##### 9170#       发表于 2018-7-7 10:39
@@ -2118,7 +2118,7 @@ sihuzb站看到177了
 鹤望兰看起来脸是001为模板的
 
 
------
+*****
 
 ####  Meteors  
 ##### 9171#       发表于 2018-7-7 10:42
@@ -2130,7 +2130,7 @@ sihuzb站看到177了
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  CCYYFF  
 ##### 9172#       发表于 2018-7-7 10:43
@@ -2139,7 +2139,7 @@ sihuzb站看到177了
 感觉staff表应该不会出了，这么短时间应该也没法看到，也不一定有时间看。可惜没法提前知道那个男人是谁了，希望不要像那个蓝人一样最后悄无声息
 
 
------
+*****
 
 ####  moekyo  
 ##### 9173#       发表于 2018-7-7 10:44
@@ -2148,7 +2148,7 @@ sihuzb站看到177了
 你们一直在刷的那个男人，说的是庵野吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9174#       发表于 2018-7-7 10:45
@@ -2157,7 +2157,7 @@ sihuzb站看到177了
 那个男人就是锦织敦史自己，那个蓝人就是穿越回去的锦织敦史的化身广<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9175#       发表于 2018-7-7 10:45
@@ -2169,7 +2169,7 @@ sihuzb站看到177了
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9176#       发表于 2018-7-7 10:45
@@ -2178,7 +2178,7 @@ sihuzb站看到177了
 我对24话没兴趣，我只在意辣个蓝人是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moekyo  
 ##### 9177#       发表于 2018-7-7 10:46
@@ -2193,7 +2193,7 @@ sihuzb站看到177了
 我也觉得不可能啊，所以你们说的谁<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 9178#       发表于 2018-7-7 10:48
@@ -2204,7 +2204,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 但看起来那些人都去了AX现场吧，天知道会不会有
 
 
------
+*****
 
 ####  9α  
 ##### 9179#       发表于 2018-7-7 10:48
@@ -2218,7 +2218,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 辣个蓝人是谁
 
 
------
+*****
 
 ####  skives  
 ##### 9180#       发表于 2018-7-7 10:49
@@ -2227,7 +2227,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 是不是今石洋之
 
 
------
+*****
 
 ####  IWS2000  
 ##### 9181#       发表于 2018-7-7 10:52
@@ -2236,7 +2236,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 宫崎骏<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Meteors  
 ##### 9182#       发表于 2018-7-7 10:53
@@ -2248,7 +2248,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  moekyo  
 ##### 9183#       发表于 2018-7-7 10:55
@@ -2262,7 +2262,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 专楼的都可以默契配合了吗，看来国家队真的看得真的不亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  歌谭市的  
 ##### 9184#       发表于 2018-7-7 10:55
@@ -2271,7 +2271,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 不知道新海诚会不会来参与最终话。毕竟此片也致敬过你的名字
 
 
------
+*****
 
 ####  9α  
 ##### 9185#       发表于 2018-7-7 10:56
@@ -2286,7 +2286,7 @@ Y在AX现场，不过他也是把内容发给其他人。
 ——骂锦织
 
 
------
+*****
 
 ####  moekyo  
 ##### 9186#       发表于 2018-7-7 10:57
@@ -2311,7 +2311,7 @@ Snipaste_2018-07-07_10-57-32.png
 <img src="https://img.saraba1st.com/forum/201807/07/105747pd57sdayc7np7spz.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9187#       发表于 2018-7-7 10:57
@@ -2323,7 +2323,7 @@ Snipaste_2018-07-07_10-57-32.png
 777虽然菜但是依然想要完成自己的梦想留在赛场上 那个男人虽然片场工期爆炸同样想要完成自己的梦想 得证 那个男人＝777
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9188#       发表于 2018-7-7 10:59
@@ -2332,7 +2332,7 @@ Snipaste_2018-07-07_10-57-32.png
 羽毛球第二话有1W张
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9189#       发表于 2018-7-7 11:00
@@ -2344,7 +2344,7 @@ Snipaste_2018-07-07_10-57-32.png
 你蝈毕竟不是Trigger作品，人家都没怎么发力
 
 
------
+*****
 
 ####  xingenge  
 ##### 9190#       发表于 2018-7-7 11:00
@@ -2359,7 +2359,7 @@ Snipaste_2018-07-07_10-57-32.png
 <img src="http://wx2.sinaimg.cn/large/740ca5e5gy1ft146l7vypj20nm0xc4ia.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 9191#       发表于 2018-7-7 11:01
@@ -2370,7 +2370,7 @@ Snipaste_2018-07-07_10-57-32.png
 官推开始回顾历史了……
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9192#       发表于 2018-7-7 11:02
@@ -2384,7 +2384,7 @@ Snipaste_2018-07-07_10-57-32.png
 提前一年的虚假宣传
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9193#       发表于 2018-7-7 11:04
@@ -2403,7 +2403,7 @@ Snipaste_2018-07-07_10-57-32.png
 2018-7-7 11:04 上传
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9194#       发表于 2018-7-7 11:05
@@ -2412,7 +2412,7 @@ Snipaste_2018-07-07_10-57-32.png
 还回顾？脸都不要了
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9195#       发表于 2018-7-7 11:06
@@ -2424,7 +2424,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9196#       发表于 2018-7-7 11:06
@@ -2436,7 +2436,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9197#       发表于 2018-7-7 11:06
@@ -2445,7 +2445,7 @@ Snipaste_2018-07-07_10-57-32.png
 锦织敦史例行公事不得不发，大家理解一下<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9198#       发表于 2018-7-7 11:06
@@ -2457,7 +2457,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9199#       发表于 2018-7-7 11:07
@@ -2468,7 +2468,7 @@ Snipaste_2018-07-07_10-57-32.png
 以后看片先去查查系构老底
 
 
------
+*****
 
 ####  细雪之舞  
 ##### 9200#       发表于 2018-7-7 11:07
@@ -2479,7 +2479,7 @@ Snipaste_2018-07-07_10-57-32.png
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.1
 
 
------
+*****
 
 ####  9α  
 ##### 9201#       发表于 2018-7-7 11:08
@@ -2490,7 +2490,7 @@ Snipaste_2018-07-07_10-57-32.png
 天狼先别奶了。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9202#       发表于 2018-7-7 11:09
@@ -2501,7 +2501,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9203#       发表于 2018-7-7 11:11
@@ -2510,7 +2510,7 @@ Snipaste_2018-07-07_10-57-32.png
 你们是不给监督一个面子喽
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9204#       发表于 2018-7-7 11:11
@@ -2522,7 +2522,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  skives  
 ##### 9205#       发表于 2018-7-7 11:11
@@ -2534,7 +2534,7 @@ Snipaste_2018-07-07_10-57-32.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9206#       发表于 2018-7-7 11:13
@@ -2543,7 +2543,7 @@ Snipaste_2018-07-07_10-57-32.png
 天狼的系构不是冈妈徒弟吗 一看就不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  love4aids  
 ##### 9207#       发表于 2018-7-7 11:14
@@ -2552,7 +2552,7 @@ Snipaste_2018-07-07_10-57-32.png
 天狼继续看阿广<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  adidnz  
 ##### 9208#       发表于 2018-7-7 11:14
@@ -2565,7 +2565,7 @@ Snipaste_2018-07-07_10-57-32.png
 林直孝23话再次证明了自己<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9209#       发表于 2018-7-7 11:15
@@ -2577,7 +2577,7 @@ Snipaste_2018-07-07_10-57-32.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9210#       发表于 2018-7-7 11:15
@@ -2588,7 +2588,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9211#       发表于 2018-7-7 11:16
@@ -2604,7 +2604,7 @@ Snipaste_2018-07-07_10-57-32.png
 不管了这两人携手分锅吧
 
 
------
+*****
 
 ####  skives  
 ##### 9212#       发表于 2018-7-7 11:17
@@ -2617,7 +2617,7 @@ Snipaste_2018-07-07_10-57-32.png
 携锅分手吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，永远不要再合作了。
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9213#       发表于 2018-7-7 11:18
@@ -2629,7 +2629,7 @@ Snipaste_2018-07-07_10-57-32.png
 感谢官推回顾历史，我也有机会回顾一下泥潭婆罗门的神预言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 9214#       发表于 2018-7-7 11:18
@@ -2642,7 +2642,7 @@ Snipaste_2018-07-07_10-57-32.png
 可以分手了
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9215#       发表于 2018-7-7 11:19
@@ -2655,7 +2655,7 @@ Snipaste_2018-07-07_10-57-32.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别的不说，光写角色，主角队这边五个年龄不同出身不同过往经历不同的角色不比十个年龄相同出身相同过往经历几乎一个模子里扣出来的好写多了？
 
 
------
+*****
 
 ####  skives  
 ##### 9216#       发表于 2018-7-7 11:20
@@ -2671,7 +2671,7 @@ Snipaste_2018-07-07_10-57-32.png
 以及让人不知道说什么好的宇宙大02
 
 
------
+*****
 
 ####  xingenge  
 ##### 9217#       发表于 2018-7-7 11:20
@@ -2680,7 +2680,7 @@ Snipaste_2018-07-07_10-57-32.png
 毕业典礼去了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9218#       发表于 2018-7-7 11:21
@@ -2693,7 +2693,7 @@ Snipaste_2018-07-07_10-57-32.png
 最后一集还有孕莓，我是真的服了这种审美
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9219#       发表于 2018-7-7 11:22
@@ -2705,7 +2705,7 @@ Snipaste_2018-07-07_10-57-32.png
 无可奈何花落去<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9220#       发表于 2018-7-7 11:22
@@ -2719,7 +2719,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  skives  
 ##### 9221#       发表于 2018-7-7 11:22
@@ -2733,7 +2733,7 @@ Snipaste_2018-07-07_10-57-32.png
 当时更看不出价值观的问题了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 9222#       发表于 2018-7-7 11:23
@@ -2750,7 +2750,7 @@ Snipaste_2018-07-07_10-57-32.png
 不抱期望看就好了。
 
 
------
+*****
 
 ####  hl8243  
 ##### 9223#       发表于 2018-7-7 11:23
@@ -2759,7 +2759,7 @@ Snipaste_2018-07-07_10-57-32.png
 说不定加班加点吧孕莓这段删了呢？？
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9224#       发表于 2018-7-7 11:24
@@ -2768,7 +2768,7 @@ Snipaste_2018-07-07_10-57-32.png
 不要挣扎了，没听说过这种先例.....<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9225#       发表于 2018-7-7 11:25
@@ -2786,7 +2786,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9226#       发表于 2018-7-7 11:25
@@ -2795,7 +2795,7 @@ Snipaste_2018-07-07_10-57-32.png
 三圣星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9227#       发表于 2018-7-7 11:26
@@ -2805,7 +2805,7 @@ Snipaste_2018-07-07_10-57-32.png
 废话莓莓的孩子能不可爱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9228#       发表于 2018-7-7 11:26
@@ -2816,7 +2816,7 @@ Snipaste_2018-07-07_10-57-32.png
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  adidnz  
 ##### 9229#       发表于 2018-7-7 11:26
@@ -2827,7 +2827,7 @@ Snipaste_2018-07-07_10-57-32.png
 jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝人：删了换成心满对视1分钟静止帧就好了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  IWS2000  
 ##### 9230#       发表于 2018-7-7 11:27
@@ -2839,7 +2839,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 是个男孩，像五郎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9231#       发表于 2018-7-7 11:27
@@ -2851,7 +2851,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">请去看白箱，感受一下哪怕只是把正片里做好的一两秒的画面改一改有多难。
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9232#       发表于 2018-7-7 11:29
@@ -2860,7 +2860,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 还是补番最稳，选择权在自己手上<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9233#       发表于 2018-7-7 11:31
@@ -2871,7 +2871,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 别说，心满第一胎是个女孩，说不定莓莓这胎就是男孩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9234#       发表于 2018-7-7 11:31
@@ -2883,7 +2883,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9235#       发表于 2018-7-7 11:32
@@ -2894,7 +2894,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 女孩好一点，金发眼镜大长腿，郁乃阿姨可以教她装逼
 
 
------
+*****
 
 ####  Agsd  
 ##### 9236#       发表于 2018-7-7 11:32
@@ -2908,7 +2908,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 马丹，还要消费肥宅，这傻子一样的微笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9237#       发表于 2018-7-7 11:33
@@ -2919,7 +2919,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  大江户战士  
 ##### 9238#       发表于 2018-7-7 11:34
@@ -2931,7 +2931,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 差十岁的姐弟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  9α  
 ##### 9239#       发表于 2018-7-7 11:35
@@ -2942,7 +2942,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 名字是什么玩意～
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9240#       发表于 2018-7-7 11:36
@@ -2953,7 +2953,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 正太养成不是完美<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 9241#       发表于 2018-7-7 11:39
@@ -2968,7 +2968,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 <img src="http://darli-fra.jp/assets/img/pc/main02.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9242#       发表于 2018-7-7 11:40
@@ -2977,7 +2977,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 鹤望兰已经没了 真是令人愤怒
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9243#       发表于 2018-7-7 11:41
@@ -2986,7 +2986,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 姐弟恋吼啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9244#       发表于 2018-7-7 11:41
@@ -2997,7 +2997,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  adidnz  
 ##### 9245#       发表于 2018-7-7 11:42
@@ -3008,7 +3008,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 起名字这个可以理解，毕竟小孩都是战斗工具，名字算是是小时候唯一的私人物品了，问题是起名字梗用了三次<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9246#       发表于 2018-7-7 11:43
@@ -3017,7 +3017,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 等一张军大衣
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9247#       发表于 2018-7-7 11:44
@@ -3026,7 +3026,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 有名字后，该需要一个姓氏了吧，比如毛利啥的，孩子就叫毛利小五郎吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cjsd  
 ##### 9248#       发表于 2018-7-7 11:46
@@ -3035,7 +3035,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 这是头一个人类获胜让我感觉吃屎的作品，跟叫龙和V星人比起来国家队的人类（包括剩下来孩子）简直没种又无能到极限，以前就知道脑后插管奶头乐，现在剩下一群半文盲超生游击队，躺赢之后生生生加上手头现成的岩浆科技，不难想象人口恢复之后会更快走回APE的老路，作为一个文明可以说是毫无尊严和理想了
 
 
------
+*****
 
 ####  pissca  
 ##### 9249#       发表于 2018-7-7 11:46
@@ -3046,7 +3046,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9250#       发表于 2018-7-7 11:48
@@ -3058,7 +3058,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9251#       发表于 2018-7-7 11:48
@@ -3067,7 +3067,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 反人类作品实锤了，建议对锦织进行非人道毁灭
 
 
------
+*****
 
 ####  9α  
 ##### 9252#       发表于 2018-7-7 11:52
@@ -3078,7 +3078,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 自杀了。
 
 
------
+*****
 
 ####  pissca  
 ##### 9253#       发表于 2018-7-7 11:52
@@ -3093,7 +3093,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 —— 来自 Sony G8342, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0-play
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9254#       发表于 2018-7-7 11:53
@@ -3111,7 +3111,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 2018-7-7 11:53 上传
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9255#       发表于 2018-7-7 11:54
@@ -3122,7 +3122,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  lanhao  
 ##### 9256#       发表于 2018-7-7 11:54
@@ -3131,7 +3131,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 说是王道恋爱片 其实是黑色幽默讽刺片
 
 
------
+*****
 
 ####  9α  
 ##### 9257#       发表于 2018-7-7 11:54
@@ -3140,7 +3140,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 以后追番原创的看系构，看他的过去<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kyota  
 ##### 9258#       发表于 2018-7-7 11:54
@@ -3154,7 +3154,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  暂无此人N先生  
 ##### 9259#       发表于 2018-7-7 11:54
@@ -3167,7 +3167,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 建议锦织多看看富野等老一辈的作品，人的恶不是锦织这样写的。
 
 
------
+*****
 
 ####  wangtao123010  
 ##### 9260#       发表于 2018-7-7 11:55
@@ -3178,7 +3178,7 @@ jzgg：这段漏出去了好气啊，但是来不及改了怎么办？辣个蓝�
 jz：能怀孕就行了管他那么多
 
 
------
+*****
 
 ####  Fnaygih  
 ##### 9261#       发表于 2018-7-7 11:55
@@ -3189,7 +3189,7 @@ jz：能怀孕就行了管他那么多
 佛系了，老老实实种田，等晚上送DITF最后一程<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kyota  
 ##### 9262#       发表于 2018-7-7 11:56
@@ -3204,7 +3204,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9263#       发表于 2018-7-7 11:58
@@ -3215,7 +3215,7 @@ jz：能怀孕就行了管他那么多
 林直孝的GALGAME我又躲过了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whx44  
 ##### 9264#       发表于 2018-7-7 11:59
@@ -3226,7 +3226,7 @@ jz：能怀孕就行了管他那么多
 所以7和8 23集就吐槽了，自己真的被允许保护地球了吗
 
 
------
+*****
 
 ####  wangtao123010  
 ##### 9265#       发表于 2018-7-7 12:01
@@ -3237,7 +3237,7 @@ jz：能怀孕就行了管他那么多
 得了吧，前三集的格调就注定了这玩意和燃系机器人没啥关系了
 
 
------
+*****
 
 ####  xyau  
 ##### 9266#       发表于 2018-7-7 12:01
@@ -3252,7 +3252,7 @@ jz：能怀孕就行了管他那么多
 <img src="https://i.imgur.com/gI9i4Ae.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whx44  
 ##### 9267#       发表于 2018-7-7 12:01
@@ -3261,7 +3261,7 @@ jz：能怀孕就行了管他那么多
 但是你们也不能拿人类和已经发展千万年的virm和叫龙比啊，还有是怎么从13小队看出人类的自私的。。。
 
 
------
+*****
 
 ####  Meteors  
 ##### 9268#       发表于 2018-7-7 12:03
@@ -3273,7 +3273,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9269#       发表于 2018-7-7 12:04
@@ -3282,7 +3282,7 @@ jz：能怀孕就行了管他那么多
 那年海报上的米库还是女三
 
 
------
+*****
 
 ####  9α  
 ##### 9270#       发表于 2018-7-7 12:05
@@ -3299,7 +3299,7 @@ jz：能怀孕就行了管他那么多
 还不够自私吗～
 
 
------
+*****
 
 ####  wangtao123010  
 ##### 9271#       发表于 2018-7-7 12:05
@@ -3314,7 +3314,7 @@ jz：能怀孕就行了管他那么多
 现在回看宣传图就无比的生草了，除了鶴望兰其它都有个屁用
 
 
------
+*****
 
 ####  lanhao  
 ##### 9272#       发表于 2018-7-7 12:05
@@ -3325,7 +3325,7 @@ jz：能怀孕就行了管他那么多
 下集星系对轰 燃地突破天际
 
 
------
+*****
 
 ####  Meteors  
 ##### 9273#       发表于 2018-7-7 12:06
@@ -3336,7 +3336,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9274#       发表于 2018-7-7 12:06
@@ -3347,7 +3347,7 @@ jz：能怀孕就行了管他那么多
 还有打拳燃得让你哭
 
 
------
+*****
 
 ####  wangtao123010  
 ##### 9275#       发表于 2018-7-7 12:07
@@ -3358,7 +3358,7 @@ jz：能怀孕就行了管他那么多
 怕不是少女02打猫猫拳
 
 
------
+*****
 
 ####  lanhao  
 ##### 9276#       发表于 2018-7-7 12:07
@@ -3369,7 +3369,7 @@ jz：能怀孕就行了管他那么多
 挡雨 出租车载客
 
 
------
+*****
 
 ####  soulife7  
 ##### 9277#       发表于 2018-7-7 12:08
@@ -3381,7 +3381,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9278#       发表于 2018-7-7 12:10
@@ -3392,7 +3392,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9279#       发表于 2018-7-7 12:10
@@ -3401,7 +3401,7 @@ jz：能怀孕就行了管他那么多
 锤子还会出现吗？又有装逼的专有名词，还给了好多镜头
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9280#       发表于 2018-7-7 12:14
@@ -3419,7 +3419,7 @@ jz：能怀孕就行了管他那么多
 对比如此鲜明，却还要让叫龙人代表02玩命羡慕人类，想变成人类，人类好美，不觉得有哪里有问题么？这不是发展多少年的问题，是屁股歪的问题。
 
 
------
+*****
 
 ####  9α  
 ##### 9281#       发表于 2018-7-7 12:15
@@ -3430,7 +3430,7 @@ jz：能怀孕就行了管他那么多
 人类在地球上过家家种田生殖<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9282#       发表于 2018-7-7 12:15
@@ -3441,7 +3441,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xyau  
 ##### 9283#       发表于 2018-7-7 12:18
@@ -3452,7 +3452,7 @@ jz：能怀孕就行了管他那么多
 应该没空发STAFF了吧
 
 
------
+*****
 
 ####  whx44  
 ##### 9284#       发表于 2018-7-7 12:18
@@ -3468,7 +3468,7 @@ jz：能怀孕就行了管他那么多
 至于9队，先说13小队其他人知不知道他们牺牲还是两说，其次9队和13小队从没有成为真正的朋友，他们只是为了共同的目标而努力罢了
 
 
------
+*****
 
 ####  whx44  
 ##### 9285#       发表于 2018-7-7 12:21
@@ -3481,7 +3481,7 @@ jz：能怀孕就行了管他那么多
 所以说这些人类是旧人类啊，是爸爸们控制下的孩子们，是锦织批判的对象，还有02想变成人类锦织不也借广的话批判了吗，这可赖不到锦织
 
 
------
+*****
 
 ####  mumubear  
 ##### 9286#       发表于 2018-7-7 12:22
@@ -3499,7 +3499,7 @@ jz：能怀孕就行了管他那么多
 机战第一集路人还给个 signal lost。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cjsd  
 ##### 9287#       发表于 2018-7-7 12:24
@@ -3513,7 +3513,7 @@ jz：能怀孕就行了管他那么多
 而且没有任何迹象表明这些孩子能比当年的大人做得好，万一哪天有个孩子种地累了跑进都市偷懒，无意中捡起大人用过的肥宅快乐VR。。。。。若干年后216回到地球发现寸草不生全无人迹，只有一圈自动岩浆发电机连到都市，进去一看一堆人瘫在冬眠仓里头戴VR一脸诡异的笑容，能脑后插管谁还辛苦种地啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whx44  
 ##### 9288#       发表于 2018-7-7 12:24
@@ -3522,7 +3522,7 @@ jz：能怀孕就行了管他那么多
 再说了，5集你们喜欢的02不顾团队直接自己干自己的算不算自私呢？
 
 
------
+*****
 
 ####  9α  
 ##### 9289#       发表于 2018-7-7 12:24
@@ -3541,7 +3541,7 @@ jz：能怀孕就行了管他那么多
 16也是，看见死人了下一秒就忘<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9290#       发表于 2018-7-7 12:25
@@ -3555,7 +3555,7 @@ jz：能怀孕就行了管他那么多
 别说新人类旧人类了，新人类的基因不是继承的旧人类？反倒是叫龙人连02都盖章不能生。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9291#       发表于 2018-7-7 12:26
@@ -3567,7 +3567,7 @@ jz：能怀孕就行了管他那么多
 既然只是接受了“广的搭档”而不是02本身，那就不要21/23话在那里假惺惺的齐喊泽拉图，真的很鹅心
 
 
------
+*****
 
 ####  whx44  
 ##### 9292#       发表于 2018-7-7 12:26
@@ -3578,7 +3578,7 @@ jz：能怀孕就行了管他那么多
 我只想说的因为现在的孩子们吸取了之前大人们的教训，所以有理由相信他们会做的更好，中国不也是在吸收文 革的教训下取得现在成就的
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9293#       发表于 2018-7-7 12:26
@@ -3587,7 +3587,7 @@ jz：能怀孕就行了管他那么多
 02再也看不到樱花了
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9294#       发表于 2018-7-7 12:26
@@ -3598,7 +3598,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9295#       发表于 2018-7-7 12:27
@@ -3611,7 +3611,7 @@ jz：能怀孕就行了管他那么多
 锦织不懂人类<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cjsd  
 ##### 9296#       发表于 2018-7-7 12:28
@@ -3623,7 +3623,7 @@ jz：能怀孕就行了管他那么多
 9α你就别鸣不平了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，13队那帮人就没把你们当过队友，没看闪亮亮的宇宙装都不给你们用吗，说不定他们还在记恨你们当初搅黄婚礼，看你们爆炸时还爽到不行呢
 
 
------
+*****
 
 ####  whx44  
 ##### 9297#       发表于 2018-7-7 12:28
@@ -3637,7 +3637,7 @@ jz：能怀孕就行了管他那么多
 主要目的肯定不是，但你能说没有批判？
 
 
------
+*****
 
 ####  夜雨袭风  
 ##### 9298#       发表于 2018-7-7 12:28
@@ -3657,7 +3657,7 @@ jz：能怀孕就行了管他那么多
 抱上13小队的大腿，你才有基本的尊严（9队除外..)，不然就老老实实等着被锦氏政确制裁。
 
 
------
+*****
 
 ####  xyau  
 ##### 9299#       发表于 2018-7-7 12:28
@@ -3669,7 +3669,7 @@ jz：能怀孕就行了管他那么多
 666#10没法用大人的治疗设备，应该也用不了快乐机
 
 
------
+*****
 
 ####  神不可逾越  
 ##### 9300#       发表于 2018-7-7 12:29
@@ -3680,7 +3680,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9301#       发表于 2018-7-7 12:29
@@ -3693,7 +3693,7 @@ jz：能怀孕就行了管他那么多
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9302#       发表于 2018-7-7 12:31
@@ -3702,7 +3702,7 @@ jz：能怀孕就行了管他那么多
 现在想想前两集男主被欺凌真是微妙
 
 
------
+*****
 
 ####  whx44  
 ##### 9303#       发表于 2018-7-7 12:31
@@ -3711,7 +3711,7 @@ jz：能怀孕就行了管他那么多
 我想说的还有一件事，目前没有任何证据表明除广以外的13小队知道9队牺牲，万一下一集13小队表达了对9队的怀念或者提到9队的话还是能够希望大家撤回对其的批判
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9304#       发表于 2018-7-7 12:31
@@ -3725,7 +3725,7 @@ jz：能怀孕就行了管他那么多
 不想要孩子？不想要孩子你就是沉迷肥宅快乐机的旧人类代表，死都不知道怎么死。
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9305#       发表于 2018-7-7 12:32
@@ -3739,7 +3739,7 @@ jz：能怀孕就行了管他那么多
 比如说要怎么解释13队全机换装，9队的机体就这么跟着上天新武装新防护全部没有？
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9306#       发表于 2018-7-7 12:32
@@ -3751,7 +3751,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  cjsd  
 ##### 9307#       发表于 2018-7-7 12:32
@@ -3763,7 +3763,7 @@ jz：能怀孕就行了管他那么多
 吸取毛的教训了啊，现在大部分孩子都是一脸懵逼的状态吧，13队也没高到哪里去，就只是知道了叫龙不是坏人，没有爸爸管饭了，我们要种地活下去，你看666不还是说要继续用岩浆能源吗，如果找到吸叫龙血活下去的办法后他们还有几个能甘心去种地啊
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9308#       发表于 2018-7-7 12:33
@@ -3775,7 +3775,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9309#       发表于 2018-7-7 12:36
@@ -3787,7 +3787,7 @@ jz：能怀孕就行了管他那么多
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whx44  
 ##### 9310#       发表于 2018-7-7 12:37
@@ -3802,7 +3802,7 @@ jz：能怀孕就行了管他那么多
 至于一开始02的生存之道，恕我直言，这是我最开始特别讨厌国家队的理由就是太多无脑02吹，什么狗屁独立自主啊，就会一个弱者当死
 
 
------
+*****
 
 ####  skives  
 ##### 9311#       发表于 2018-7-7 12:37
@@ -3812,7 +3812,7 @@ jz：能怀孕就行了管他那么多
 不参加最终战，避免任何牺牲的可能性，一点感受不到他们在为了人类的未来奋斗。
 
 
------
+*****
 
 ####  whx44  
 ##### 9312#       发表于 2018-7-7 12:38
@@ -3826,7 +3826,7 @@ jz：能怀孕就行了管他那么多
 现在回去了吗？所以我说要下一集才知道，再批判也不迟
 
 
------
+*****
 
 ####  xyau  
 ##### 9313#       发表于 2018-7-7 12:38
@@ -3839,7 +3839,7 @@ jz：能怀孕就行了管他那么多
 <img src="http://darli-fra.jp/assets/img/pc/top/kv04.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  kyota  
 ##### 9314#       发表于 2018-7-7 12:39
@@ -3852,7 +3852,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  moekyo  
 ##### 9315#       发表于 2018-7-7 12:39
@@ -3861,7 +3861,7 @@ jz：能怀孕就行了管他那么多
 拉黑之后好像错过了什么，但是又被你们引用看了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whx44  
 ##### 9316#       发表于 2018-7-7 12:39
@@ -3872,7 +3872,7 @@ jz：能怀孕就行了管他那么多
 不着急，今天就出结果了，大家先攒些口水，到时候一起清算就行了
 
 
------
+*****
 
 ####  skives  
 ##### 9317#       发表于 2018-7-7 12:40
@@ -3881,7 +3881,7 @@ jz：能怀孕就行了管他那么多
 哇 十人海报 
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9318#       发表于 2018-7-7 12:40
@@ -3907,7 +3907,7 @@ jz：能怀孕就行了管他那么多
 查看全部评分
 
 
------
+*****
 
 ####  短名字的狸  
 ##### 9319#       发表于 2018-7-7 12:40
@@ -3918,7 +3918,7 @@ jz：能怀孕就行了管他那么多
 锦织可能救过他的命，理解一下嘛
 
 
------
+*****
 
 ####  moekyo  
 ##### 9320#       发表于 2018-7-7 12:42
@@ -3930,7 +3930,7 @@ jz：能怀孕就行了管他那么多
 不要让我想起来，我想吐<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  夜雨袭风  
 ##### 9321#       发表于 2018-7-7 12:42
@@ -3947,7 +3947,7 @@ jz：能怀孕就行了管他那么多
 我服，我服。
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9322#       发表于 2018-7-7 12:42
@@ -3959,7 +3959,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  wangtao123010  
 ##### 9323#       发表于 2018-7-7 12:42
@@ -3972,7 +3972,7 @@ jz：能怀孕就行了管他那么多
 最搞笑的是人类代表阿广最后还便乘了叫龙人
 
 
------
+*****
 
 ####  短名字的狸  
 ##### 9324#       发表于 2018-7-7 12:43
@@ -3983,7 +3983,7 @@ jz：能怀孕就行了管他那么多
 真 毕志飞附体，无言以对
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9325#       发表于 2018-7-7 12:43
@@ -3992,7 +3992,7 @@ jz：能怀孕就行了管他那么多
 刚看完humans第三季季终集，解决人类与合成人互相厮杀的方案就是人类和合成人生孩子，还已经有成功先例了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  moekyo  
 ##### 9326#       发表于 2018-7-7 12:43
@@ -4001,7 +4001,7 @@ jz：能怀孕就行了管他那么多
 今天是在官方鞭尸吗，疯狂提醒，这就是你们一开始看到的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  whx44  
 ##### 9327#       发表于 2018-7-7 12:43
@@ -4014,7 +4014,7 @@ jz：能怀孕就行了管他那么多
 9队机体强不行？还有你的上一句话我也不知道说什么好了，我也不清楚你在说什么。。。不过从你这句话中我突然想锦织是不是想写永生和繁衍的选择，当然写的和屎一样
 
 
------
+*****
 
 ####  mumubear  
 ##### 9328#       发表于 2018-7-7 12:44
@@ -4028,7 +4028,7 @@ jz：能怀孕就行了管他那么多
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">脖子被掐还不危险。。。
 
 
------
+*****
 
 ####  9α  
 ##### 9329#       发表于 2018-7-7 12:44
@@ -4040,7 +4040,7 @@ jz：能怀孕就行了管他那么多
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">非人类都被锦织轰出地球了。
 
 
------
+*****
 
 ####  moekyo  
 ##### 9330#       发表于 2018-7-7 12:45
@@ -4055,7 +4055,7 @@ jz：能怀孕就行了管他那么多
 周末用什么手机，肯定网页版用户体验最好啊<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9331#       发表于 2018-7-7 12:45
@@ -4067,7 +4067,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  cjsd  
 ##### 9332#       发表于 2018-7-7 12:46
@@ -4079,7 +4079,7 @@ jz：能怀孕就行了管他那么多
 广添口血（还是血统不纯的02的）上个机就能变成叫龙人，那这么看来叫龙人明明是吸血鬼式的同化繁殖方式
 
 
------
+*****
 
 ####  mumubear  
 ##### 9333#       发表于 2018-7-7 12:47
@@ -4097,7 +4097,7 @@ jz：能怀孕就行了管他那么多
 战斗群像外星人弱智联合政府（大人）挣扎求生，一样都不少。。。
 
 
------
+*****
 
 ####  whx44  
 ##### 9334#       发表于 2018-7-7 12:48
@@ -4108,7 +4108,7 @@ jz：能怀孕就行了管他那么多
 要黑最好弄些合适的理由来，黑锦织的理由有很多，不过今天中午我刚忙完事就看见挺多好笑的观点的
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9335#       发表于 2018-7-7 12:48
@@ -4119,7 +4119,7 @@ jz：能怀孕就行了管他那么多
 同样强度的战斗13队完好无损9队机体负伤（还给了个特写），这叫强？
 
 
------
+*****
 
 ####  9α  
 ##### 9336#       发表于 2018-7-7 12:48
@@ -4131,7 +4131,7 @@ jz：能怀孕就行了管他那么多
 感觉要拯救剧情只能把后面全魔改掉……
 
 
------
+*****
 
 ####  wangtao123010  
 ##### 9337#       发表于 2018-7-7 12:48
@@ -4143,7 +4143,7 @@ jz：能怀孕就行了管他那么多
 那博士还那么废心干嘛，把02的血分给每个孩子们不强多了？
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9338#       发表于 2018-7-7 12:48
@@ -4155,7 +4155,7 @@ jz：能怀孕就行了管他那么多
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9339#       发表于 2018-7-7 12:49
@@ -4169,7 +4169,7 @@ jz：能怀孕就行了管他那么多
 完成叫龙人的使命O
 
 
------
+*****
 
 ####  tokimon  
 ##### 9340#       发表于 2018-7-7 12:49
@@ -4179,7 +4179,7 @@ jz：能怀孕就行了管他那么多
 我要换头像封印这段痛苦的品屎记忆<img src="https://static.saraba1st.com/image/smiley/goose2017/069.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9341#       发表于 2018-7-7 12:49
@@ -4190,7 +4190,7 @@ jz：能怀孕就行了管他那么多
 13集专楼就有人吐槽了
 
 
------
+*****
 
 ####  yy19  
 ##### 9342#       发表于 2018-7-7 12:49
@@ -4205,7 +4205,7 @@ jz：能怀孕就行了管他那么多
 这部破片么……咱等今天大结局之后再来喷吧XD<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9343#       发表于 2018-7-7 12:49
@@ -4218,7 +4218,7 @@ jz：能怀孕就行了管他那么多
 上次锦织说谁认认真真写的科幻设定来着？出来背锅了喂
 
 
------
+*****
 
 ####  moekyo  
 ##### 9344#       发表于 2018-7-7 12:50
@@ -4233,7 +4233,7 @@ jz：能怀孕就行了管他那么多
 不用强求的，想看的话自然回去找来看。
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9345#       发表于 2018-7-7 12:51
@@ -4245,7 +4245,7 @@ jz：能怀孕就行了管他那么多
 大冢社长啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  skives  
 ##### 9346#       发表于 2018-7-7 12:51
@@ -4259,7 +4259,7 @@ jz：能怀孕就行了管他那么多
 但是这集就很有可能让他俩喊出为了人类而战这种台词啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  wangtao123010  
 ##### 9347#       发表于 2018-7-7 12:51
@@ -4271,7 +4271,7 @@ jz：能怀孕就行了管他那么多
 jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  cjsd  
 ##### 9348#       发表于 2018-7-7 12:51
@@ -4283,7 +4283,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 “你看我们用AK你们用M6，是你们9队装备比较好，我们13队寻思这导轨加长弹仓红点瞄准你们就别用了”
 
 
------
+*****
 
 ####  短名字的狸  
 ##### 9349#       发表于 2018-7-7 12:52
@@ -4294,7 +4294,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 科幻奇幻魔幻类剧集通病，看收视率再决定续不续订写不写，导致最后编剧为了结局什么妖魔鬼怪都写的出来，善始善终的这类型剧集真是太难找了……
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9350#       发表于 2018-7-7 12:52
@@ -4304,7 +4304,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 “这么多年来我们的积累一直没有白费”<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9351#       发表于 2018-7-7 12:52
@@ -4316,7 +4316,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9352#       发表于 2018-7-7 12:53
@@ -4332,7 +4332,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 铁血都有新作了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蝈蝈呢
 
 
------
+*****
 
 ####  moekyo  
 ##### 9353#       发表于 2018-7-7 12:53
@@ -4344,7 +4344,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 从叫龙可以吐出溶解美少女衣服而不腐蚀机体的液体开始，认真考究的科幻设定就已经不存在了
 
 
------
+*****
 
 ####  skives  
 ##### 9354#       发表于 2018-7-7 12:54
@@ -4355,7 +4355,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 大材小用 还不如不写……
 
 
------
+*****
 
 ####  cjsd  
 ##### 9355#       发表于 2018-7-7 12:56
@@ -4364,7 +4364,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 216要是真喊出为了他们的牺牲为了地球我反而还觉得观感好点，结果为了“那你说怎么办啊岩浆能源还得继续用”的白眼狼人类和13队，01你所托非人啊，须知这仗打完回去人类要发展还是要继续吸叫龙血的
 
 
------
+*****
 
 ####  栗悟饭177  
 ##### 9356#       发表于 2018-7-7 12:56
@@ -4376,7 +4376,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 事到如今你还在怕什么<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  lanhao  
 ##### 9357#       发表于 2018-7-7 13:01
@@ -4385,7 +4385,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 别让我走动画版成了
 
 
------
+*****
 
 ####  xyau  
 ##### 9358#       发表于 2018-7-7 13:02
@@ -4401,7 +4401,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 中島美嘉さん、HYDEさんありがとうございました！
 
 
------
+*****
 
 ####  短名字的狸  
 ##### 9359#       发表于 2018-7-7 13:04
@@ -4410,7 +4410,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 反正爱田中将贺就行了，这人设要是能给部好片该多好……
 
 
------
+*****
 
 ####  royalblue1127  
 ##### 9360#       发表于 2018-7-7 13:05
@@ -4421,7 +4421,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 这片红蓝血融合也是，和ditf差不多，男主是个大脑被改造进芯片的半人半合成人，后来大脑受损变回完全的人类了，结果生的孩子还是有合成人基因，搞出了人和机器血液融合的新物种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  soulife7  
 ##### 9361#       发表于 2018-7-7 13:11
@@ -4432,7 +4432,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  Meteors  
 ##### 9362#       发表于 2018-7-7 13:16
@@ -4443,7 +4443,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  9α  
 ##### 9363#       发表于 2018-7-7 13:31
@@ -4452,7 +4452,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 ……家里停电<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 9364#       发表于 2018-7-7 13:35
@@ -4469,7 +4469,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 <img src="https://i.imgur.com/VdPEF9X.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  funo3355411  
 ##### 9365#       发表于 2018-7-7 13:56
@@ -4480,7 +4480,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 9366#       发表于 2018-7-7 14:00
@@ -4511,7 +4511,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 9α：Hiro，替我向妈妈问声好。（9α为阻止大紫色人形自爆）<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  [A]ZuZe  
 ##### 9367#       发表于 2018-7-7 14:04
@@ -4525,7 +4525,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9368#       发表于 2018-7-7 14:07
@@ -4534,7 +4534,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 新楼开了没？
 
 
------
+*****
 
 ####  Mr.BBWoLf  
 ##### 9369#       发表于 2018-7-7 14:11
@@ -4549,7 +4549,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 毕竟幻灯片，还贴图尾焰拉线。
 
 
------
+*****
 
 ####  xyau  
 ##### 9370#       发表于 2018-7-7 14:16
@@ -4567,7 +4567,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 <img src="https://i.imgur.com/0bLUtjI.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  月临碧海  
 ##### 9371#       发表于 2018-7-7 14:18
@@ -4576,7 +4576,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 趁没开新楼再水一水，水到326
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 9372#       发表于 2018-7-7 14:21
@@ -4616,7 +4616,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 待到这俩也消逝，广厨会多还是少？
 
 
------
+*****
 
 ####  ######  
 ##### 9373#       发表于 2018-7-7 14:22
@@ -4630,7 +4630,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 是极个别的个体才能适配叫龙人的DNA吧。你看9队的那群就是残次品。广应该是另辟奇径变成了和02一样相对的个体
 
 
------
+*****
 
 ####  davidcch12  
 ##### 9374#       发表于 2018-7-7 14:22
@@ -4647,7 +4647,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  xyau  
 ##### 9375#       发表于 2018-7-7 14:24
@@ -4662,7 +4662,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 那是SP2的色纸
 
 
------
+*****
 
 ####  cjsd  
 ##### 9376#       发表于 2018-7-7 14:27
@@ -4674,7 +4674,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 问题是广这变的也太简单了吧，就多年前舔了一小口血，又不是输入血管了，就变叫龙侠了？合着博士忙活这么多年”她是唯一一个保持人型的个体”的基因调整都不行，结果要抽点02血喝就行了？
 
 
------
+*****
 
 ####  xyau  
 ##### 9377#       发表于 2018-7-7 14:31
@@ -4689,7 +4689,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 <img src="https://i.imgur.com/fhPN63B.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9378#       发表于 2018-7-7 14:32
@@ -4702,7 +4702,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  adidnz  
 ##### 9379#       发表于 2018-7-7 14:33
@@ -4714,7 +4714,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 姑且认为是阿广跟02开了很多次机开出来的效果吧，一般汁男扛不住三次就挂了，阿广喝了口血有外挂就抗住了。这片都这样了，细究设定没啥意义了吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  华尔姬丽雅  
 ##### 9380#       发表于 2018-7-7 14:34
@@ -4726,7 +4726,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 现在看来什么龙化原理之类的是不用指望解说圆乎了，说你是你就是。
 
 
------
+*****
 
 ####  烤脑花  
 ##### 9381#       发表于 2018-7-7 14:36
@@ -4737,7 +4737,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 好比你解剖个猴子研究气功的生理结构一样，根本是缘木求鱼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9382#       发表于 2018-7-7 14:37
@@ -4770,7 +4770,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 继续读石黑，看看锦织哥哥到底借鉴了啥。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9383#       发表于 2018-7-7 14:38
@@ -4783,7 +4783,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 前面我回帖写了，你待会看看对不对<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  fengzijiang  
 ##### 9384#       发表于 2018-7-7 14:39
@@ -4797,7 +4797,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 怎么说，其实我也很不爽这片的人类，我觉得人类简直就是躺赢，我没有看到人类为自己的未来奋斗过，或者说奋斗的太少了，付出的流血牺牲也太少了，就以13小队而言，全程靠鹤望兰，这就很微妙了，所有难题没有一个是靠孩子们自己解决的，叫龙——216解决，大人——v星人解决，v星人——216去打，土壤——靠大人们留下的鸟笼，人类哪里好了？会生孩子孕育未来就好了？
 
 
------
+*****
 
 ####  cjsd  
 ##### 9385#       发表于 2018-7-7 14:39
@@ -4810,7 +4810,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 我更奇怪的是之前看78煞有其事的分析”广的龙化已达百分之多少，这样下去的话”，结果现在看来根本就是没有先例的偶发现象（如果龙化有先例博士早就去弄一堆孩子喂血了，还哪有功夫搞什么13小队），这设定也未免太张嘴就来了吧
 
 
------
+*****
 
 ####  不再是小孩子了  
 ##### 9386#       发表于 2018-7-7 14:42
@@ -4821,7 +4821,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9387#       发表于 2018-7-7 14:43
@@ -4833,7 +4833,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 求个楼层数。手机找不太方便。
 
 
------
+*****
 
 ####  玖瑶君  
 ##### 9388#       发表于 2018-7-7 14:44
@@ -4848,7 +4848,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 不明白为什么这么写
 
 
------
+*****
 
 ####  aptx8285144  
 ##### 9389#       发表于 2018-7-7 14:45
@@ -4857,7 +4857,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 今晚jzg不要再次毫无下限的话，我还是考虑投个+0吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xyau  
 ##### 9390#       发表于 2018-7-7 14:47
@@ -4866,7 +4866,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 [#24专楼](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1722710)
 
 
------
+*****
 
 ####  sherlockchu  
 ##### 9391#       发表于 2018-7-7 14:47
@@ -4881,7 +4881,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 锦织在埋伏笔和回收伏笔的能力上真是不行。一般埋一些伏笔，然后逐渐揭开，并埋几个新伏笔才吊得住观众的胃口。锦织是一口气提到很多，最后一口气填坑。就算没有遗漏，这种填坑当时也忒糟糕了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  novid  
 ##### 9392#       发表于 2018-7-7 14:55
@@ -4890,7 +4890,7 @@ jz：大概是只有复读怪式的恋爱感情才能同化吧<img src="https://
 JZGG前期大量抛出设定伏笔，然后一个都没回收
 
 
------
+*****
 
 ####  lanhao  
 ##### 9393#       发表于 2018-7-7 14:56
@@ -4903,7 +4903,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 一口气回收那就是神作 锦织是把这口气给吞进去了
 
 
------
+*****
 
 ####  amulelernen  
 ##### 9394#       发表于 2018-7-7 14:58
@@ -4921,7 +4921,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 但是这个宿命不是人类给的，而是奇葩的001给的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  xingenge  
 ##### 9395#       发表于 2018-7-7 15:00
@@ -4935,7 +4935,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 <img src="http://wx1.sinaimg.cn/large/740ca5e5gy1ft1b47a3brj20xc0ir4iu.jpg" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  Gato_shin  
 ##### 9396#       发表于 2018-7-7 15:03
@@ -4944,7 +4944,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 你们要干啥，还想摇到326吗
 
 
------
+*****
 
 ####  zatsuza  
 ##### 9397#       发表于 2018-7-7 15:31
@@ -4955,7 +4955,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 — from Sony G8441, Android 8.0.0 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v1.3.3.2-play
 
 
------
+*****
 
 ####  ######  
 ##### 9398#       发表于 2018-7-7 16:23
@@ -4967,7 +4967,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 并不是单纯的克隆体 你看01那样 和02差别还是很大的。应该叫基因原体还差不多
 
 
------
+*****
 
 ####  ######  
 ##### 9399#       发表于 2018-7-7 16:25
@@ -4979,7 +4979,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 广属于突变体 即使没喝血在一群孩子中也是特别的。算是被命运选中了 就是中大乐透差不多
 
 
------
+*****
 
 ####  Lyzers  
 ##### 9400#       发表于 2018-7-7 16:48
@@ -4988,7 +4988,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 说起来都最后一集了，那只婴儿肥大手只在正片出现过一次却在OP里出现了，前面有人讨论过这只手的作用没<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
------
+*****
 
 ####  curiousnoob  
 ##### 9401#       发表于 2018-7-7 16:51
@@ -5000,7 +5000,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 02教你做大人还没解释呢，汁男幻影也没，不要慌，JZGG都等着呢
 
 
------
+*****
 
 ####  Lyzers  
 ##### 9402#       发表于 2018-7-7 17:40
@@ -5012,7 +5012,7 @@ JZGG前期大量抛出设定伏笔，然后一个都没回收
 一集神回完全填坑，JZGG安排的明明白白的
 
 
------
+*****
 
 ####  六花自我中  
 ##### 9403#       发表于 2018-7-7 22:39
